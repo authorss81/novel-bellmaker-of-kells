@@ -81,4 +81,4 @@ Who taught the Crown to turn one clerk's answer into a whole settlement's consen
 
 ## Final chapter image
 
-Tomas leaves Kells before dawn with the silent bell in a padded crate. Behind him, the Vale Bellhouse sign hangs crooked over a locked door. On the river road, Tamsin rings a small handbell once, waits, and receives an answer from a village that has not yet heard the Crown's order.
+Tomas leaves Kells before dawn with the fixed stripped Crown survey carrier in a padded crate. Behind him, the Vale Bellhouse sign hangs crooked over a locked door. On the river road, Tamsin rings a small handbell once, waits, and receives an answer from a village that has not yet heard the Crown's order.
