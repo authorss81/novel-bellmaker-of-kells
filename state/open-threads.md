@@ -1,35 +1,36 @@
 # Open Threads
 
-These are active promises after Volume 01, Batch 0001. They are not resolved merely because a clue has appeared.
+These are active promises after Volume 01, Batch 0002. They are not resolved merely because a clue has appeared.
 
 ## Immediate Volume 01 threads
 
-- Who removed the fixed stripped Crown survey carrier's survey clapper, who left Mara's attributed note, and who drove the first route pulse?
-- Does the child-sized wax handprint belong to Jory Fenn, and why is the Fenn household absent or incomplete in the civic rolls?
-- Why were Jory and Edan Fenn taken before the posted L-4 notice, and what earlier or continuing process connects their disappearances to the inspection?
-- Who is the missing local surveyor whose service entry was withdrawn? The route docket and its service ticket both carry the name **Iven Sore**, which is also the living master of the Bellwrights' Measure, and Oren says the name out loud in Chapter 8. The unresolved question is whether the name is **genuine or borrowed**: Tomas proposes "a clerk using his name" and Oren only answers "Could be," adding that the roll has no current entry and there is no living witness to the withdrawal. If the name is genuine, the guild master and the missing surveyor are one man. Do not settle it by assumption in either direction, and do not have anyone claim the docket is unnamed.
-- **Three surveyor roles are in play and must not be collapsed.** Pever is the delivering and certifying Crown surveyor from Chapter 1, present and not missing. The Chapter 8 docket surveyor is missing, with the Iven Sore name on paper. Halden's inspection surveyor was "delayed on the north road" in Chapter 2 and is explicitly **not** the man who came to the workshop; that person is still unnamed and is the one due at the rescheduled dawn. Chapters 11–20 may show the third surveyor arrive without identifying them as the missing second.
-- Jory and Edan Fenn answered the **previous** renewal round, not the L-4 posting. Why does each Low Ward round take somebody, and who signed the Fenn line as "not returned"?
-- Why do the “J. Vale” lock-register sign-out and the “J. V.” maintenance tag echo one another? Is the echo a false name, a copied record, or a real person? No name or suspect has been attached to “J. V.” in prose.
-- Tamsin's handbell was altered with wax laid over an older signal rather than cut into it. Who could widen a route's reach that way, and what did the wider reach accomplish in the Low Ward?
-- How did the fixed carrier's sound travel through the Bellhouse coupling, the north-gate relay, and the bypass? Which physical sound initiated each repetition?
-- Is the rescheduled dawn inspection a lawful renewal visit or the opening move of the **Silent Muster**?
-- How did Mara connect the warning to the Crown inspection from inside the Quiet Office, and what does her note omit?
-- Why was Tamsin's courier handbell altered to repeat a Low Ward signal beyond its authorized route, and who used the maintenance key?
-- Can Tomas obtain three independent local answers without turning disagreement into obedience?
-- Can the town test a public warning before the rescheduled dawn without borrowing the private trial handbell's authority?
-- A boy at the landing says the carrier's tone spoke the words "before dawn" and then the name "Vale" (Chapter 2), and by Chapter 10 a voice in the market crowd repeats "It said before dawn." Tomas records the boy's account and immediately notes the wind took most of it. Whether this is rumor, a distorted relay, or Mara's warning reaching a child through the route is unresolved. Treat it as rumor until the story earns otherwise; do not let it become evidence by repetition.
-- Who or what turns an official response into something that sounds like Kells-wide acceptance? The copied-answer mechanism remains unexposed.
-- What did Tomas's rope cut during the Hush cost, and what public account will Oren require when the old history is confronted?
+- **The L-4 answer schedule.** Forty-one households, one mark each, entered by an **office number with no signature**, dated the day each round was *posted*. Line twenty-two is the **Fenn household, six persons**, with Jory and Edan among the six and two marked *accompanying*, where the ward fragment says three with a fourth line cut away. The immediate obligation is to turn an office number into a person who can answer, and the immediate risk is that Tomas does it by asserting what the page means. The market court clerk has stated that every person Tomas would have to ask is on a roll somewhere.
+- The service ticket's full text reads ***answered in office, L-4 ward roll, per local practice***, where the copy in Chapter 9 read *no keeper answer recorded*. Someone changed what that ticket says about consent between the copy and the whole.
+- The **Crown works order** for the low-turn culvert is dated the day after the ward was warned at the court. A dated fact and nothing more. Bevin Sarr made a Crown officer say the word *Crown* twice in front of eleven witnesses; the cart is still across the drain.
+- The Crown's **emergency custody hearing** at the first hour of light on Day 10, over the whole of the workshop's signal apparatus, on the ground that a workshop able to sound an answer without the ward's agreement is more dangerous than before. The Crown's own filing clerk privately admitted to Oren that he has merged divided answers into single ones for eleven years of filing. That admission is unrecorded and unwitnessed, and it is a thing that could be used or lost.
+- The Crown's order of Day 8 treats the **three-answer record as a single local response on L-4** and demanded the slips. The three answer columns, the withdrawal column, the withdrawal procedure receipt, the rope account, and the schedule are all still in play, and the Crown will file its own version at four in the morning.
+- **Who removed the fixed stripped Crown survey carrier's survey clapper, who left Mara's attributed note, and who drove the first route pulse?** Untouched by this batch.
+- **Does the child-sized wax handprint belong to Jory Fenn, and why is the Fenn household absent or incomplete in the civic rolls?** The new schedule gives the household a count of six where the ward paper gives three. That gap is a new, specific version of the same question.
+- **Why were Jory and Edan Fenn taken before the posted L-4 notice?** They answered the **previous renewal round** (Day −5 and Day −4). The schedule dates the Fenn response to the day that round was *posted*, which is earlier still and is a Crown page rather than a ward record.
+- **The Iven Sore name** on the route docket and its service ticket is **genuine or borrowed**, and it is still unsettled. Iven Sore, the living master of the Bellwrights' Measure, can support that he never held the L-4 commission and cannot support the rest, and he refused to say he did not sign it. He will answer in a Measure room with a witness in eleven days. Do not have any character claim the docket is unnamed, and do not settle the question by assumption.
+- **Surveyor roles stay distinct.** **Pever** is present. The **missing docket surveyor** is still missing and is named only as Iven Sore on paper. **Surveyor Rhea Collis** is named, present, not the docket surveyor, and due at the north gate at four on Day 10. The Crown officers, the black-case commission observer, and the filing clerks are not surveyors.
+- **J. Vale and J. V.** The lock-register sign-out and the maintenance tag still echo one another. **No name or suspect is attached to "J. V." in prose and none was attached in Chapters 11–20.**
+- **Tamsin's handbell** was altered with wax laid over an older signal rather than cut into it. Its reach is now measured and published: of eleven people between the north gate and the landing, seven heard it and four did not; of five asked on the ferry road past the authorized end, three heard it; and the second cottage past the toll shed heard nothing at all. Who could widen a route that way, and what the wider reach accomplished in the Low Ward, is still open.
+- **How did the carrier's sound travel through the Bellhouse coupling, the north-gate relay, and the bypass?** A chapter on the low gate now shows a parallel case: a *thin* sound after the Hush frame fell, which people did not understand and did not move for.
+- **Is the rescheduled dawn inspection a lawful renewal visit or the opening move of the Silent Muster?**
+- **How did Mara connect the warning to the Crown inspection from inside the Quiet Office, and what does her note omit?**
+- **Can the town test a public warning before the dawn without borrowing the private trial handbell's authority?** The Day 8 test says yes, with a separate carrier, a count that includes refusals, and a reach that is uneven and partly wrong. Whether that survives contact with a Crown hearing is the open question.
+- A boy at the landing said the carrier's tone spoke *before dawn* and then the name *Vale* (Chapter 2), a voice in the market crowd repeated *it said before dawn* (Chapter 10), and on Day 3 a version of Tomas's spoken warning was already circulating at the landing with those words attached. Tomas has consistently entered it as a boy's account and a rumour. **Do not let it become evidence by repetition.**
+- **Who or what turns an official response into something that sounds like Kells-wide acceptance?** The schedule and the *answered in office* line are the first documents that make this a practice rather than a theory. **The mechanism remains unexposed.**
+- **What did Tomas's rope cut cost, and what account did the town accept?** The account is now public and in the watch book: the cut saved Wen Anner and ended the warning, and Tomas cannot prove what the tone would have done. Wen Anner has entered that he is angry at both. A Low Ward witness has entered the thin sound. The crowd was not satisfied, and the record survived.
+- **The low flood gate** is an unsolved maintenance failure. Its pawl slips, gravel packs behind the sill, the ring on Day 7 was late, and four houses took water. Whether anyone repairs it is a civic question the town has not yet asked.
 
-## Chapters 11–20 planned pressure
+## Chapters 21–30 planned pressure
 
-- Test the warning against ordinary promises and flood danger; the three-answer public signal must preserve disagreement.
-- Let Halden's seizure pressure and Oren's public judgment develop without executing the full workshop seizure or closing the Bellhouse.
-- Keep the rescheduled inspection as a seven-day deadline; do not confuse it with the original dawn.
-- Allow Tamsin and Nell to choose their own limited actions; neither becomes Tomas's representative or a magical relay.
-- Keep the route physical and the evidence public enough to challenge, but do not expose the later copied-answer source.
-- **The Unrung are named in the volume outline but have not appeared in prose.** They are local people who want every Crown-linked bell removed even if that removes the only public warning system. Introducing them now is available pressure against the three-answer test and is not a new canon rule.
+- Earn the reserved midpoint reversal — that the warning is a real planned operation, not an omen — **from the pages already in play**: the order that predates the sound, the route physically altered, the service ticket's *answered in office*, and the forty-one-household schedule. Do not introduce a document that explains itself, and do not name the higher official or the clapper.
+- Let the Day 10 custody hearing and the dawn inspection land in a way the town answers in several ways, while keeping the answer columns separate from the Crown's single response.
+- Do not execute the full Bellhouse closure, the archive fire, the arrests, or Tomas's departure. Those are Chapters 31–50.
+- Keep Tomas at the edge of Stage 1. Any further experiment must show preparation, uncertainty, a material or civic cost, and a limit.
 
 ## Series mystery threads
 
@@ -38,15 +39,16 @@ These are active promises after Volume 01, Batch 0001. They are not resolved mer
 - Where are the names transferred by the Crown's **name levy** physically sent?
 - What is the exact origin of the first Hearthline bell? The answer remains intentionally incomplete and is not a new threat.
 - How many Hushline settlements were erased, displaced, or absorbed into the Crown's route system?
-- The Hush of Kells is fixed at Reckoning 619, twelve years before the present. What record, if any, survives of who ordered the final severing?
+- The Hush of Kells is fixed at **Reckoning 619**, twelve years before the present. What record, if any, survives of who ordered the final severing?
 
 ## Relationship and character threads
 
-- Tomas must learn to ask Tamsin what she wants instead of deciding for her.
+- Tomas must keep asking rather than assigning. He has now said the old habit out loud and put it in the record, and Tamsin has said what yes costs her. The next test is whether he asks again under worse conditions.
+- Tamsin's hearing is worsening and she has begun watching bells instead of hearing them. She must never be rescued out of it, and she must never become the reason a route is trusted.
 - Mara must decide whether public truth can coexist with family privacy.
-- Oren must judge Tomas without turning grief into permanent punishment.
-- Sabin must teach consent as a craft rule, not only as a moral opinion.
-- Nell must choose whether a missing parent can be pursued through a fair network rather than a forced signal.
+- Oren must keep judging Tomas without turning grief into a permanent sentence, and without becoming a pardoner either. He has entered the thin sound and told Tomas he will not stop the seizure.
+- Sabin must keep teaching consent as a craft rule. He has refused the guild an opinion, and the guild knows his shop.
+- Nell must choose whether a missing parent can be pursued through a fair network rather than a forced signal, and she has begun keeping records in her own hand.
 - Tamsin and Tomas need repeated work together before romance can become a chosen partnership; no bell may make their relationship binding.
 
 ## Ending constraints

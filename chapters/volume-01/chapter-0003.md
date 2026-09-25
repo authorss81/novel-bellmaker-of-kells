@@ -194,7 +194,7 @@ At last he gave a short nod. “Bring the map to the watch house. I will compare
 
 “It is the truth I can offer today.”
 
-They returned to the watch house. Oren spread the lock register on a table while Tamsin laid out her route map. The authorized route for her handbell ran from the north gate to the river landing and then through the Low Ward. It was not permitted to repeat beyond the landing, where the signal could be taken up by the public flood bell. The map’s edge had been rubbed smooth from years of use.
+They returned to the watch house. Oren spread the lock register on a table while Tamsin laid out her route map. The authorized route for her handbell ran from the north gate, down through the Low Ward, to the river landing, and the low drain gate at the far end of it was the last thing the route touched. It was not permitted to repeat past that gate, where the signal could be taken up by the public flood bell. The map’s edge had been rubbed smooth from years of use.
 
 Tamsin pointed to the route. “The handbell has a Low Ward signal. It can repeat the route note, not add words. If it was altered to carry farther, the wear will show.”
 
