@@ -38,7 +38,7 @@ Foreman Crane had the market landing and was the only man in Kells who could clo
 
 He put his hands on the landing rail and looked out at the water.
 
-“Six days ago there was a Crown round at four in the morning and three children went out of this ward on the back of a page, and I carried a boy of nine onto a tailboard and I have not been right about it since. And on the seventh day I stood on this landing and asked this ward to be warned with one sound, and three men answered, and one of them refused, and I have been trying since then to work out what I would do if the next time came and I was the only man here who could shut a lane in an hour. And what I have worked out is that I would do it, and I would be right to do it, and it would be the worst mistake I have ever made, and I would not be the one who decided it. I would have been handed it.” He turned round. “So the answer is no to a warning, because the last warning in this ward was carried by a Crown clapper and I have still not worked out whose hand that was. The answer is yes to a road, because a road is a road.”
+“Six days ago there was a Crown round at four in the morning and three children went out of this ward on the back of a page, and I carried a boy of nine onto a tailboard and I have not been right about it since. And on the seventh day I stood on this landing and asked this ward to be warned with one sound, and three men answered, and one of them refused, and I have been trying since then to work out what I would do if the next time came and I was the only man here who could shut a lane in an hour. And what I have worked out is that I would do it, and I would be right to do it, and it would be the worst mistake I have ever made, and I would not be the one who decided it. I would have been handed it.” He turned round. “So the answer is no to a warning, because the last warning in this ward was carried by a clapper nobody in this ward put in, and I have still not worked out whose it was. The answer is yes to a road, because a road is a road.”
 
 ---
 
@@ -106,9 +106,9 @@ The household that was moving goods was at 91, in the upper ward, and Tomas had 
 
 He went up there at the eighth hour on the sixteenth and Marda Hodler was standing in her own lane with a rope tied round three sacks and a boy of four holding the end of the rope, and she was not ashamed and she was not sorry, and she told him before he asked, which he had learned to expect and which twice this week had been the only way anybody had told him anything true.
 
-“I am moving three sacks of linen, my mother’s, and two chests, into my sister’s at Fourmile, and I am going on Friday with the cart, and I have told four other houses I am going on Friday with the cart.”
+“I am moving three sacks of linen, my mother’s, and two chests, into my sister’s at Fourmile, and I am going on the nineteenth with the cart, and I have told four other houses I am going on the nineteenth with the cart.”
 
-“Why are you going on Friday?”
+“Why are you going on the nineteenth?”
 
 “Because a young man told me to.”
 
@@ -136,6 +136,6 @@ Marda Hodler looked at him for a while.
 
 And Marda Hodler said the thing that made the whole of the day worth its cost, which was:
 
-“Then I will wait until Friday. Not because I believe you. Because it costs me four days to wait and it costs me everything to be wrong.”
+“Then I will wait until the nineteenth. Not because I believe you. Because it costs me four days to wait and it costs me everything to be wrong.”
 
 She went back to her packing. Tomas went down the hill at the ninth hour and got about forty yards, and a Crown road hand came past him going up with a spade over his shoulder — the youngest of the gang, nineteen, Perry, with a satchel and a book — and she said, without stopping, that the trench was filling again and that the drain channel had gone soft on the ward side and that she was going to have to write about it, and he said, *write about it*, and she said, *I am, that is what I said*, and went up the hill to the Crown gang’s lodging with the only thing in this ward that was getting better.

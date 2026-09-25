@@ -114,7 +114,7 @@ They read it at the ward board at the fourth hour, in daylight, with about forty
 
 Mercy Slee read it. She read it standing up, in a clear voice, in the ordinary voice of a woman of about forty reading a notice in a lane, and when she came to the part about a witness and writing the answer down where the person who asked could see it, she stopped for a second, and said:
 
-“And I am the first. My house is the first, and I have asked to be, and the address is one hundred and nineteen, and you are all going to know that on Saturday, and I have said it here first so that nobody has to be brave later than I was.”
+“And I am the first. My house is the first, and I have asked to be, and the address is one hundred and nineteen, and you are all going to know that on the twenty-first, and I have said it here first so that nobody has to be brave later than I was.”
 
 Then Nell Fenn read the price underneath it, which she had written out in advance and had asked Mercy Slee to look at before the reading and which is the reason this is a notice and not a grievance, and a notice can be put back up.
 

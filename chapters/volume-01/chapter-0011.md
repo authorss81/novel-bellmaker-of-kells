@@ -118,7 +118,7 @@ Tamsin Rook came at the fifth hour with rain in her scarf and the recovered hand
 
 “So a true thing arrived false by being late and wide.”
 
-“A true thing arrived as something that was not theirs.” She glanced at the guard with the book. “And there is a version of your warning going round at the landing that ends with *before dawn*. You never said it there. A boy said it on Saturday and the wind took most of it, and now every woman on that quay believes a Crown bell named a time.”
+“A true thing arrived as something that was not theirs.” She glanced at the guard with the book. “And there is a version of your warning going round at the landing that ends with *before dawn*. You never said it there. A boy said it on the quay and the wind took most of it, and now every woman on that quay believes a Crown bell named a time.”
 
 “I wrote it down as what a boy said.”
 

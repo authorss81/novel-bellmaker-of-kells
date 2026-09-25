@@ -16,7 +16,7 @@ The door let in cold air and shut. One of the two remaining customers followed h
 
 “That,” Tomas said, “was not about bells.”
 
-“No. It was about Tuesday.”
+“No. It was about a market day.”
 
 “If you have come to ask whether the carrier is cursed, leave before I charge you for the question.”
 

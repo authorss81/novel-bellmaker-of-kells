@@ -72,7 +72,7 @@ That was where it broke, and it broke in the direction nobody in the ward had pr
 
 “Then put mine in,” somebody said from the middle of the floor.
 
-It was a woman nobody in the ward board had ever seen, and she was about sixty-five, and she was standing on her own with a shawl over her head, and Ferrow had to ask her twice for her name before she gave it.
+It was a woman nobody in the ward board had ever seen, and she was standing on her own with a shawl over her head, and Ferrow had to ask her twice for her name before she gave it.
 
 *Corris. House one hundred and thirty-three.*
 

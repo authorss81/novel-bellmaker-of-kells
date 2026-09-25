@@ -172,7 +172,7 @@ Tomas watched him put them into a chest and fasten it and there was nothing what
 
 By the time Tomas came back up the hill the porter’s boy had come back too, with a note from the chandler, and a second note from the miller’s boy who ran errands on the ferry road.
 
-The chandler’s note said that he was taking his bell work to a Miremarket house from Monday, that he was sorry, and that Tomas had done the man’s father’s clapper well enough that he would say so to anybody who asked him. The particular cruelty of the sentence was in the second half of it, and Tomas wrote the whole thing out longhand in the day-book because he was not going to be the man who paraphrased it.
+The chandler’s note said that he was taking his bell work to a Miremarket house from the start of next week, that he was sorry, and that Tomas had done the man’s father’s clapper well enough that he would say so to anybody who asked him. The particular cruelty of the sentence was in the second half of it, and Tomas wrote the whole thing out longhand in the day-book because he was not going to be the man who paraphrased it.
 
 The miller’s note said that the mark on the rim had not come off, and that the mark was now, if anything, more firmly on the rim, and that the bell was at a Miremarket house and the feast was on the eighth of next month, and that if the notice ever came off the girl might come back.
 

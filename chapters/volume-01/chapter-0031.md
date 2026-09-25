@@ -14,7 +14,7 @@ Tomas put the bread crust in his pocket and came down.
 
 ---
 
-The foreman was a heavy man of about fifty with a Crown issue spade and a Crown issue bar and forearms that had been forearms for thirty years, and his name was Brann, and he had signed for the cart at the low-turn culvert on a works order a fortnight old, and he was standing over the peg with his thumb on the cord and looking at the chalk the way a man looks at a thing he has been handed and does not own.
+The foreman was a heavy man with a Crown issue spade and a Crown issue bar and forearms that had been forearms for thirty years, and his name was Brann, and he had signed for the cart at the low-turn culvert on a works order a fortnight old, and he was standing over the peg with his thumb on the cord and looking at the chalk the way a man looks at a thing he has been handed and does not own.
 
 “You cannot peg there,” Tomas said.
 

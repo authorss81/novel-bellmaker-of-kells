@@ -172,7 +172,7 @@ Then, at a house on the far side of the ward that Nell had never had any reason 
 
 “I will ask the question,” he said, “and I will tell you now that I expect nothing, and I expect the answer to be nothing, and I will want it written down that I asked.”
 
-And at the fourth hour of the afternoon, at a house with a door number on a list that Oren Pike’s gate book held, the answer was this: a woman of about sixty read the question, went and found her husband, and came back and said that there was a name in the column, and that it was her elder sister’s, in her elder sister’s own hand, and that her elder sister had died in the spring, and that the household had never been marked and never had a child taken from it and does not appear on any of the forty-one lines that anybody has ever read out in a room.
+And at the fourth hour of the afternoon, at a house with a door number on a list that Oren Pike’s gate book held, the answer was this: a woman read the question, went and found her husband, and came back and said that there was a name in the column, and that it was her elder sister’s, in her elder sister’s own hand, and that her elder sister had died in the spring, and that the household had never been marked and never had a child taken from it and does not appear on any of the forty-one lines that anybody has ever read out in a room.
 
 “Do you know why your sister’s name is on a line for a house that was never visited?”
 

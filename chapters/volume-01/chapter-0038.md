@@ -34,7 +34,7 @@ And that was all of it. Two keepers, two hundred yards, a lane and a turning. It
 
 And at the eighth hour Siss Larke stopped him in the lane at the top of the ward with a rope round a box and her boy of fourteen behind her carrying the other end of the rope.
 
-“Vale. I have been packing since the second hour. I have got a box and I have got a boy and I have a sister at Fourmile, and I can send one of them on Saturday with the cart or I can send both and I cannot send both, and the woman at the washhouse says if the boy goes he does not come back, and my aunt at Fourmile says if the boy stays somebody comes for him, and I have been going round this ward for two days asking people what they think is going to happen and everybody has told me the same thing, which is that they do not know, and they are right, and it does me no good at all.”
+“Vale. I have been packing since the second hour. I have got a box and I have got a boy and I have a sister at Fourmile, and I can send one of them on the twentieth with the cart or I can send both and I cannot send both, and the woman at the washhouse says if the boy goes he does not come back, and my aunt at Fourmile says if the boy stays somebody comes for him, and I have been going round this ward for two days asking people what they think is going to happen and everybody has told me the same thing, which is that they do not know, and they are right, and it does me no good at all.”
 
 “Siss. I cannot tell you.”
 
@@ -42,13 +42,13 @@ And at the eighth hour Siss Larke stopped him in the lane at the top of the ward
 
 “Yes,” Tomas said. “There is a bar and a chain across the west road at the mill narrows and a man with a lamp, and if somebody in a Crown carriage does not like it, he can go over the bank, and I have written that down and the watch has it and three keepers said it, and it is a real bar on a real road and it is there tonight.”
 
-“Then what do I do with the box,” Siss Larke said, “because if the box is worth having it is worth having, and the boy is worth having, and I have one cart on Saturday and it is not a big one, and I have been standing in this lane for ten minutes asking a bellmaker who has been standing in this lane for nineteen days, and I am not blaming you, I am just telling you where I am standing.”
+“Then what do I do with the box,” Siss Larke said, “because if the box is worth having it is worth having, and the boy is worth having, and I have one cart on the twentieth and it is not a big one, and I have been standing in this lane for ten minutes asking a bellmaker who has been standing in this lane for nineteen days, and I am not blaming you, I am just telling you where I am standing.”
 
 And Tomas Vale stood in the rain in a lane with a woman and a box and had nothing whatever to offer her, and he told himself there was nobody in Kells he could go and ask, and he had told himself that on the fifteenth as well and it had not been true then either.
 
 Because a paper takes a day. A bell takes a moment. He had watched a paper work for nine days — he had watched Absalom Teage get two sentences written in a Crown clerk’s margin with three ordinary questions and a slate — and he had watched it take a whole morning, in daylight, in a building, with a witness, and it had been magnificent, and it could not do this. It could not do this by tonight.
 
-And he had two keepers and two hundred yards, and Cray’s two doors were on this side of the ward, and there was no keeper on the mill end, and no keeper on the ferry road, and no keeper in the market lane, and the mill end was full of wool carts because it was the Saturday tomorrow and the Saturday was market day in Kells, and about two hundred people would be standing in that market lane at the seventh hour tomorrow with stock on a barrow.
+And he had two keepers and two hundred yards, and Cray’s two doors were on this side of the ward, and there was no keeper on the mill end, and no keeper on the ferry road, and no keeper in the market lane, and the mill end was full of wool carts because it was market day tomorrow, and about two hundred people would be standing in that market lane at the seventh hour tomorrow with stock on a barrow.
 
 He went back up the hill and got the bell off the frame.
 
@@ -56,7 +56,7 @@ He went back up the hill and got the bell off the frame.
 
 He did not ask anybody. That is the sentence that has to be written first and in the plainest words available, and Tomas wrote it first, that night, in the day-book, and then never took it out and never softened it and never gave anybody a version of it that put anybody else in the room with him.
 
-*On the nineteenth day, at about the eighth hour of the evening, I took the bell off its frame in my own yard and carried it up the lane into the market lane, and I sounded it four times, and I did not ask. I did not ask the two keepers who had taken a duty. I did not ask the ward. I did not ask the woman whose box it was. I did not ask the man whose market it was, and I had been told his market was on the Saturday, and I went into it early on purpose.*
+*On the nineteenth day, at about the eighth hour of the evening, I took the bell off its frame in my own yard and carried it up the lane into the market lane, and I sounded it four times, and I did not ask. I did not ask the two keepers who had taken a duty. I did not ask the ward. I did not ask the woman whose box it was. I did not ask the man whose market it was, and I had been told his market was the twentieth, and I went into it early on purpose.*
 
 *Nineteen days of this month I have said, in a court and on a step and in a lane, that the whole of the craft is asking before the act, and I have written it down twice, and I heard Sabin Fell say it to me on a stool in the corner of his shop at first light this morning, and on the nineteenth day at the eighth hour of the evening I did the one thing I have spent this month learning not to do, and I did it in a rain, and I did it because a woman with a box stood in front of me and I could not bear it.*
 

@@ -186,7 +186,7 @@ Sore put the sheet back in his coat.
 
 He waited about as long as a man waits for an answer he has already decided he is not going to get.
 
-“I cannot tell you which that is either,” he said. “Not because I am being careful. Because a man in my position has been in this trade thirty-four years and I have never been able to tell the difference between the two in a document, and it took a Crown foreman of about fifty with a spade in a lane in the middle of this month to teach me that the difference is real and checkable and is in a book, and that a man can find out which one happened by going and looking at the ground with a bar and his own eyes.”
+“I cannot tell you which that is either,” he said. “Not because I am being careful. Because a man in my position has been in this trade thirty-four years and I have never been able to tell the difference between the two in a document, and it took a Crown foreman with a spade in a lane in the middle of this month to teach me that the difference is real and checkable and is in a book, and that a man can find out which one happened by going and looking at the ground with a bar and his own eyes.”
 
 He put his cap on.
 
