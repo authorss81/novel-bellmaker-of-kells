@@ -16,7 +16,11 @@ Two Crown porters stood beside a low handcart. The carrier rested upright in a w
 
 “Then it is late.”
 
+The porter shrugged it into his collar. The other man had been stamping his feet to get the cold out of them. “The low line stood under water at the ford. We came the long way round by the wool road and lost the light on the ridge.”
+
 Tomas looked at the sky. Rain had left the roof dark and the river wind smelled of mud and wet stone. He had no wish to argue with a man who had already decided that a delivery schedule was a moral virtue. He unlocked the yard gate and pointed toward the casting room. “Bring it slowly. The frame stays with it.”
+
+The casting room had held his own work since before the light. A flood bell the size of two cupped hands sat on a folded cloth where he had left it, its rim already trued, the file still beside it. He carried the bell out to the bench under the eaves and set it down in the damp. Nothing was ruined. It had simply stopped being first, and in a trade where the order of the bench was the only dignity a maker kept, that was a real loss.
 
 The fixed watch bell above the north gate gave one tired note as the cart entered. That was ordinary. The watchman had been striking the hour since before dawn, and the sound loosened grit from the old stonework. Tomas counted it without thinking, then stopped when the porter gave him a curious look.
 
@@ -40,13 +44,19 @@ The nearer porter’s hand had frozen on the cart handle. “Did you strike it?�
 
 “I know what was still.”
 
+He turned to the nearer porter without raising his voice. “Go and stand at the yard gate. If anyone asks, say the carrier is under Crown seal and that nobody is to touch it. Do not tell them it rang.”
+
+The porter looked at the empty crown as though it might close over him. “Will that hold?”
+
+“It will hold long enough for me to find out what I have.” Tomas drew the frame a hand’s width off the wet flags and dropped the iron pawl behind it. “It will also hold you, if anyone asks why a Crown man is standing in the rain guarding a bell that cannot.”
+
 Tomas looked at the fixed carrier. Its mouth was empty. A survey clapper should have hung inside the crown, a bronze tongue on a short iron axle. The inspection tag tied to the frame listed a clapper, but there was no clapper in the bell. The empty space above the lip looked deliberate, as if someone had reached inside and taken the part that made a bell announce itself.
 
 He did not touch the body. He put one hand on the mounting frame instead and felt the last vibration fade through the wood.
 
 “Get the reeve,” the porter said. “Get someone with a Crown seal.”
 
-“Get the clerk who delivered it,” Tomas said. “And bring the repair order.”
+“Get the surveyor who signs for it,” Tomas said. “And bring the repair order.”
 
 He was already moving. From the shelf beside the bench he took a clean sheet of oiled paper, a charcoal stub, and his smallest brass caliper. He measured the warp without shifting the carrier. Three-eighths at the lowest point. The crown strap was older than the frame. One rivet had been replaced with copper of a different color. A narrow scratch ran beneath the western lip, deep enough to catch a fingernail but not deep enough to explain the sound by itself.
 
@@ -64,7 +74,7 @@ A child-sized handprint marked the carrier’s lip.
 
 The wax was old enough to have dulled at the edges, but the palm and five small fingers were distinct. Someone had pressed a hand into soft wax before the carrier was mounted. The print was too small for an adult. Tomas thought of the children who ran errands through the north gate, the children in the Low Ward whose names seemed to vanish from one roll and appear on another, and immediately disliked the speed of his own thought.
 
-He opened the casting-room ledger and found the repair order. The Crown wanted the carrier checked, the lip corrected, and the route tested before midday. The order named the work but not the reason for the late delivery. Beneath it, in a different hand, someone had added: keep clear of the west road until the clerk arrives.
+He opened the casting-room ledger and found the repair order. The Crown wanted the carrier checked, the lip corrected, and the route tested before midday. The order named the work but not the reason for the late delivery. Beneath it, in a different hand, someone had added: keep clear of the west road until the surveyor arrives.
 
 The ink was fresh enough to smell faintly of soot.
 
@@ -94,13 +104,33 @@ Pever stepped closer. “The carrier is Crown property. It will be repaired here
 
 “It becomes one when Crown equipment is involved.”
 
+Pever’s glove rested on the frame strap. “The order came out of the survey store, not from me. I was told to certify a repair and send the carrier back sealed. I was not told what I would find.”
+
+“Who told you?”
+
+“Paper told me.” He took his hand off the strap. “You will find that an answerable sentence is rare in Crown work, Bellhouse. Thirty years in the trade and I stopped expecting one.”
+
 Tomas held the paper of measurements against the bench. The charcoal lines were steady. His hand was not. “Then you can record what you find in front of me. I will not give you private papers.”
 
 Pever’s gaze moved to the note beneath Tomas’s shirt. Tomas saw him notice and decide not to demand it. That was a useful kind of fear.
 
-They worked for an hour. Tomas demonstrated the warp, the loose crown strap, and the damaged coupling under the floor. Pever wrote measurements in a small red book and ordered the porter to leave the frame in the casting room. He wanted the carrier sealed there until an official mechanic could be sent from Sennet. Tomas agreed, with one condition: the frame would remain accessible while he documented every mark.
+They worked for an hour. Tomas demonstrated the warp, the loose crown strap, and the damaged coupling under the floor.
+
+Pever asked about the wax on the lip. “A handprint. Whose?”
+
+“I do not know yet. It is smaller than mine, and it is a child’s.”
+
+“Then it is not the maker’s mark.”
+
+“No. It is older than the mounting.” Tomas turned the page of notes so Pever could read the sequence. “The wax was pressed before the frame was ever strapped. Whoever left it was standing where you are standing, on a dry floor, without hurry. That is all I can say without a name.”
+
+Pever wrote nothing at all under that sentence. He wrote the dimensions instead.
+
+He took out a small red book, copied the figures into it, and ordered the porter to leave the frame in the casting room. He wanted the carrier sealed there until an official mechanic could be sent from Sennet. Tomas agreed, with one condition: the frame would remain accessible while he documented every mark.
 
 Pever stayed until noon, wrote out the measurements again in a fairer hand, and left. The carrier stood in the center of the casting room, still upright, still empty of a clapper. The warped lip caught the gray light. The child’s wax handprint faced the door.
+
+Tomas fetched the flood bell from under the eaves and set it back on the casting-room bench, on its folded cloth, beside a Crown frame that was not going anywhere before dawn. He could not trim the lip with the documentation laid out the way it was, and he would not carry his work out into the yard where the Crown could count it. The customer had promised payment before sunrise. Tomas wrote a short note and gave it to the boy who swept the yard: the bell would come on the following day, and the delay was not the customer’s fault. He underlined the second sentence twice, because it was the part he was least practiced at giving away for free.
 
 Tomas cleaned the tools, then stopped. He picked up the tuning hammer and tapped the frame twice, a habit his father had used to mark a thought before speaking. The carrier gave no answer. He did not know whether the route beneath the floor had carried a pulse into the bell or whether some other physical vibration had done it. The cut coupling was a possibility, not a conclusion.
 

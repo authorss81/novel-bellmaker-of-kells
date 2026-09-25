@@ -4,6 +4,20 @@ Sabin Fell’s repair shop stood behind the old wool market, where the street na
 
 Tomas found him at the back bench, filing a cracked clapper bell while three customers waited on a bench inside. The handbell’s note was ordinary work, not the fixed carrier’s warning, and the room had the same careful patience as a tuning bench. Sabin did not look up when Tomas entered.
 
+The woman in the good coat shifted forward on the bench. She had a fish-scale clapper cradled in a cloth and a ledger of her own, and she had been waiting long enough to have formed an opinion about the two men at the back.
+
+“Master Fell,” she said. “I have been half an hour.”
+
+“You have been twenty minutes, Mistress Callow, and you arrived at twenty past.”
+
+“I came at twenty past.” She stood, and did not sit again. “I will come back tomorrow, and I will tell the miller you are taking Crown work in your back room. He has a daughter’s bell to hang before the feast. He will ask you first, and then he will ask somebody else. That is all I came to say.”
+
+The door let in cold air and shut. One of the two remaining customers followed her out. Sabin kept his eyes on the file.
+
+“That,” Tomas said, “was not about bells.”
+
+“No. It was about Tuesday.”
+
 “If you have come to ask whether the carrier is cursed, leave before I charge you for the question.”
 
 “I have come to ask what a bell can carry.”
@@ -60,7 +74,7 @@ Tomas tapped the rim of the stool twice. “I want to know whether the warning i
 
 Sabin drew a line through the circles. “A bell does not verify the world. It carries a person’s willingness to answer for a claim. The person can be sincere and wrong. The person can be frightened and right. The person can be lied to by a record and still accept the lie because the record looks like law.”
 
-Tomas looked toward the shop door. The customers had gone quiet enough to hear their own breathing.
+Tomas looked toward the shop door. The last customer had gone quiet enough to hear their own breathing.
 
 “Then the carrier’s warning can be valid without being true.”
 
@@ -138,6 +152,32 @@ Tomas looked at the three circles. “How do I test the difference before I bind
 
 Sabin pulled a small tuning hammer from the drawer and placed it beside the paper. “You want to make a warning that is useful without making it a command. Start by refusing the second part.”
 
+“Show me the refusal test.”
+
+Sabin turned the paper around and pushed it across the bench. “All right. I am the witness. Ask me what I am willing to carry, and then write down what I actually say, and do not improve it.”
+
+Tomas drew a fresh line under the three circles. “The evidence is a Crown carrier that sounded with no clapper, and a posted inspection for the Low Ward. Will you carry that to the people who trade at the wool market?”
+
+“I will not,” Sabin said. “I will carry the evidence to four people I have taught, one at a time, on a day when I am not angry. If you wrote down that I would carry a warning to the market, you would be writing a man who is easier to command than I am.”
+
+Tomas wrote it. *Will not. Four, named, one at a time.* The sentence looked meaner on the page than it had in his head, which he suspected was the point.
+
+“Now ask me why.”
+
+“Sabin—”
+
+“You did not ask. You took the no and started planning around it.” Sabin’s voice was not loud. “That is how a keeper turns a person into a route. Ask.”
+
+“Why will you not carry it to the market?”
+
+Sabin looked at the file, and for a moment his hand was not steady. “Because the last time I was asked to carry something past the gate, I carried it, and it was enough for one house and not for the next.” He set the hammer down exactly square with the edge of the bench. “That is not an argument. It is a reason to go slowly.”
+
+Tomas waited for the rest of it. None came.
+
+“Sabin.”
+
+“You asked. I answered. Write that down and do not make it larger than it was.” He picked up the hammer again. “I have not told you what I carried or where it stopped. I have told you the shape of my refusal. That is the most I am giving you today, and I have already given you more than I meant to.”
+
 Tomas took the hammer. It was lighter than his father’s old hammer and balanced poorly. “You will help me?”
 
 “I will teach you the refusal test. I will not bind the carrier, and I will not put my name under your claim.”
@@ -162,7 +202,7 @@ Tomas set the hammer down. “I am.”
 
 Sabin closed his eyes briefly.
 
-Nell stepped farther into the shop. “The old man said you make bells that carry things people mean. My father went to answer a Crown notice. He never came back. If I give you his name, can you make the bell find him?”
+Nell stepped farther into the shop. “The old man said you make bells that carry things people mean. My father went to answer a Crown summons. He never came back. If I give you his name, can you make the bell find him?”
 
 Tomas looked at the damp paper in her hand. It was a copy of a child’s handprint, its lines traced in charcoal and its edges softened by rain.
 

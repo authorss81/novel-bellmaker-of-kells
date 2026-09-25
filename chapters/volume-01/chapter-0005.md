@@ -18,7 +18,7 @@ Tomas looked at the child-sized handprint again. The wax on the fixed carrier ha
 
 “Is Jory here?”
 
-“No. He was taken six days ago for a renewal check. My mother went to the public board to ask where the children were going. The watch said the notice meant they were being counted. Then Jory disappeared.”
+“No. He was taken six days ago for a renewal check. My mother went to the public board to ask where the children were going. The watch said the paper he was given meant they were being counted. Then Jory disappeared.”
 
 The man by the window stopped sharpening. “The child was at the notice board,” he said. “He was asking why the new roll had crossed out the Fenn line. He was not a number.”
 
@@ -26,13 +26,19 @@ Nell’s shoulders tightened. “They said he had no civic entry. They said his 
 
 Tomas looked at the copied print. “Your father?”
 
-“Edan Fenn. He went to answer the renewal notice five days ago. A clerk gave him a paper and told him to bring the family rolls. He said he would return before the market closed. He did not.”
+“Edan Fenn. He went to answer a renewal summons five days ago. A clerk gave him a paper and told him to bring the family rolls. He said he would return before the market closed. He did not.”
 
 The landlady stopped sorting buttons. “Edan made good rope. He did not run from debt. He ran toward trouble.”
 
 “Did anyone see where he went?”
 
 “The west road,” Nell said. “A Crown cart took him and two other men. They called it a work detail.”
+
+Tomas wrote the two intervals on the margin of his own paper before he asked anything else, because the order of questions was going to matter. Six days, and then five. The Low Ward rolls were recounted on a published round whether anyone wanted them or not, and a summons six days old belonged to the round before, not to anything new. That was ordinary. It was also the whole reason Nell’s mother was standing at a board with a clerk’s paper in her hand.
+
+“Is there a round to it?” he asked. “A date the households are given in advance?”
+
+“The board posts the round a week ahead of time,” said the lodger. He had stopped pretending to sharpen. “Mine came the month before, near enough the same week as theirs. Low Ward is not special, if you have stood at the court and listened to the clerk. Low Ward is just the part that washes.”
 
 Tomas asked for the record. Nell retrieved a folded sheet from beneath the bed. It was a fragment of a household register, damp at the corners and marked with a survey seal. The seal was pressed into the paper, not written beside it. A route number had been added in blue ink.
 
@@ -57,6 +63,14 @@ Nell’s eyes flashed. “You sound like the clerk.”
 “Which clerk?”
 
 “The one who says a thing is proper because it has a seal.”
+
+The landlady stopped sorting buttons and laid both hands flat on the table. “I keep the room above this one,” she said. “There was a woman in it the week before the round, asking the same question you are asking. She had a blue-ink line on her paper too. She went to look for her son and she has not come back, and I have kept her room because I could not think what else to do with it.”
+
+“What was her name?”
+
+“She gave it to me. I have not used it.” The landlady’s jaw worked. “That is the honest answer. I did not want to be a woman who repeats names.”
+
+Tomas wrote down the address of the room above and the fact that the woman had not returned. He did not write the name, because no one who had a right to it had asked him for it.
 
 Sabin’s words came back to Tomas: a record can make a lie look like law. He laid the fragment on the table. “I am not saying your family is not in danger. I am saying this paper is evidence of a process, not a complete account of what happened.”
 
@@ -112,9 +126,23 @@ Tomas felt the answer settle between them. It was not the answer he could give q
 
 “All right,” he said. “We start with the roll.”
 
-Nell gave him the date beneath the seal. It matched the date the market-court board carried under the L-4 heading, in the small line the loose corner nearly hid. Three days before the fixed carrier rang.
+“Will you ask her tonight?”
 
-Jory had been taken six days earlier and Edan five days earlier. This notice therefore could not be the beginning of their disappearances, though it might be part of the same process. Tomas copied the date onto the back of his hand instead of onto a sheet, because a date looked at too long begins to argue for itself.
+“She is at the laundry until the vats cool.” Nell turned the copied handprint over in her fingers. “She will say yes. She will say yes to anything that sounds like work. If I tell her a bellmaker is coming, she will agree before she knows what agreeing costs.”
+
+“That is a reason to ask her late. It is not a reason not to ask.”
+
+“I know. I have been managing my mother since I was eleven.” She said it without self-pity, the way a person states a repair performed too many times. “She thinks the answer is to be helpful to whoever is standing in front of her. It has worked. It is why she has nothing left to give the clerk next time.”
+
+Tomas looked at the fragment. The two clerk’s lines sat in the middle of it in the same unhurried hand, and nowhere on the sheet was there a line for what this family had been doing about it for a month.
+
+“Does she know another round is coming?”
+
+“She knows there is always another round.” Nell’s mouth twisted. “She says it the way people say it is raining. She has stopped expecting anything to be different about it, and I do not think she has noticed that she stopped bringing the children in.”
+
+Nell gave him the date beneath the seal. Three days before the fixed carrier rang. Tomas kept customers’ work by a day-book, and the count he made against it was arithmetic, not prophecy, and he could not argue with it.
+
+Jory had been taken six days earlier and Edan five days earlier. This paper therefore could not be the beginning of their disappearances, though it might be part of the same process. Tomas copied the date onto the back of his hand instead of onto a sheet, because a date looked at too long begins to argue for itself.
 
 Nell watched his hands. “You are not writing that it means something.”
 
@@ -143,6 +171,8 @@ Nell rose and tucked the copied handprint into her jacket. “If you find the pe
 She studied him for a moment. “That is not a promise to bring him home.”
 
 “No,” Tomas said. “It is a promise about what I will do with the evidence.”
+
+He had left his own ledger in the workshop, and the hours of the flood bell and the carrier were going to have to be written up tonight instead of in the time he had meant to spend on paying customers. He thought of the miller’s daughter and her bell before the feast, and of how quickly a Crown bell standing in a workshop became a reason for other people to decide about him.
 
 At the stairs, Nell stopped. “The watchman who erased Jory’s line had a brass key on his belt. It was longer than the keys they use for doors.”
 

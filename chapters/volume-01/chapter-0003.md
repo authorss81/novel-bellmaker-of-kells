@@ -352,7 +352,7 @@ The admission took some of the anger out of her. Not all of it.
 
 “Ask, then. I may still say no.”
 
-She unwrapped the cloth on the threshold, where the street and the casting-yard wall could both see it, and set the handbell on the bench. Tomas did not pick it up. He leaned over it and counted what a maker can count without touching: the flattened crown, the pale wear on one side of the handle, and the dark line of wax laid into the groove.
+She unwrapped the cloth on the top step, where the whole width of the lane could see it, and set the handbell down on the stone. Tomas stayed in the doorway and did not come down. He leaned over it from the threshold and counted what a maker can count without touching: the flattened crown, the pale wear on one side of the handle, and the dark line of wax laid into the groove.
 
 “The wax is over an older signal,” he said. “It was not cut into it. Whoever did this wanted the same note to travel further, not a different note.”
 
@@ -362,8 +362,8 @@ She unwrapped the cloth on the threshold, where the street and the casting-yard 
 
 “It is the one I have.”
 
-She wrapped the handbell again before she came the rest of the way inside. Tomas stepped aside. Tamsin entered the Bellhouse with the recovered handbell, the route map, and the boundary she had chosen. The fixed carrier stayed where it was, upright in its frame in the locked casting room.
+She wrapped the handbell again before she came the rest of the way up the steps. Tomas stepped aside to let her pass. Tamsin entered the Bellhouse with the recovered handbell, the route map, and the boundary she had chosen. The fixed carrier stayed where it was, upright in its frame in the locked casting room.
 
-Tamsin looked back once as she passed the threshold. “You do not get to turn my bell into a command because you are afraid of what happens if it stays silent.”
+She stopped with one hand on the doorframe and looked down the stair. “You do not get to turn my bell into a command because you are afraid of what happens if it stays silent.”
 
 “No,” Tomas said. “I am trying not to.”

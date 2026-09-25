@@ -6,7 +6,7 @@ Tomas is 32, still the practical third-generation bellmaker and keeper of the Va
 
 ## Tamsin Rook
 
-Tamsin is 29, a former Crown road-ringer and signal courier recovering from forced-resonance hearing damage. She has recovered her stolen handbell, which was altered with wax laid over an older signal so a Low Ward warning carries beyond its authorized route, and retains possession of it. She agreed to one supervised daylight comparison on the Bellhouse threshold and let Tomas read the wear without touching the bell; the formal watched comparison remains outstanding. She agrees to carry a written route record, not a warning or an authority. Her skepticism is grounded in having obeyed a route that lied; she is interested in Tomas's evidence but does not grant him control of her route.
+Tamsin is 29, a former Crown road-ringer and signal courier recovering from forced-resonance hearing damage. She has recovered her stolen handbell, which was altered with wax laid over an older signal so a Low Ward warning carries beyond its authorized route, and retains possession of it. She let Tomas read the wear **once, on the top step of the Bellhouse stair, in daylight and with no watch present** — a private, unwatched exchange, not the supervised comparison. The **watch-supervised comparison Oren arranged in Chapter 3 is still outstanding** and must be staged later rather than assumed done. She agrees to carry a written route record, not a warning or an authority. Her skepticism is grounded in having obeyed a route that lied; she is interested in Tomas's evidence but does not grant him control of her route.
 
 ## Oren Pike
 
@@ -14,11 +14,11 @@ Oren is 37, Kells watch captain and brother of Ewan Pike, who died after Tomas c
 
 ## Nell Fenn
 
-Nell is 16, a Low Ward apprentice who repairs small bells. Her younger brother Jory is eight and missing; her father Edan is also missing. She understands the trial handbell's claim, accepts only the limited duty of carrying its words to one neighboring household if that household asks, and refuses to let her answer represent the Fenn family or the Low Ward. She is a moral witness, not a keeper installed by Tomas and not a magically gifted child.
+Nell is 16, a Low Ward apprentice who repairs small bells. Her younger brother Jory is eight and missing; her father Edan is also missing. Jory and Edan answered the **previous renewal round**, six and five days before her Chapter 5 testimony, not the L-4 posting. She understands the trial handbell's claim, accepts only the limited duty of carrying its words to one neighboring household if that household asks, and refuses to let her answer represent the Fenn family or the Low Ward. She manages her mother, who would agree to anything that sounded like work, and she is aware of how that habit has been spent. She is a moral witness, not a keeper installed by Tomas and not a magically gifted child.
 
 ## Sabin Fell
 
-Sabin is 61 and Tomas's former master. He teaches the old consent mechanics and refusal test but refuses to explain the Hearthline's history, name the shape of a route failure beyond relay distortion, bind the carrier, or place his name under Tomas's claim. He carries his own unspoken guilt about the Hush and is a conditional mentor rather than a substitute father or institutional protector.
+Sabin is 61 and Tomas's former master. He teaches the old consent mechanics and demonstrates the refusal test on himself in Chapter 4, answering "I will not" and making Tomas write the refusal down verbatim rather than improving it. He still refuses to explain the Hearthline's history, name the shape of a route failure beyond relay distortion, bind the carrier, or place his name under Tomas's claim. He alludes to having once carried something past the gate where it reached one house and not the next, then refuses to say what or how far, so his Hush guilt is now **hinted on the page but still unnamed**. He is a conditional mentor, not a substitute father or institutional protector. His shop is not neutral ground: in Chapter 4 a customer walks out over Tomas taking up Sabin's bench, which is the first concrete evidence of the business cost.
 
 ## Halden Crake
 
@@ -30,7 +30,7 @@ Mara is Tomas's estranged sister, a Quiet Office copyist whose note is attribute
 
 ## Iven Sore
 
-Iven Sore is the living master of the Bellwrights' Measure and has not yet appeared in prose. His name appears on the Crown route docket in Chapter 8, where the local surveyor's service entry has been withdrawn and the surveyor is missing. Oren declines to confirm that the docket's name and the missing surveyor are the same person. Tomas wants a name to attach blame to and is not entitled to one yet.
+Iven Sore is the living master of the Bellwrights' Measure and has not yet appeared in prose. His name is on the Crown route docket and its service ticket in Chapter 8, naming the local surveyor whose service entry has been withdrawn. Oren reads the name out; Tomas asks whether it is the Bellwrights' Measure master and proposes that a clerk may be using the name, which Oren does not deny. So the open question is whether the name is **genuine or borrowed** — if genuine, the guild master and the missing surveyor are one man. Tomas wants a name to attach blame to and is not entitled to a conclusion yet. Keep him separate from **Pever** (the delivering Crown surveyor in Chapter 1) and from **Halden's still-unnamed inspection surveyor**, who is delayed on the north road and due at the rescheduled dawn.
 
 ## Relationship and civic movement
 

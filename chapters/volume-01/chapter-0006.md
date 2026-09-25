@@ -1,6 +1,6 @@
 # Chapter 0006 — The Order Before the Bell
 
-The notice on the public board had been pinned there for five days, but the rain had loosened one corner and the clerk had not thought to replace it. Tomas arrived at market court with Nell’s waxed copy of the household fragment in a packet and the fixed carrier’s measurements in another pocket. He had not brought the carrier. The casting-room door remained locked, and the route beneath the Bellhouse had been covered with a board weighted by an iron block.
+The notice was still on the public board, its lower corner lifted by the rain and never re-pinned, and nobody had thought to weigh it down. Tomas arrived at market court with Nell’s waxed copy of the household fragment in a packet and the fixed carrier’s measurements in another pocket. He had not brought the carrier. The casting-room door remained locked, and the route beneath the Bellhouse had been covered with a board weighted by an iron block.
 
 Deputy Reeve Halden Crake stood beneath the court’s tiled roof with two Crown officers and the same thin clerk from the landing office. The clerk held a short ledger against his chest. A knot had tied itself in the string of his seal case.
 
