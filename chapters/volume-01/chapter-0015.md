@@ -6,7 +6,7 @@ Deputy Reeve Crake had the Crown inventory order folded inside his coat when he 
 
 “Twenty-six things on those shelves,” Tomas said. “Six of them are not bells. Two are anvils that came with the building.”
 
-“Then you will not object to an inventory that counts twenty-six and corrects the figure.” Halden did not raise his voice. He never did. It was the first thing Oren had learned about him, three years ago, at a market day when a girl had fainted in the arcade and Halden had spoken to her at the same volume he used for a receipt. “The Measure filed a challenge against your licence yesterday. The commission’s position is that a workshop which has bound a claim of its own, on a line the Crown maintains, with a carrier that is a Crown object, is a workshop whose bells cannot be left in private hands while a hearing is pending.”
+“Then you will not object to an inventory that counts twenty-seven and corrects the figure.” Halden did not raise his voice. He never did. It was the first thing Oren had learned about him, three years ago, at a market day when a girl had fainted in the arcade and Halden had spoken to her at the same volume he used for a receipt. “The Measure filed a challenge against your licence yesterday. The commission’s position is that a workshop which has bound a claim of its own, on a line the Crown maintains, with a carrier that is a Crown object, is a workshop whose bells cannot be left in private hands while a hearing is pending.”
 
 “The carrier is not a Crown object in my hands. The carrier is in your watch store.”
 
@@ -32,7 +32,7 @@ Nobody looked at the closed casting-room door, which Oren noted, and wished some
 
 “Two: a small trial handbell, newly cast, bound to one narrow claim. It has one answer. It cannot carry a second claim until that duty is answered or deliberately unmade. It is named in the order. It is not going anywhere, and I will say more about it in a moment.”
 
-“Three: ordinary working bells on the shelves, which is twenty-six objects of which six are a figure of speech, including two anvils. Four: a courier handbell in somebody else’s keeping, which is not Crown inventory and is not on these shelves, and which I will come to as well.”
+“Three: ordinary working bells on the shelves, which is twenty-seven objects of which six are a figure of speech, including two anvils. Four: a courier handbell in somebody else’s keeping, which is not Crown inventory and is not on these shelves, and which I will come to as well.”
 
 He set the four headings on a fresh sheet on the bench, where the crowd could read them upside down.
 
@@ -40,7 +40,7 @@ He set the four headings on a fresh sheet on the bench, where the crowd could re
 
 “The working bells.”
 
-“All twenty-six?”
+“All twenty-seven?”
 
 “The connected ones.”
 
@@ -52,7 +52,7 @@ That was where Halden had to do work, and Oren watched him do it without any sat
 
 Oren entered it, and then set his own line under Halden’s, which was the part that mattered.
 
-“Twenty-six objects, of which eight are sealed by Crown wax for the term of the hearing. The eighteen remaining, including the millrace bridge bell, are recorded, not removed, and remain under the standing no-public-ringing order. Nothing in this inventory moves ownership. Nothing in this inventory makes a private answer into a public one, and I will read that sentence into the record at the hearing if the Crown asks me to.”
+“Twenty-seven objects, of which eight are sealed by Crown wax for the term of the hearing. The nineteen remaining, eighteen on the shelves and the millrace bridge bell on the north wall, are recorded, not removed, and remain under the standing no-public-ringing order. Nothing in this inventory moves ownership. Nothing in this inventory makes a private answer into a public one, and I will read that sentence into the record at the hearing if the Crown asks me to.”
 
 “I will ask him,” Halden said.
 

@@ -34,11 +34,11 @@ Jerm stopped her at the gate with a hand on the rail before she could take the b
 
 “No.”
 
-“No. Write it down. I am not going to pretend a measurement I made by breaking my own rule is something else, and I am not going to be the courier who calls a thing a rule when it is an excuse.”
+“No. Write it down. I will not pretend a measurement I made by breaking my own rule is something else, and I will not be the courier who calls a thing a rule when it is an excuse.”
 
 He wrote it in the watch book, and she initialled it, and the entry reads: *one ring outside the route, at the instance of the keeper, against her own written rule of the ninth day, entered as an exception and not as a precedent, at her insistence.*
 
-They did it. The word was six days old by then and the route had been walked four times since it was set, and it did not take long.
+They did it. The word was four days old by then and it did not take long.
 
 Here is the slate.
 
@@ -102,7 +102,7 @@ He came down the towpath at the fourth hour and she was still there, sitting on 
 
 “That is not fair.”
 
-“No,” Tamsin said. “It is not fair and I am not going to be fair. I am going to be exact. Ask me properly and I will answer you properly and you will get a real answer, and I would rather you got a real answer at two in the morning than that I had been kind to you at four.”
+“No,” Tamsin said. “It is not fair and I will not be fair. I am going to be exact. Ask me properly and I will answer you properly and you will get a real answer, and I would rather you got a real answer at two in the morning than that I had been kind to you at four.”
 
 He looked at the water going out through the gate for a while.
 
@@ -112,7 +112,7 @@ He looked at the water going out through the gate for a while.
 
 “Go on.”
 
-“One: my hearing is worse than I have told anybody in this town except you, and the note is gone, and I cannot carry, and I am not going to be able to carry again, and I have been a courier for eleven years.” She said it without any particular weight, the way a person says the price of a thing they have already accepted. “Two: I have had no paid run this week and I have turned down two, and the ferry company has written to say the ferry notice may not be carried on a bell described in a Crown notice, which is correct, and which means the towpath pays me nothing, and it paid me nine coppers a month, and that is not a large sum and it is the difference between a week that is hard and a week that is a different kind of hard. And I am not going to look for other work with the bell. Not because of the Crown. Because of the thinned edge.”
+“One: my hearing is worse than I have told anybody in this town except you, and the note is gone, and I cannot carry, and I will not be able to carry again, and I have been a courier for eleven years.” She said it without any particular weight, the way a person says the price of a thing they have already accepted. “Two: I have had no paid run this week and I have turned down two, and the ferry company has written to say the ferry notice may not be carried on a bell described in a Crown notice, which is correct, and which means the towpath pays me nothing, and it paid me nine coppers a month, and that is not a large sum and it is the difference between a week that is hard and a week that is a different kind of hard. And I am not going to look for other work with the bell. Not because of the Crown. Because of the thinned edge.”
 
 “And three?”
 

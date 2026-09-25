@@ -26,7 +26,7 @@ The woman looked at her as if the question were in a foreign language. Then she 
 
 She went to the watch house at the ninth hour.
 
-Jerm had the account of the four strokes written in his square hand, with the time, and beside each stroke the words that had been spoken, and he had written them in the order they had been spoken, which was more than she had expected from a gate watchman.
+Jerm had the account of the four strokes written in his square hand, with the time, and beside each of the three counted answers the words that had been spoken, and he had written them in the order they had been spoken, which was more than she had expected from a gate watchman.
 
 “Oren wants the slips,” Jerm said. “Not to keep. For the hearing file. He says a Crown clerk’s man came at sixth hour and asked for the three as one packet, and Oren said no, and the man said the packet is how it is filed, and Oren said then it can be filed as three, and the man said he did not have authority to say no on that, and Oren said that was the first honest thing anybody had said to him in a week.”
 

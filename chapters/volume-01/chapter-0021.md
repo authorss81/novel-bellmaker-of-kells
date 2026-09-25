@@ -32,7 +32,7 @@ Oren opened his ledger.
 
 Crake’s clerk reached for the ink. The black-case man had already got his own out.
 
-“First.” Oren turned to the court. “The commission asserts that the market court’s call bell is a connected route. It is not. It is unbound iron, a leather-wrapped handle, a striker on a thong, a rope, no wire under it and no groove in its crown and no wax in it. Watchman Jerm inspected it on the sixth day in the loft, under the bell, and at the beam, and his inspection is in the watch book and in the watch archive. The court’s own usher is its keeper and has said so in open court. The bell counted three answers on the eighth day, including one refusal, and a count is not a line.”
+“First.” Oren turned to the court. “The commission asserts that the market court’s call bell is a connected route. It is not. It is unbound iron, a leather-wrapped handle, a striker on a thong, a rope, no wire under it and no groove in its crown and no wax in it. Watchman Jerm inspected it on the eighth day, at the court’s own request, in the loft, under the bell, and at the beam, and his inspection is in the watch book and in the watch archive. The court’s own usher is its keeper and has said so in open court. The bell counted three answers on the eighth day, including one refusal, and a count is not a line.”
 
 “Entered,” the black-case man said, writing.
 

@@ -156,7 +156,7 @@ Gib Hask came at the eleventh hour with two men behind him, one of whom was carr
 
 Nobody had an answer to that and nobody pretended to.
 
-“I am not asking for the paper to come down,” Hask said. “Take it down if you like. I want the ground. I have wanted the ground since the second day and I have said so in three rooms. I am not going to stop saying it, and I am not going to pretend that I would not put a bar in the ground if the Crown came with a bar, and I would like that written down in your book in my words, because it is true and it will be true, and if I ever do it I would like there to be a paper that says I said so first.”
+“I am not asking for the paper to come down,” Hask said. “Take it down if you like. I want the ground. I have wanted the ground since the second day and I have said so in three rooms. I will not stop saying it, and I am not going to pretend that I would not put a bar in the ground if the Crown came with a bar, and I would like that written down in your book in my words, because it is true and it will be true, and if I ever do it I would like there to be a paper that says I said so first.”
 
 “Write it,” Oren said, to Jerm, “in his words, and read it back to him, and I will sign it.”
 
@@ -198,4 +198,4 @@ Then Tamsin said, “Vale. You have not got a bell. You have got a page, and a p
 
 “And the millrace bell is on their list,” said Oren.
 
-“The millrace bell is on their list and I cannot help you with it and you know why,” Tamsin said, “and I am not going to pretend that the towpath is a resource I have left. That was yesterday. Tell me what you are going to publish next, and I will tell you whether I will put my name to it.”
+“The millrace bell is on their list and I cannot help you with it and you know why,” Tamsin said, “and I am not going to pretend the towpath is a resource I have left. That was yesterday. Tell me what you are going to publish next, and I will tell you whether I will put my name to it.”

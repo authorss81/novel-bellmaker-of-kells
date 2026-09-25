@@ -44,7 +44,7 @@ The form was competently drawn. It had a box for the article, a box for the numb
 
 Tomas read it three times. Then he read the second copy, which was identical, and then he gave it back and asked for a pen.
 
-“I will sign for the article,” he said. “I have got no standing to say it did not go, and it went in front of a hundred and forty people, and I am not going to have this form say anything else. I want the description box altered.”
+“I will sign for the article,” he said. “I have got no standing to say it did not go, and it went in front of a hundred and forty people, and I will not have this form say anything else. I want the description box altered.”
 
 “By whom?”
 
@@ -108,7 +108,7 @@ Nell did not move at all. Behind her, a woman was beating a mat on the step of t
 
 “You put it in writing before you asked me,” she said, “and I want you to hear that sentence, because it is the sentence, and I have been hearing a version of it for ten days in a different voice.”
 
-“You are right. I did not ask you. I had nine hours of light left and I used forty minutes and a form, because the form was in front of me and you were four streets away, and I decided it was more important that the record be complete than that you be asked. That is the whole of it. I am not going to soften it and I am not going to explain it twice.”
+“You are right. I did not ask you. I had nine hours of light left and I used forty minutes and a form, because the form was in front of me and you were four streets away, and I decided it was more important that the record be complete than that you be asked. That is the whole of it. I will not soften it and I will not explain it twice.”
 
 “Was it the right thing to do?”
 
@@ -156,7 +156,7 @@ They stood at the gate.
 
 “He has a challenge outstanding that I have satisfied and not discharged.”
 
-“Then he may discharge it for you,” Sabin said, “and he will want a room and a witness and a day, and he will not want a crowd, and when he asks for one you will give it to him without asking him why. That is the whole of what I have come to say. The rest of it is that I am sixty-one and I have buried a wife and a son-in-law and I am not going to watch a boy of thirty-two learn the lesson from me.”
+“Then he may discharge it for you,” Sabin said, “and he will want a room and a witness and a day, and he will not want a crowd, and when he asks for one you will give it to him without asking him why. That is the whole of what I have come to say. The rest of it is that I am sixty-one and I have buried a wife and a son-in-law and I will not watch a boy of thirty-two learn the lesson from me.”
 
 He went down the hill. Tomas stood at the gate and listened to him go, and then went back into the yard and did not sweep around the rectangle again, which he noticed, and did not examine.
 

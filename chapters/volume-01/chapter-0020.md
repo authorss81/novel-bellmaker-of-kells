@@ -1,6 +1,6 @@
 # Chapter 0020 — The Hearing Before the Hearing
 
-The notice on the market court board had been up for nine hours, and by the time the light went the town had decided what it thought of it, which was that the Crown was going to take the bell, and that this time the taking would be lawful, and that the question worth arguing about was not the law but whether a bell that could be sounded in the court with a man saying no in it was worth keeping at all.
+The notice on the market court board had been up since the eleventh hour, and by the time the light went the town had decided what it thought of it, which was that the Crown was going to take the bell, and that this time the taking would be lawful, and that the question worth arguing about was not the law but whether a bell that could be sounded in the court with a man saying no in it was worth keeping at all.
 
 Tomas spent the evening on the ground floor of the watch house, because that was where the paper was.
 
@@ -122,7 +122,7 @@ He opened the drawer at the end of the table, and took out the L-4 file.
 
 “Captain,” he said. “That is Crown property under a joint receipt and you have just opened it in a room with a Crown copyist in it.”
 
-“The receipt covers the carrier. The file is the Crown’s paper and the Crown gave me a copy of the docket and I have kept the rest because somebody was always going to ask me where the file was, and the honest answer is that it was in a drawer in my own watch house where I could read it.” He set the file on the table. “You are entitled to look at anything in this room, in front of the clerk, and the clerk will write down what you saw. I am not going to do it quietly and I am not going to pretend to be a thief about it.”
+“The receipt covers the carrier. The file is the Crown’s paper and the Crown gave me a copy of the docket and I have kept the rest because somebody was always going to ask me where the file was, and the honest answer is that it was in a drawer in my own watch house where I could read it.” He set the file on the table. “You are entitled to look at anything in this room, in front of the clerk, and the clerk will write down what you saw. I am not doing it quietly, and I am not going to pretend to be a thief about it.”
 
 There were six sheets in it.
 
@@ -166,7 +166,7 @@ Tomas had put his hand flat on the table again, not touching it, and he was awar
 
 “Which two,” said the clerk.
 
-“I do not know. The page does not say, and I am not going to supply the two, because if I supply them and I am wrong then I have put a name in a court book that a Crown clerk can read out, and if I am right then I have told the Crown which two of them to go and find.”
+“I do not know. The page does not say, and I will not supply the two, because if I supply them and I am wrong then I have put a name in a court book that a Crown clerk can read out, and if I am right then I have told the Crown which two of them to go and find.”
 
 “That is the correct answer and it took you nine days,” the clerk said, and wrote it down as *two persons marked accompanying, unidentified on the page*.
 

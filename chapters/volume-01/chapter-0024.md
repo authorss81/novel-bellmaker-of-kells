@@ -26,7 +26,7 @@ Cask put his cap down at last.
 
 Oren wrote it down. He wrote it exactly, in Cask’s words, without softening and without the word *inattention* that he had been about to use.
 
-Then he said, “That is the whole of what you have done and it is going in the book with your name on it, and I am not going to put the word *failed* in it either, because the moment I put a judgment in that book about either of you it stops being a record and becomes a disposition, and a disposition can be read back to you in a year by a man who was not here.”
+Then he said, “That is the whole of what you have done and it is going in the book with your name on it, and I will not put the word *failed* in it either, because the moment I put a judgment in that book about either of you it stops being a record and becomes a disposition, and a disposition can be read back to you in a year by a man who was not here.”
 
 Ardle said, “Captain, we did a lawful thing and three children went. That is what the book is going to say when it is read out. Would you rather it said something else?”
 
@@ -79,7 +79,7 @@ Jerm said, “Entry fifteen. I wrote that. The woman on the tailboard, not on th
 
 Oren looked at him for a moment.
 
-“That is a right thing to ask for and I am going to do it, and I want you to understand what it costs and I am not going to explain it away. If I name Ardle and Cask as men who carried out a lawful order, and I name you as the man who would not write a mark, then in ten years there are three names in a book and no way to tell a reader which of them I thought was right. And I do not know which of them I thought was right, and I have not got the standing to decide, and the best I can do is write the order each man was given and the thing each man did about it, and let the order stand in the front of the page where anybody can find it.”
+“That is a right thing to ask for and I am going to do it, and I want you to understand what it costs and I will not explain it away. If I name Ardle and Cask as men who carried out a lawful order, and I name you as the man who would not write a mark, then in ten years there are three names in a book and no way to tell a reader which of them I thought was right. And I do not know which of them I thought was right, and I have not got the standing to decide, and the best I can do is write the order each man was given and the thing each man did about it, and let the order stand in the front of the page where anybody can find it.”
 
 “Do that,” Jerm said, “and I will hold the pen while you do it.”
 

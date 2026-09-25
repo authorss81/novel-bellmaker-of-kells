@@ -88,7 +88,7 @@ Mercy Slee had a boy of nine and had been up since four, and she came to the doo
 
 “Did they take anything or anyone from this house?”
 
-“No.” Mercy Slee’s face did not move. “But I have a boy of nine who is not on their paper, because I have never been on their paper, and they are going to come back for him, and they are going to come back for him on a day when I am at the washhouse, and I have worked that out, and I am not going to be standing in a doorway saying I never saw it. That is my whole position and I am not giving it to you because you are sixteen and you have a slate.”
+“No.” Mercy Slee’s face did not move. “But I have a boy of nine who is not on their paper, because I have never been on their paper, and they are going to come back for him, and they are going to come back for him on a day when I am at the washhouse, and I have worked that out, and I will not be standing in a doorway saying I never saw it. That is my whole position and I am not giving it to you because you are sixteen and you have a slate.”
 
 “I am not asking what you think happened. I am asking what happened at your door.”
 
@@ -122,7 +122,7 @@ She went at half past one and knocked twice and said her name and asked for the 
 
 He was younger than she had expected and he had ink to the second knuckle. He looked at the closed door behind her and then at the paper in her hand and then at her, and she saw him decide to be afraid and not to run, which is a thing people do sometimes.
 
-“I have one question,” she said. “I am going to ask it and you are going to answer it in whatever words are true, and I am going to write down what you say, and I am not going to write down your name unless you ask me to. If you would rather I went away, say so now and I will go away and I will not come back.”
+“I have one question,” she said. “I am going to ask it and you are going to answer it in whatever words are true, and I am going to write down what you say, and your name goes down only if you ask me to. If you would rather I went away, say so now and I will go away and I will not come back.”
 
 Stroud put his pen down.
 

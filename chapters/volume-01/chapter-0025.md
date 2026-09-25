@@ -36,7 +36,7 @@ Ferrow looked at the paper and not at her. “There is a ruling.”
 
 “You have not looked under the ruling since.”
 
-“I have looked under the ruling twice,” Ferrow said, “and it has not changed, and I am not going to put my hand on it in daylight, and I would be obliged if you would not ask me to, because the Crown man who wants the L-4 papers spoke to me yesterday for four minutes about nothing at all, and a man who talks to you for four minutes about nothing is a man who has written down what time you came into the room.”
+“I have looked under the ruling twice,” Ferrow said, “and it has not changed, and I will not put my hand on it in daylight, and I would be obliged if you would not ask me to, because the Crown man who wants the L-4 papers spoke to me yesterday for four minutes about nothing at all, and a man who talks to you for four minutes about nothing is a man who has written down what time you came into the room.”
 
 Tamsin thanked him and left him alone, on purpose, because Ferrow had been helpful in public twice in eleven days and could not afford a third.
 
@@ -48,7 +48,7 @@ Oren had the file open on the long table. Jerm was at the end of it with a book.
 
 “Surveyor,” Oren said.
 
-“Not today. I cannot hear you and I am not going to pretend.” Tamsin put the slate down flat. “I want to read four papers and I want to say one thing out loud at the end, and I am going to be slow. Captain, will you let me do it here rather than in the court where I cannot work.”
+“Not today. I cannot hear you and I will not pretend I can.” Tamsin put the slate down flat. “I want to read four papers and I want to say one thing out loud at the end, and I am going to be slow. Captain, will you let me do it here rather than in the court where I cannot work.”
 
 “Sit down, then,” Oren said, “and Jerm will read anything you want read twice.”
 
@@ -98,7 +98,7 @@ Jerm turned the sheet. *OFF. 411.*
 
 “Date of the trailing line?”
 
-Tamsin had not looked at it yet. She had been working down the first field of every line for a quarter of an hour, a house number at a time, and she had stopped at the fortieth without noticing that she had stopped, because a reader reads a table to the ruling and she had been doing the same thing the whole time and had been furious with herself for the last two hundredths of an hour.
+Tamsin had not looked at it yet. She had been working down the first field of every line for a quarter of an hour, a house number at a time, and she had stopped at the fortieth without noticing that she had stopped, because a reader reads a table to the ruling and she had been doing the same thing the whole time and had been furious with herself for the minute or so she had stood there.
 
 “Look at the row under the ruling,” she said.
 
@@ -138,7 +138,7 @@ She put the charcoal down and sat back and did not say the next part for a while
 
 She tapped the date.
 
-“So somebody in office four hundred and eleven accepted a duty, on the twenty-second day before, about a thing that had not been written down. They wrote it in the place where duties go, in the ordinary form, in the ordinary hand, in the ordinary week, the way forty-one other people in this ward were entered in the same column in the same week without being asked.” She looked up. “And the bell rang on the first day, and it carried that, because a duty accepted is a duty accepted. It was not prophecy. It was filing.”
+“So somebody in office four hundred and eleven accepted a duty, on the ninth day before, about a thing that had not been written down. They wrote it in the place where duties go, in the ordinary form, in the ordinary hand, in the ordinary week, the way forty-one other people in this ward were entered in the same column in the same week without being asked.” She looked up. “And the bell rang on the first day, and it carried that, because a duty accepted is a duty accepted. It was not prophecy. It was filing.”
 
 The long table was extremely quiet. Jerm’s pen was on the paper and had not moved.
 
@@ -178,7 +178,7 @@ Tomas had been standing in exactly the same place for eleven minutes, and now he
 
 “You have not answered the question of how a date six days early becomes a sound,” Oren said.
 
-“No,” Tamsin said. “I have answered the question you asked. I have not answered the question you want, and I am not going to try to, because I have spent eight months believing my bell had been tampered with by a person and it turned out that a person had tampered with a *form*, and the difference between the two is exactly the difference between a thief and a department, and I do not know how a department gets into a bell and I have thought about it for six hours and the honest answer is that I do not know.”
+“No,” Tamsin said. “I have answered the question you asked. I have not answered the question you want, and I will not try to, because I have spent eight months believing my bell had been tampered with by a person and it turned out that a person had tampered with a *form*, and the difference between the two is exactly the difference between a thief and a department, and I do not know how a department gets into a bell and I have thought about it for six hours and the honest answer is that I do not know.”
 
 Tomas laughed, or made a sound in the vicinity of a laugh.
 

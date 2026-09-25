@@ -1,12 +1,12 @@
 # Chapter 0027 — The Surveyor Who Will Not Sign
 
-Rhea Collis spent the whole of the twelfth day in the survey store, because a surveyor’s return is written where the survey was made and because the survey store on this street had a table in it that a person could sit at for nine hours without being interrupted, which was the finest thing about Crown property he had ever come across.
+Rhea Collis spent the whole of the twelfth day in the survey store, because a surveyor’s return is written where the survey was made and because the survey store on this street had a table in it that a person could sit at for a working day without being interrupted, which was the finest thing about Crown property he had ever come across.
 
 He came in at the sixth hour of the afternoon with a sheet in his hand and stood at the end of the table for a while without saying anything, and she let him stand there, and neither of them pretended that he was not there.
 
 The shelves behind her were bare. She had watched them empty on the tenth day — a clerk and two porters, twenty minutes, a chest, a fastening — and she had said nothing to them then, and she said now, without looking up:
 
-“They have taken everything with L-4 in the heading. I asked for the list of what was collected and they gave me a list. There is no reason a collector may not take the office duplicates, and I am not going to pretend there is, and I will tell you what is left.” She turned her head. “Two bundles of returns from before your time with no route in the heading, a roll of wire, a broken theodolite case, and about four hundred blank forms of four different kinds.”
+“They have taken everything with L-4 in the heading. I asked for the list of what was collected and they gave me a list. There is no reason a collector may not take the office duplicates, and there is no reason to pretend there is, and I will tell you what is left.” She turned her head. “Two bundles of returns from before your time with no route in the heading, a roll of wire, a broken theodolite case, and about four hundred blank forms of four different kinds.”
 
 “Blank.”
 
@@ -52,7 +52,7 @@ She set the pen down.
 
 “Then the next one has a bad surveyor’s case.”
 
-“The next one has a bad round,” Collis said. “Do you see the shape of it? You are asking me to spend a thing I have, to stop somebody spending a thing they have not got yet. I will do it. I am going to do it, because I stood in a lane on the tenth day and watched a boy of nine get onto a wagon in his shoes and I have not been able to put anything else in my report and I have written four drafts of it. But I would like it entered, in a document, that I was asked what it would cost and I answered.”
+“The next one has a bad round,” Collis said. “Do you see the shape of it? You are asking me to spend a thing I have, to stop somebody spending a thing they have not got yet. I will do it, because I stood in a lane on the tenth day and watched a boy of nine get onto a wagon in his shoes and I have not been able to put anything else in my report and I have written four drafts of it. But I would like it entered, in a document, that I was asked what it would cost and I answered.”
 
 “Enter it,” Tomas said.
 

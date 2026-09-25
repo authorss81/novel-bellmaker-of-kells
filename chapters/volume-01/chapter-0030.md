@@ -2,7 +2,7 @@
 
 The Crown answered the ward’s publication before the eighth hour of the morning, and it answered it the way it answered the water, which was to come in on a level where nobody could say it had been ordered.
 
-Two of the three notices nailed on the board the previous evening were still up, sun-bleached by nine hours and readable. The round of renewal upon route L-4 is revised and **posted for the twenty-first day**, with the form to be exhibited in full and any person admitted as a witness. The practice published upon the ward board and read at the market court **originated in the Vale Bellhouse** and is not the act of the market court, the watch or the ward, and the commission will consider the standing of an originating workshop.
+Two of the three notices nailed on the board the previous evening were still up, sun-bleached by twelve hours and readable. The round of renewal upon route L-4 is revised and **posted for the twenty-first day**, with the form to be exhibited in full and any person admitted as a witness. The practice published upon the ward board and read at the market court **originated in the Vale Bellhouse** and is not the act of the market court, the watch or the ward, and the commission will consider the standing of an originating workshop.
 
 A third notice went up an hour ago, and it was the only one that was new, and it was the shortest thing the commission had ever nailed to that board:
 
@@ -50,7 +50,7 @@ The first was the ward’s existing one, and it was stated by Mercy Slee, and it
 
 The second was stated by Ivo Prentice of the ferry road, who had a sheet of paper in his own hand, and who was not a fool and who could not be treated as one.
 
-“The cart has been across the culvert a fortnight,” he said. “The works order is a Crown order and the frames have not been stood and the reeve’s men have not come, and the road is going to be a hole before the frost, and I have written to Fourmile and I have had no answer at all. We have asked the Crown for a line. Do you know what a line does? A line means an order, and an order means a cart comes. That is the whole of what I want, and I am not going to stand here and be ashamed of it in front of eleven witnesses, because the ward has a page and three questions and a copper wire under it that nobody laid by consent, and a page has never moved a single stone.”
+“The cart has been across the culvert a fortnight,” he said. “The works order is a Crown order and the frames have not been stood and the reeve’s men have not come, and the road is going to be a hole before the frost, and I have written to Fourmile and I have had no answer at all. We have asked the Crown for a line. Do you know what a line does? A line means an order, and an order means a cart comes. That is the whole of what I want, and I will not be ashamed of it in front of eleven witnesses, because the ward has a page and three questions and a copper wire under it that nobody laid by consent, and a page has never moved a single stone.”
 
 “And it will be a Crown line,” Oren said, “and a Crown line comes with a Crown keeper, and the Crown keeper will be a Crown keeper, and in a year that line will be somewhere in a file with your house on it and a column called *response* and nobody in your house in the room.”
 
@@ -84,9 +84,9 @@ It came up at the third hour, when a man at the back asked whether the ward shou
 
 The Crown’s filing clerk was in the room the whole time.
 
-It was Ansel Stroud, who had sat at a folding table under the arcade the day before and let a carter make him write two sentences in a margin, and who had spent the evening after that writing a letter to his office that he did not send, and who was here in his other capacity, as the man who had discovered on the tenth day that the form was the problem.
+It was Ansel Stroud, who had sat at a folding table under the arcade the day before and let a carter make him write two sentences in a margin, and who had spent the evening after that writing a letter to his office that he did not send, and who was here in his other capacity, as the man who had discovered on the ninth day that the form was the problem.
 
-He had a case and a pencil and he was, Tomas understood by the fourth hour, a man in genuine difficulty who had been handed a form with one response column on it, and who had discovered in a lamplit watch house four nights earlier that the form was the problem.
+He had a case and a pencil and he was, Tomas understood by the fourth hour, a man in genuine difficulty who had been handed a form with one response column on it, and who had found that out for himself in a lamplit watch house five nights earlier.
 
 At the seventh hour, when Oren asked the room to state the ward’s answer to the commission — a thing nobody had asked for, and Oren had insisted on it — the clerk stood up and asked, quite quietly, whether he might file it.
 
@@ -136,11 +136,11 @@ The wheelwright came up the lane with a handcart and no bell, which in three vis
 
 It was the counter bell. It was the bell that had stood on the filing leg from the third hour of the third day and gone back into his cart untuned because it was hung a quarter inch long and its note beat against itself, and because a bell with a live claim in it had been standing four feet away under a cloth and a man could not dress metal with a live thing in the room.
 
-“Right,” the wheelwright said. “It is eleven days late and I have wanted to shout at you about it and I am not going to. I am going to say one thing and then I am going to leave the bell.”
+“Right,” the wheelwright said. “It is eleven days late and I have wanted to shout at you about it and I will not. I am going to say one thing and then I am going to leave the bell.”
 
 “Say it.”
 
-“I have had three offers for this. One of them is in Miremarket and he is dearer and quicker than you and I have told him no, and I told him no because a man whose whole trade is taken off him by a Crown officer is not going to be still in business in three years, and I would rather have a debt than a stranger.” He put his hand flat on the bench. “So I am not going to shout. Bring it when it is ready. I will pay the same price and I will pay it this month, and if you have to tell me it is another month, then tell me that, and I will come back next month, and I am not going to be one of the men who goes to Miremarket and says the Crown did it.”
+“I have had three offers for this. One of them is in Miremarket and he is dearer and quicker than you and I have told him no, and I told him no because a man whose whole trade is taken off him by a Crown officer is not going to be still in business in three years, and I would rather have a debt than a stranger.” He put his hand flat on the bench. “So I will not shout. Bring it when it is ready. I will pay the same price and I will pay it this month, and if you have to tell me it is another month, then tell me that, and I will come back next month, and I am not one of the men who goes to Miremarket and says the Crown did it.”
 
 Tomas looked at the bell.
 
@@ -162,7 +162,7 @@ Sabin Fell came down the lane at dusk and looked at the bell on the bench, and s
 
 “You want me to say something.”
 
-“I want you to have heard it said in a yard, by a man who did not make it happen and cannot unmake it, while there is still somebody in this town telling you things instead of recording them. That is all. I am not going to help and I am not going to stop you, and I will not be in the room when you decide, and I would like that written down as a thing I asked for.”
+“I want you to have heard it said in a yard, by a man who did not make it happen and cannot unmake it, while there is still somebody in this town telling you things instead of recording them. That is all. I will not help and I will not stop you, and I will not be in the room when you decide, and I would like that written down as a thing I asked for.”
 
 Tomas wrote it down in the day-book in Sabin’s own phrasing. Sabin read it over his shoulder and said, “Good,” and went up the hill.
 
