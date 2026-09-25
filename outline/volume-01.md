@@ -2,7 +2,7 @@
 
 **Volume number:** 01
 **Chapter range:** 1–50
-**Central pressure:** The Crown's **Silent Muster** is planned for dawn. It will remove unregistered children from Kells's Low Ward, use their names as relay anchors, and burn the Vale Bellhouse archive. Tomas has one warning bell, a local watch that may not protect him, and a bell rule that cannot tell him whether the warning is fact or merely accepted belief.
+**Central pressure:** The Crown's **Silent Muster** is planned for dawn. A temporary holding writ will buy only a seven-day public hearing before the rescheduled dawn; the operation will still remove unregistered children from Kells's Low Ward, use their names as relay anchors, and burn the Vale Bellhouse archive. Tomas has one warning bell, a local watch that may not protect him, and a bell rule that cannot tell him whether the warning is fact or merely accepted belief.
 
 ## Starting state
 
@@ -51,9 +51,9 @@ Tomas is at **Stage 0: Hand**. He can cast, file, tune, and diagnose ordinary be
 
 ## Escalation sequence
 
-- **Chapters 1–10 — The stripped bell:** Tomas traces the immediate warning to a pre-filed inspection order and a physical route, meets Tamsin and Nell, learns the first consent mechanics, and completes only one private Stage 1 test. The copied answer and the operation's full purpose remain unresolved.
+- **Chapters 1–10 — The stripped bell:** Tomas traces the immediate warning to a pre-filed inspection order and a physical route, meets Tamsin and Nell, learns the first consent mechanics, and completes only one private Stage 1 test. The writ's pending-hearing clause delays the inspection by seven days; the copied answer and the operation's full purpose remain unresolved.
 - **Chapters 11–20 — The town's answer:** Tomas tests the warning against ordinary promises and flood danger. Halden Crake orders the working bells seized. Oren forces Tomas to explain the old rope cut in public. Kells discovers that a three-answer public signal can preserve disagreement without becoming an order.
-- **Chapters 21–30 — The order before the crime:** Tomas traces the Crown survey office's handling of the order and finds a copied answer. The first real reversal is that the warning is a real planned operation, not a supernatural omen.
+- **Chapters 21–30 — The order before the crime:** Tomas traces the Crown survey office's handling of the order and finds a copied answer. The formal midpoint reversal is that the warning is a real planned operation, not a supernatural omen.
 - **Chapters 31–40 — The road opens:** The town splits over whether to move children, close the west road, or obey Halden. Tamsin's handbell route is damaged. Extending Tomas's bounded warning across a broader route saves a few people but causes a panic and a costly false alarm.
 - **Chapters 41–50 — Dawn answer:** The Crown arrives before the full warning can be understood. Tomas refuses to convert the bell into a command. Kells answers in several ways: some families move, some stay, some hide, and some refuse. Tomas saves one child and the surviving register fragment, but the archive burns and the Vale Bellhouse is closed.
 
@@ -63,7 +63,7 @@ Around Chapter 25, Tomas expects the main mystery to be a hidden prophetic maker
 
 ## Volume climax
 
-At dawn in Chapters 44–48, Crown officers enter Kells through the west road. Tomas rings a bounded warning that names the known danger, identifies his own duty, and refuses to tell residents what decision to make. Low Ward families answer independently. Tamsin carries a handbell along the river route; Oren holds the watch gate; Nell leads children away from the river landing. The operation is disrupted but not erased. The archive burns, several people are arrested, and the Crown uses Tomas's own warning as evidence that independent bells are dangerous.
+At the rescheduled dawn in Chapters 44–48, Crown officers enter Kells through the west road. Tomas rings a bounded warning that names the known danger, identifies his own duty, and refuses to tell residents what decision to make. Low Ward families answer independently. Tamsin carries her stolen courier handbell along the river route; Oren holds the watch gate; Nell leads children away from the river landing. The operation is disrupted but not erased. The archive burns, several people are arrested, and the Crown uses Tomas's own warning as evidence that independent bells are dangerous.
 
 ## Concrete resolution
 
@@ -73,7 +73,7 @@ By Chapter 50:
 - Kells publicly knows that the bell warning was true, that the Crown order preceded it, and that the Crown tried to claim a false answer.
 - Tomas has bound only one small warning and can hear only whether a nearby answer is strained; he is not newly powerful. His Volume 01 cost is both a failed small casting and a damaged tuning tool plus one episode of ringing ears, with no permanent memory loss.
 - Tamsin chooses to travel with him after recovering her stolen handbell, placing its route under mutual supervision, and accepting that a warning does not require her to obey him.
-- The Vale Bellhouse is sealed by the Crown. After a final custody review, Oren releases the same fixed stripped survey carrier to Tomas; he leaves with it, a route fragment, and a question about who designed the copied-answer mechanism.
+- The Vale Bellhouse is sealed by the Crown. After a final custody review, Oren releases the same fixed stripped survey carrier to Tomas in its mounting frame, with the retaining bolts released only for transport and the frame secured in a reinforced padded cradle; Tomas leaves with it, a route fragment, and a question about who designed the copied-answer mechanism.
 
 ## Next-volume question
 
@@ -81,4 +81,4 @@ Who taught the Crown to turn one clerk's answer into a whole settlement's consen
 
 ## Final chapter image
 
-Tomas leaves Kells before dawn with the fixed stripped Crown survey carrier in a padded crate. Behind him, the Vale Bellhouse sign hangs crooked over a locked door. On the river road, Tamsin rings a small handbell once, waits, and receives an answer from a village that has not yet heard the Crown's order.
+Tomas leaves Kells before dawn with the fixed stripped Crown survey carrier still seated in its mounting frame, the retaining bolts released for travel, and the frame secured in a reinforced padded cradle. Behind him, the Vale Bellhouse sign hangs crooked over a locked door. On the river road, Tamsin rings her stolen courier handbell once, waits, and receives an answer from a village that has not yet heard the Crown's order.

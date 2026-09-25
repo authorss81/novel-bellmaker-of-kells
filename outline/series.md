@@ -102,7 +102,7 @@ The ranges below are firm planning targets. Each volume resolves its local promi
 
 ### Volume 01: The Bell Before the Crime (Chapters 1–50)
 
-**Central pressure:** A repaired Crown survey bell rings a warning that the Silent Muster will take children from the Low Ward at dawn, burn the bellhouse archive, and use their names as relay anchors. Deputy Reeve Halden Crake wants the bell seized before the town panics.
+**Central pressure:** A repaired Crown survey bell rings a warning that the Silent Muster will take children from the Low Ward at the rescheduled dawn after a seven-day hearing stay, burn the bellhouse archive, and use their names as relay anchors. Deputy Reeve Halden Crake wants the bell seized before the town panics.
 
 **Starting state:** Tomas runs the Vale Bellhouse, is competent but solitary, and carries guilt for cutting a rope during the Hush. His mother Lira is missing, his sister Mara has not returned, and Oren watches him without trusting him.
 
@@ -110,7 +110,7 @@ The ranges below are firm planning targets. Each volume resolves its local promi
 
 **Power stage:** Hand to Near Toll. Tomas binds one private local warning and learns only whether a nearby answer is strained. In this first binding he pays with both a failed small casting and a damaged tuning tool, plus one episode of ringing ears; deep contextual reading and permanent memory loss do not begin until Stage 2.
 
-**Midpoint reversal:** Tomas proves the warning is not a prophecy. A Crown surveyor has registered a future order as an accepted public duty, allowing the bell to sound before the operation is carried out.
+**Midpoint reversal (reserved for Chapters 21–30):** Around Chapter 25, Tomas proves the warning is not a prophecy. A Crown surveyor has registered a future order as an accepted public duty, allowing the bell to sound before the operation is carried out.
 
 **Climax and resolution:** Tomas refuses to let the official silence the bell, and the people of Kells answer in their own ways. He cannot prevent the archive burning or every arrest, but he helps a child cross the west road and exposes enough of the order to keep the town from accepting a convenient lie. The Crown declares the Vale Bellhouse unsafe, and Tomas leaves Kells to trace the copied answer.
 

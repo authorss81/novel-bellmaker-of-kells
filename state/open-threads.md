@@ -6,7 +6,7 @@ These are planning promises established during bootstrap. They are not chapter e
 
 - Why did the fixed stripped Crown survey carrier ring in Tomas's locked workshop, who removed its clapper, and who drove the final route pulse?
 - Who does the child-sized handprint belong to, and why is Nell's household absent from the civic rolls?
-- Is the pre-filed dawn inspection a lawful renewal visit or the opening move of the **Silent Muster**?
+- Is the rescheduled dawn inspection a lawful renewal visit or the opening move of the **Silent Muster**?
 - How did Mara leave the warning note and connect the sound to the Crown inspection from inside the Quiet Office?
 - Who turned an official response into something that sounds like Kells-wide acceptance?
 - Can Tomas obtain three independent local answers without turning their disagreement into obedience?
@@ -15,10 +15,10 @@ These are planning promises established during bootstrap. They are not chapter e
 
 ## Batch 0001 reveal limits
 
-- Chapters 1–10 may establish the physical route, the pre-filed inspection, the consent chain, and one private Stage 1 warning.
+- Chapters 1–10 may establish the physical route, the pre-filed inspection and its seven-day pending-hearing stay, the consent chain, and one private Stage 1 warning.
 - Chapters 1–10 must not identify the copied-answer source or Crown clapper, reveal the Silent Muster's name-transfer mechanism, burn the archive, close the Vale Bellhouse, execute Halden's broader bell seizure, or send Tomas out of Kells.
 - The fixed Crown survey carrier, Tamsin's stolen courier handbell, and Tomas's newly cast trial handbell remain separate objects after the batch.
-- The fixed stripped carrier enters neutral watch custody in Chapter 10. Before Tomas leaves Kells in Chapters 41–50, a later custody review must release that same object to him or explain its transfer; no second stripped bell may replace it silently.
+- The fixed stripped carrier enters neutral watch custody in Chapter 10 under the writ's seven-day pending-hearing clause, remaining in its mounting frame. Before Tomas leaves Kells in Chapters 41–50, a later custody review must release that same object to him; the retaining bolts are released only for travel, and the frame travels in a reinforced padded cradle. No second stripped bell may replace it silently.
 
 ## Series mystery threads
 
