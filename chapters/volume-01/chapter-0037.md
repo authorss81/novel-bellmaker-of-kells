@@ -130,13 +130,13 @@ Somebody at the back asked what it cost them, and Tomas said it plainly: *It cos
 
 The board gave it. It was a bar off the lowest of three gratings, and it was rusted in the middle and sound at the ends, and Mercy Slee, who was the co-holder of the ward’s page and had been made that in public four days earlier, wrote in the ward’s book that the ward gave it, in her hand, and the date, and the words of the bell, and the whole of the words, and the cost as he had stated it. And two more people put their names under hers, and the grate was mended before dark with a length of chain by four of Gib Hask’s men without being asked, and Hask did not come to the board and did not vote and sent word that the grate was his to keep and he would keep it.
 
-Renn’s gate. Renn took the duty and wrote it on his oilskin board in his own words, and it said: *I will sound this at my gate if it is sounded at the Bellhouse, and only if it is, and only once, and I may take myself off this sentence at any hour without giving a reason and nothing happens to me for it.*
+Renn was at the board and heard the words with everybody else, and said that a duty on a bell that had not been cast was not a duty but a promise about a thing, and that he would answer it when there was a bell to answer about, and that he wanted it done in front of the board and not in a lane.
 
-Cray took it and wrote it and it said: *I will sound this at the ward board and at two doors I name, and no further, and I have put the two doors on this line and the two doors are not going to be the doors anybody wants.*
+Cray said she would answer it too, and asked him one question, which was whether the two doors she named were hers to name, and when he said yes she said *not those two then*, and named two others, and he wrote them down without reading them back to her, on purpose, and she made him read them back, and he read them back twice.
 
-*And the cost, entered, on the same page, in the same hand: the half-barrel is empty. I can cast no second bell out of this yard’s own metal this year, and if I want another one I have to buy metal, and if I buy metal from a Crown dealer then this bell has a date and a place of purchase in a Crown document, and if I do not, I have no bell, and I have one.*
+*And the cost, entered, on the same page, in the same hand: the half-barrel has metal in it for one bell and not for two, and if I pour this one it is empty, and I can cast no second bell out of this yard’s own metal this year, and if I want another one I have to buy metal, and if I buy metal from a Crown dealer then this bell has a date and a place of purchase in a Crown document, and if I do not, I have no bell, and I have one.*
 
-He cast it on the nineteenth day, out of the half-barrel, and it took him five hours and it was the first metal he had poured since the day before the wax went on the door, and the smoke went up the chimney and about nine people in the lane looked up at the smoke and one of them was a Crown road hand living in the lodging and came to the door and asked what it was, and Tomas said *metal*, and the road hand wrote it in the gang’s book, because that is what road hands do now.
+He cast it on the nineteenth day, out of the half-barrel, and it took him five hours and it was the first metal he had poured since the day before the wax went on the door, and the smoke went up the chimney and about nine people in the lane looked up at the smoke and one of them was a Crown road hand living in the lodging and came to the door and asked what it was, and Tomas said *metal*, and the road hand wrote it in the gang’s book, because that is what road hands do now. He went and looked at the barrel after it and there was nothing in it but the dross and the scale on the bottom, and he shut the lid, and the half-barrel was empty from that hour and would be empty until somebody bought metal.
 
 It came out well. That was the trouble with it.
 
@@ -164,8 +164,6 @@ Then he wrote the whole of it up as a condition, the way he had written up every
 
 ---
 
----
-
 He asked four people, one at a time, with the same words, and he had intended to ask three, and the order on the page is not the order he had written in his own book two days before, and he copied the new order onto the old page and initialled the alteration in the margin, which is the only way he knows how to do that kind of thing.
 
 The first was Tamsin Rook, and she was asked first because a man of sixty-one had told him at first light that morning that the person most likely to refuse has to be asked while there is still time to be frightened by it instead of arguing with it, and because Tomas had put her at the end of his own list for two days out of pure wanting, and had then told her so, in writing, with the hour on it, before he asked her anything at all.
@@ -190,7 +188,7 @@ He read the three lines. She took the book and read them again herself.
 
 “Give me the pen,” she said, and wrote it, and signed it, and gave it back, and then she did the thing that made the whole of the morning worth it.
 
-“You have two keepers,” she said. “You have Renn, who will withdraw, and Cray, who will withdraw, and both of them will draw down to two hundred yards and no further, because both of them are careful men and that is what careful men do. And your bell is too bright and you know it is too bright and you have written that down, and you are going to carry a warning about a drain two hundred yards and a half mile, and on a lane that goes to a landing, and there is a man on that lane with a Crown cart who is waiting to be proved right about Crown lines, and everything you are about to do is going to arrive at that man before you know it has.”
+“You have two people coming who will say yes,” she said. “Renn will say yes, because a man who has refused a bell once is a man nobody asks twice, and Cray will say yes, because she has been waiting two days for somebody to hand her a door with a name on it and nobody has. And both of them will draw down to two hundred yards and no further, because both of them are careful people and that is what careful people do. And your bell is too bright and you know it is too bright and you have written that down, and you are going to carry a warning about a drain two hundred yards and a half mile, and on a lane that goes to a landing, and there is a man on that lane with a Crown cart who is waiting to be proved right about Crown lines, and everything you are about to do is going to arrive at that man before you know it has.”
 
 “I know,” Tomas said.
 
@@ -200,7 +198,7 @@ He wrote the limit on the page. He wrote it inside the words of the claim, so th
 
 *And the water will be heard to a quarter of a mile and further, and further than a lane, and I cannot make it stop and I am not going to try, and the far end of it will not be my end of it, and anybody who hears this and fills in the rest of the sentence for himself is doing me the courtesy of a mistake and I cannot prevent it and I am not going to be able to prevent it and I am writing it down anyway.*
 
-The second was Wenna Cray, who said yes in a sentence with four clauses in it and then made him read all four of them out loud twice before she signed. The third was Hollis Renn, who said yes in eleven words and then wrote his own sentence on his oilskin board and made Tomas read that too, twice, and did not give a reason, because his own term does not require one.
+The second was Wenna Cray, who said yes in a sentence with four clauses in it and then made him read all four of them out loud twice before she signed, and then wrote it on the board in her own words: *I will sound this at the ward board and at two doors I name, and no further, and I have put the two doors on this line and the two doors are not going to be the doors anybody wants.* The third was Hollis Renn, who said yes in eleven words and then wrote his own sentence on his oilskin board and made Tomas read that too, twice, and did not give a reason, because his own term does not require one, and the sentence was: *I will sound this at my gate if it is sounded at the Bellhouse, and only if it is, and only once, and I may take myself off this sentence at any hour without giving a reason and nothing happens to me for it.*
 
 And the fourth was Foreman Crane, who refused in about a minute, standing up, in his own landing, in the words he had already given Tomas on the sixteenth, and who wrote his refusal out at Tomas’s request and signed it, and it is on the page because Crane said it should be.
 

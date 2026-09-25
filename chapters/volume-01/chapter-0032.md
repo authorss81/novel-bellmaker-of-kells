@@ -98,7 +98,7 @@ Then he said, without any particular weight, that he was right about the childre
 
 ---
 
-The watch house at the ninth hour, and Oren had the map case on the table with the lid off, and the case was empty and had been emptied at the eleventh hour and had not been in the building since.
+The watch house at the twelfth hour, and Oren had the map case on the table with the lid off, and the case was empty, and it had been emptied at ten minutes past the eleventh hour, and it had not been in the building since the middle of the day.
 
 “Sit down. I have to tell you about the eleventh hour and then I have to give you something and I would rather do them in that order because you will be angry about the first and I want you listening for the second.”
 
@@ -126,7 +126,7 @@ He pushed a sheet across the table. It was a copy of Tomas’s page, and Oren’
 
 ---
 
-The Bellhouse yard at about the tenth hour was in shadow with the ridge behind it and the millrace making its noise on the far side of the wall, and the yard door was shut and had three things on it, a no-ringing notice, a Crown wax, and Oren’s watch mark, and none of the three would come off without the other two.
+The Bellhouse yard at about the ninth hour of the night, which was seven hours after the watch house and a long walk uphill that Oren did not comment on, was out of the wind with the ridge gone black behind it and the millrace making its noise on the far side of the wall, and the yard door was shut and had three things on it, a no-ringing notice, a Crown wax, and Oren’s watch mark, and none of the three would come off without the other two.
 
 Tomas unlocked it. The yard was as he had left it. The millrace bridge bell on the north wall under its condition. The bench with the wheelwright’s finished counter bell on it and a cloth over it. The casting room door shut, with the pale rectangle of unfaded floor inside it where the carrier’s frame had stood for sixteen days.
 

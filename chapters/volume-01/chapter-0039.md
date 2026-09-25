@@ -148,7 +148,7 @@ Which is a better sentence than anything anybody in the ward had managed all day
 
 On the twentieth day at the ninth hour of the evening, the day before the round, two Crown officers walked the ward.
 
-They were polite. They were two of the ordinary sort with a slate and a lamp and no case, and they went to doors in ones and twos and they said the same four sentences at about forty of them, and the sentences were, in the order they said them: good evening, the round is at first light, the form was exhibited in full yesterday and will be exhibited in full again, would your household intend to attend in person.
+They were polite. They were two of the ordinary sort with a slate and a lamp and no case, and they went to doors in ones and twos and they said the same four sentences at about forty of them, and the sentences were, in the order they said them: good evening, the round is at first light, the form was exhibited in full this morning and will be exhibited in full again, would your household intend to attend in person.
 
 And at every door, the person who answered said yes or no, and the officer wrote down, on the Crown’s own slate, in the Crown’s own hand, *yes* or *no* beside a house number, and the officer did not have a form for it and did not need one, because a man with a slate and a lamp in a lane at nine in the evening is a form.
 

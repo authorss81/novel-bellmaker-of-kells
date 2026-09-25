@@ -120,9 +120,7 @@ Then Nell Fenn read the price underneath it, which she had written out in advanc
 
 *This is a question and not an accusation. It names no officer and no office and no person. It says what a paper has on it and asks a clerk to answer in writing. Any person in this ward who wishes to put it may put it, and no person has to, and nobody has to say why they did not. The first person to put it was Mercy Slee of house one hundred and nineteen, who was on no roll of this Crown office, and who has said so here before anybody else could say it.*
 
-Nell Fenn, in her own hand, and Mercy Slee beside her, and — after a pause during which Oren Pike read the whole thing twice at the back with his hat in his hand and said nothing and then put his name on the bottom line, which was the first thing he had put his name under in this town that was not a matter of order.
-
-
+Nell Fenn signed it in her own hand, and Mercy Slee beside her, and then there was a pause of the length of two breaths, during which Oren Pike read the whole thing twice at the back with his hat in his hand and said nothing, and then put his name on the bottom line, which was the first thing he had put his name under in this town that was not a matter of order.
 
 ---
 

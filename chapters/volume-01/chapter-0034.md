@@ -8,25 +8,27 @@ Oren read it twice at the table with the lamp still in and then read it a third 
 
 One side. One sentence that mattered. Twelve words in it, and the twelve words were *all persons in this ward having public standing in matters of signalling*.
 
-Oren had been a watch captain for eleven years and he had read four hundred Crown returns and he knew exactly which of those twelve words was the mouth of the fish, and it was not *keepers*, and it had not been *keepers* since the eighth day of this month when a Crown lawyer somewhere had discovered that a keeper can be replaced in a day and a name cannot.
+Oren had been a watch captain for eleven years and he had read four hundred Crown returns in that time and he knew exactly which of those twelve words was the mouth of the fish, and it was not *keepers*, and it had not been *keepers* since the eighth day of this month when a Crown lawyer somewhere had discovered that a keeper can be replaced in a day and a name cannot.
+
+And here is the thing the form had been built to do. The Crown had asked him for keepers and it could have them, or could ask for them again on a form with a box on it for the purpose. What an office cannot get in one stroke, and did not have a box for, is every person in a ward who has stood up in public since the eighth of this month and been heard. It had asked for both on one side of paper so that the second would arrive with the first, and would be filed under it, and would be answered by the same eleven lines.
 
 He went and got the book of the seventeenth day, and the Day 9 book, and the Day 11 book, and the ward board’s minutes as Ferrow had copied them, and he began to make the list, and it took him the better part of the middle of the day, and by the time he had got to the part he did not want the light had gone across the window.
 
-Because the Crown had not asked him for keepers. The Crown had asked him for *persons having public standing*, and there is no watch in the world that can answer that by naming two men who look after a gate.
+The ward’s public standing on the seventeenth day consisted of the people who had stood in front of other people in the last nine days and been heard, and it went like this, and he wrote it in the order he found it, which was the order the books were in.
 
-The ward’s public standing on the seventeenth day consisted of the people who had stood in front of other people in the last nine days and been heard, and it went like this.
+It started with the board, because the board is where this ward does things where somebody’s name is on the paper. Nell Fenn had read three questions off a slate to a hundred and twenty people on the thirteenth day and had asked a Crown clerk a precise question in a filing room on the twelfth, and on the fourteenth she had said in open court that the three positions were three positions, and had not softened one of them. Mercy Slee of house 119 had stood up in open court and given three facts about a bell and would not have it carried by an office that had not put a hand on it, and she is the named co-holder of the ward’s own copy of the page. He wrote the two of them first and wrote the house number against the second one and thought about the house number for longer than the rest of the line.
 
-Nell Fenn, who had read three questions off a slate to a hundred and twenty people on the thirteenth day and had asked a Crown clerk a precise question in a filing room on the twelfth and had said the three positions were three positions on the fourteenth. Mercy Slee of house 119, who had stood up in open court and given three facts about a bell and would not have it carried, and who is the named co-holder of the ward’s own copy of the page. Ivo Prentice of the ferry road, who had said out loud in open court that he wanted a Crown line and would not be ashamed of it. Gib Hask, who had argued the buried copper three times in three rooms and had said he would put a bar in the ground and had asked for that to be written in his own words. Absalom Teage, who had stood at a Crown counter and got two sentences written in a margin in a clerk’s own name. Sena Dunn, who had asked *which child* four times at a door. The market court usher, who had stood up, which was not a thing she did. Hollis Renn. Foreman Crane. Wyman Dace, who had given a slate to a clerk in a lane.
+Then the market court, and then a lane. Ivo Prentice of the ferry road had said out loud in open court that he wanted a Crown line and would not be ashamed of it. Gib Hask had argued the buried copper three times in three rooms and had said he would put a bar in the ground and had asked for that to be written in his own words. Absalom Teage had stood at a Crown counter and got two sentences written in a margin in a clerk’s own name. Sena Dunn had asked *which child* four times at a door. The market court usher had stood up, which was not a thing she did. Hollis Renn held the low flood gate and had a duty written on an oilskin board in his own words. Foreman Crane had shut a road in an hour and made the clerk of the market court hold a slate for him. Wyman Dace had given a slate to that clerk in a lane and told him it was his and he was holding it.
 
-And Tamsin Rook, who had stood at the back of the ward board on the thirteenth evening and read out a date and a number, in a room of about sixty people, in a voice that carried, because a courier’s voice is a thing that carries, and that had been the best thing anybody had done in this town in ten days.
+Jerm put the lamp nearer the page and read it upside down from the far side of the table, which is not allowed, and Oren let him.
+
+And Tamsin Rook, who had not been in a room since the eighth day, and who on the evening of the thirteenth had walked her own route in the cold after dark with a named man beside her, ringing once at seven places and writing at each of them what was expected there and what was heard, and who had then sat down on the parapet at the low drain gate and offered four terms out loud, once each, and did not improve them, in a voice that carries, because a courier’s voice is a thing that carries, and who had said at the north gate in front of eleven witnesses that the route ends at the low drain gate and had it entered in the watch book in her own words.
 
 Oren counted twice, because he was that kind of man, and then he did a piece of arithmetic he had been avoiding since the sixth hour.
 
-Four of the names in that column hold a duty. Cray is not on it, because Wenna Cray has not stood in front of other people in a lane or a court in nine days, and that is not a fault of hers and it is the single most useful thing about her. Renn holds the low flood gate and a written duty on an oilskin board. Crane is a foreman of the market landing. Dace keeps the west road bridge and writes on slates. He looked at the four names for a long time and then he wrote a sixth paragraph on the covering page and it was the shortest paragraph in it and it was the only one he was sure of.
+Four of the names in that column hold a duty. Cray is not on it, because Wenna Cray has not put herself in front of other people in a lane or in a court since the eighth of this month, and that is not a fault of hers and it is the single most useful thing about her. Renn holds the low flood gate and a written duty on an oilskin board. Crane is a foreman of the market landing. Dace keeps the west road bridge and writes on slates. He looked at the four names for a long time and then he wrote a sixth paragraph on the covering page, and it was the shortest paragraph in it and the only one he was sure of, and he wrote it in the morning and read it to nobody at all that day.
 
-*Six. That no keeper in this ward is entered on this return as a keeper. Four of the names above hold duties and are entered for what they said in a lane and not for what they keep, and the district may read that distinction or may not, and I have entered it so that the difference is on the file in my hand whichever way the office reads it.*
-
-Oren put the pen down at that point and sat with his hands on the table for a while, in a watch house, alone, in the middle of the day of the seventeenth, and worked out — the way he had taught himself to work things out in eleven years — that the reason he was about to hand a district office a list of every person in his ward who had opened their mouth was that he had spent nine days teaching this town to open its mouth in public.
+Oren put the pen down at that point and sat with his hands on the table for a while, in a watch house, alone, in the middle of the day of the seventeenth, and worked out — the way he had taught himself to work things out, in as many years of this chair as there were — that the reason he was about to hand a district office a list of every person in his ward who had opened their mouth was that he had spent a week and more teaching this town to open its mouth in public.
 
 He had done it. That was the arithmetic. He had compelled a Crown counter under an arcade on the ninth day and told a filing clerk in a lamplit room that a ward that cannot make up its mind is read as a ward that will not answer, and he had read that clerk’s admission into his own book. He had read a Crown officer’s objection out twice in open court because it was true. He had made a surveyor put four statements and five refusals into a market court book at the seventh hour with the lamps lit. He had put the names of his own two men into a page and his own arithmetic under them, in his own hand, and made one of them a refuser alongside the obedient.
 
@@ -60,7 +62,7 @@ He had thought about it. He had thought about it for an hour.
 
 Ardle read it, standing, with his finger going down the column, and when he got to the sixth name he stopped, and when he got to the tenth he said the name out loud, and then he read the whole thing again to be sure.
 
-“You have handed them every man and woman in this ward who has stood up in public since the eighth day,” Ardle said. He read the sixth paragraph twice, and then he looked up. “Captain. What is the point of the word *standing*.”
+“You have handed them every man and woman in this ward who has stood up in public since the eighth day,” Ardle said. He read the sixth name twice, and then he looked up. “Captain. What is the point of the word *standing*.”
 
 “Including the girl. Including the woman at 119, who has said in open court that her house is on no list, and who is now on one, in a Crown return, under *public standing*.” He put the sheet down very carefully. “Captain. That is the opposite of what she asked for. In open court. In writing.”
 
@@ -68,13 +70,13 @@ Ardle read it, standing, with his finger going down the column, and when he got 
 
 “Then do not send it.”
 
-“I cannot not send it. I have to send it by the seventh hour and I have to send something and if I send nothing then the return is *refused* and refused returns are read as wards with nothing to declare, and I have spent nine days teaching a ward to declare things, and I am not going to be the man who taught them and then stopped.”
+“I cannot not send it. I have to send it by the seventh hour and I have to send something and if I send nothing then the return is *refused* and refused returns are read as wards with nothing to declare, and I taught them to declare things, and I am not going to be the man who taught them and then stopped.”
 
 “Order them out of it,” Cask said.
 
 “I cannot. Every one of them would have to be asked, and every one of them that said yes would be a person who had been asked to be removed from a Crown return, and that is a sentence that would be on the walls of this town in a day and would be true, and it would be true because of me, and I would have handed an office a list of eleven names and then told the town which ones I had protected.” He turned round. “And I am not going to do it, and not because of the girl and not because of the woman at a hundred and nineteen, and I want both of you to hear me say that, because I have been angry all morning about a thing I did and neither of you is to think there is a man in this room being kind.”
 
-He put a fresh sheet under the list and wrote on it, and he wrote it slowly, and then he read all six of it out to the two of them before he signed it, which he had never done in eleven years.
+He put a fresh sheet under the list and wrote on it, and he wrote it slowly, and then he read the first five of it out to the two of them before he signed it, and the sixth was on the sheet and he did not read it, which he had never done in the whole time he had held this chair.
 
 *Covering page to a return of the seventeenth day, made by Oren Pike, watch captain of Kells, on a district requirement received on the morning of the seventeenth day and due at the seventh hour.*
 
@@ -90,11 +92,15 @@ He put a fresh sheet under the list and wrote on it, and he wrote it slowly, and
 
 “There is your five,” Cask said.
 
-“There is my five. And there is a sixth underneath it that I did not show you before you asked me to read it, and I am going to read it now, and I am not going to be able to look at either of you while I do.”
+“There is my five. And there is a sixth on the sheet under them that I wrote this morning and did not read to you just now, and I am going to read it now, and I am not going to be able to look at either of you while I do.”
+
+*Six. That no keeper in this ward is entered on this return as a keeper. Four of the names above hold duties and are entered for what they said in a lane and not for what they keep, and the district may read that distinction or may not, and I have entered it so that the difference is on the file in my hand whichever way the office reads it.*
+
+“There. That is the whole of what I have been holding back, and I have been holding it back because it is the only one of the six that is for you and not for the office. If a keeper can be produced on a return at any time by anybody who says the word *standing*, then a keeper is a person, and the road to a road gang is three words long. I have just written down that there is no such road in this ward, and the only person who can check it is the two of you, and the only place it is any use is a file in Fourmile in a year.”
 
 “It is a good five,” Ardle said. “It is the best thing you have written in a year. And it does not stop it, and you know that it does not stop it, and you wrote it in a morning and you are going to hand it to a rider in the afternoon and it is a good deal better written than the question deserved.”
 
-“It goes to a rider in the afternoon, which is in time,” Oren said, “and I have read the five into the watch book already, and then I am going to read the five into the market court, in the open, with the room full, and I am going to read the list too, all eleven names, with the dates, so that if a man in Fourmile reads a name he can find out what that person was doing on that day and can read what the watch said about it on the day after.”
+“It goes to a rider in the afternoon, which is in time,” Oren said, “and I have read the five into the watch book already, and then I am going to read the whole page into the market court, in the open, with the room full, and I am going to read the sixth in front of ninety people, which I have not done yet, and which is a harder thing for me than the list, because the sixth is the one that is about them. And I am going to read the list too, all eleven names, with the dates, so that if a man in Fourmile reads a name he can find out what that person was doing on that day and can read what the watch said about it on the day after.”
 
 “You are going to read the list out.”
 
@@ -114,7 +120,7 @@ The clerk asked one question a little after the court opened, when the room had 
 
 “It is,” Oren said. “I have put that in the book. Legibility is what we wanted. I have told this room for nine days that a procedure you can check is worth more than a conclusion you cannot, and I have not changed my mind and I am not going to. And I will say the other half, because I am a watch captain and I have a page in front of me and it is not a complicated thing to say.
 
-“Everything this ward has done for nine days, we did it in public on purpose, because a thing said in a room is a thing that arrives in a file alone. That was true when we were right and it is true now, and the Crown is welcome to every word and every date on that list. What we did not do, and what the covering page says in its second paragraph, is any of it from fear. And if this district would like to file the eleven names as persons who may be reached, then it may, and it can add to the file that they are the eleven names out of a ward of four hundred and eleven who stood up in nine days, and the rest of them have not.”
+“Everything this ward has done since the eighth, we did it in public on purpose, because a thing said in a room is a thing that arrives in a file alone. That was true when we were right and it is true now, and the Crown is welcome to every word and every date on that list. What we did not do, and what the covering page says in its second paragraph, is any of it from fear. And if this district would like to file the eleven names as persons who may be reached, then it may, and it can add to the file that they are the eleven names out of a ward of four hundred and eleven who stood up in nine days, and the rest of them have not.”
 
 The district clerk wrote something down. It was a short thing. He wrote it, and read it back to himself, and did not read it out.
 
@@ -122,9 +128,9 @@ Then, late in the sitting, Crake arrived.
 
 He came into the court with an order in his hand and did not sit on the bench, and he did not say he was there about the list, and he said four sentences and they were all of them necessary.
 
-“Deputy. Is that a Crown return going out of this court this afternoon.”
+“Captain. Is that a Crown return going out of this court this afternoon.”
 
-“It is a watch return going out with the afternoon post, Deputy, and it is not a Crown return, and it is the watch’s own paper, and the watch is not yours this month any more than it was last month.”
+“It is a watch return going out with the afternoon post, Captain, and it is not a Crown return, and it is the watch’s own paper, and the watch is not yours this month any more than it was last month.”
 
 “Then I will tell you what I have been asked to report, Captain, and then you may put it in your book, and then I will sit down. The district has asked this commission to state whether there is civic disorder in the Low Ward. That is a form with two lines on it. The first line is *is there disorder*, and the answer is no. The second line is *what was the state of the ward’s co-operation*, and the answer is that the ward has established a public practice, kept it in three places, and declined every request made of it by this commission, and that is a fact and not a fault and I intend to file it in those words.”
 
@@ -138,9 +144,9 @@ Crake sat down on the bench with the order still face down, and Ferrow entered t
 
 ---
 
-The covering page came back on the same day, at the eighth hour of the evening, with the post from the north, and it had been in the district office for eight hours, and Oren Pike thought of it for a long time afterwards as the fastest piece of paper in his life.
+The covering page came back on the same day, at the eighth hour of the evening, and it came back with a rider off the north road — the district’s own man, who had it under his arm and did not come in, and who said one sentence on the step, which was that the office had marked it and sent it straight back down, and then was gone — and it had been in a building in Fourmile for four hours, and Oren Pike thought of it for a long time afterwards as the fastest piece of paper in his life.
 
-It came back in the district’s ordinary leather wallet with the other returns from the northern sub-district in it, and it was stamped as received, and Oren’s six paragraphs were on it in his own hand, and the list was on the second and third pages with all eleven names and all eleven dates, and nothing had been added, and nothing had been taken out.
+It came back in the district’s ordinary leather wallet with the other returns from the northern sub-district in it, and it was stamped as received, and Oren’s six paragraphs were on it in his own hand, and the list was on the two pages after them with all eleven names and all eleven dates, and nothing had been added, and nothing had been taken out.
 
 And in the outer margin, in a small neat hand that was not Crake’s and not Ferrow’s, there was one line, and the line was not an objection to anything Oren had said:
 
@@ -148,7 +154,7 @@ And in the outer margin, in a small neat hand that was not Crake’s and not Fer
 
 Oren read it four times.
 
-It was a single word, and Oren Pike had spent eleven years understanding that a Crown office never loses a thing it has been handed, only changes what it is called. The list was not refused. The list was not even used. It was *retained*, and then given a name that had not been on the request, so that in a year, when somebody in Fourmile wanted to know about a person in Kells, the district’s index would say: *public standing, matters of signalling, dated*, and the word *standing* would do the work, because nobody who had not read Oren’s covering page would know that in this ward *standing* meant that a person had stood in a market lane and been heard.
+It was a single word, and Oren Pike had spent a career understanding that a Crown office never loses a thing it has been handed, only changes what it is called. The list was not refused. The list was not even used. It was *retained*, and then given a name that had not been on the request, so that in a year, when somebody in Fourmile wanted to know about a person in Kells, the district’s index would say: *public standing, matters of signalling, dated*, and the word *standing* would do the work, because nobody who had not read Oren’s covering page would know that in this ward *standing* meant that a person had stood in a market lane and been heard.
 
 He had written six paragraphs to defend a distinction. The distinction had been entered in the district’s own margin and renamed, and the sixth had been written to say what four names on the list were not, and the office had left it exactly where it was, which told him the office had read it, which told him nothing at all and cost him the whole of the afternoon.
 

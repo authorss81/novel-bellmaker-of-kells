@@ -34,11 +34,11 @@ That is the thing about Oren Pike, and it is the thing that has cost him more th
 
 So he did not refuse, and he did not hand a Crown officer a register of the ward’s keepers on the seventeenth evening of the month on which three children had gone out of a lane on the tenth.
 
-“Serjeant,” he said. “I will comply. I will keep a record for seven days of every bell sounded in this ward, and I will record the hour and the place of each. I will not record the name of the person who sounded it, and the form does not oblige me to because the form does not say *shall* or *must* anywhere in it, and I have read it twice to be sure, and a Crown form that does not say must is a request with a seal on it, and my clerk is in the market court at this hour and I will have it read by him in the morning and he will write what I have just said and I will sign it and you may take a copy of it to Fourmile in your own hand if you wish.”
+“Serjeant,” he said. “I will comply. I will keep a record for seven days of every bell sounded in this ward, and I will record the hour and the place of each. I will not record the name of the person who sounded it, and I am not going to stand in a lane and tell you the paper does not ask me for it, because it does, in the third line, and a man in Fourmile would read it back to me off your hand in a minute. What the paper does not do is say *shall* or *must* anywhere in it, and it names no penalty and no office to complain to, and a Crown form that asks for a thing and does not require it is a request with a seal on it. My clerk is in the market court at this hour and I will have it read by him in the morning and he will write what I have just said and I will sign it and you may take a copy of it to Fourmile in your own hand if you wish.”
 
 Teale said, “Captain, that is not compliance.”
 
-“It is compliance with the words on the paper. I have given you the two things the paper asks for and I have refused the third thing the paper implies, and I am doing it in a lane, in front of two of my own men, and I am going to write down that I did it, and then I am going to read what I wrote into the watch book and into the market court in the open, because that is the only thing I have got.”
+“It is compliance with the words on the paper, and I have given you two of the three things the paper asks for, and I have refused the third in your hearing and in front of two of my own men, and I am going to write down that I did it, and then I am going to read what I wrote into the watch book and into the market court in the open, because that is the only thing I have got.”
 
 “Will the office accept it?”
 
@@ -68,11 +68,13 @@ He read it aloud to Jerm, and Jerm wrote it, and then Oren said: “Read it back
 
 ---
 
+The yard got dark at about the fourth hour, earlier than it should have, and Tomas put the lamp on the bench and stood there for a while with nothing to do, which was the condition he had been in on and off for a fortnight.
+
 Ardle and Cask manned the north gate on the eighteenth and the nineteenth and the twentieth and the twenty-first, and they were angry about the covering page, and Oren left them there.
 
 He did it on purpose and he wrote it in the book that he did it on purpose, and the sentence he wrote was: *I have put the two men who disagree with me at the gate for the days that matter, because a gate manned by two men who agree with their captain is a gate with no eyes in it, and because if there is a Crown wagon coming up the north road on the twenty-first, I would rather it met two men who think I have been wrong all week and have had time to think about it.*
 
-He was in the lane at the seventh hour with Tomas before that, though, and he said the thing he had come to say, and he said it without any preamble at all, in the yard, with the door shut and the three seals on the outside of it.
+He was in the yard with Tomas at the ninth hour, before any of that, though, and he said the thing he had come to say, and he said it without any preamble at all, with the door shut and the three seals on the outside of it.
 
 “I am going to give you something and I am going to tell you what it costs, because you are the man who has spent this month learning to say what things cost, and I am not going to be the only one in this town who can do it.”
 
@@ -104,13 +106,11 @@ Oren read it over his shoulder and said, “That is a small page for a man with 
 
 ---
 
-The yard got dark at about the fourth hour, earlier than it should have, and Tomas put the lamp on the bench and stood there for a while with nothing to do, which was the condition he had been in on and off for a fortnight.
-
 Then he went down the lane to the watch house, which was not on his way to anything, and which Jerm saw him do and said nothing about.
 
 Oren was at the table with the gate book shut and the register open in front of it, empty except for one line, with a ruled column and a date at the head of it: the seventeenth. The seventeenth had a single entry on it, which was the market court’s iron handbell rung once in the court loft to open a sitting, and Oren had written the hour and the place and, in the third column, the single word *none*.
 
-“I have one question,” Tomas said, “and I have had it since the eighth hour and I have been walking down the hill trying to find a better way of asking it, and there is not one, so here it is.”
+“I have one question,” Tomas said, “and I have had it since you finished talking, and I have been walking down the hill trying to find a better way of asking it, and there is not one, so here it is.”
 
 “Ask it.”
 
@@ -132,7 +132,7 @@ Oren put the pen down.
 
 He said it in exactly that tone, the way a man states a fact about a bridge.
 
-“Because here is what I have understood in eleven years and what I am only now able to say out loud in a room with one other man in it. When a ward is frightened and something does not happen for four hours, what kills the people is not the four hours. It is that afterwards there is a document that says the ward waited four hours. A crowd that has waited four hours is a crowd that has been shown that waiting works. And the next time, the next time they will wait, and the waiting will be longer, and the page will be longer, and there will come a morning when there is a page in four mile with four hours on it and a Crown officer on the north road at the end of it, and he will not be lying. Every word of it will be what we wrote down in the dark with the best intentions we had.”
+“Because here is what I have understood for as long as I have held this chair, and what I am only now able to say out loud in a room with one other man in it. When a ward is frightened and something does not happen for four hours, what kills the people is not the four hours. It is that afterwards there is a document that says the ward waited four hours. A crowd that has waited four hours is a crowd that has been shown that waiting works. And the next time, the next time they will wait, and the waiting will be longer, and the page will be longer, and there will come a morning when there is a page in four mile with four hours on it and a Crown officer on the north road at the end of it, and he will not be lying. Every word of it will be what we wrote down in the dark with the best intentions we had.”
 
 Tomas did not say anything for a while. The lamp made a small noise. The register lay on the table with its ruled lines and its date and nothing in it, and Oren Pike sat opposite it and did not offer him anything, and the watch house was very quiet.
 
@@ -140,6 +140,6 @@ Tomas did not say anything for a while. The lamp made a small noise. The registe
 
 He got up and put his cap on.
 
-“Go home. It is the ninth hour and the lane is the lane and the ward is awake, and there are nine people standing at the mouths of the low lane tonight because a gang dug a trench in it on Monday and it has been filling since, and every one of them is looking for somebody to tell them what to do, and there is nobody, and that is not a failure of tonight. That is what tonight is.” He was at the door. “And if you do build one — and I have watched you for eleven days and I know what your hands do when they are idle — build it so that it says what is known and what is not known and who is responsible, and if you cannot get those three into it, then do not build it, and I will not think less of you for that, and I will think a very great deal more.”
+“Go home. It is the tenth hour and the lane is the lane and the ward is awake, and there are nine people standing at the mouths of the low lane tonight because a gang dug a trench in it on Monday and it has been filling since, and every one of them is looking for somebody to tell them what to do, and there is nobody, and that is not a failure of tonight. That is what tonight is.” He was at the door. “And if you do build one — and I have watched you for eleven days and I know what your hands do when they are idle — build it so that it says what is known and what is not known and who is responsible, and if you cannot get those three into it, then do not build it, and I will not think less of you for that, and I will think a very great deal more.”
 
 He went out into the lane and left the door open behind him, and Tomas stood in a watch house with an empty register in front of him and understood that he had been given a leash and a reason for it in the same breath, and that Oren Pike had done it on purpose, and that Oren Pike would go on doing things on purpose for as long as there was anything left to spend, and that this was the man whose brother died on a night when a warning stopped.
