@@ -2,7 +2,7 @@
 
 The Crown district renewal office at Fourmile is on a street with three shops and a yard behind it and a door that has been painted four times and is now the colour of a duck's egg, and the district's number is on a plate by the bell, and the bell is a wire with a knocker on it and not a bell, and the plate is legible from the middle of the street.
 
-They got there at about the ninth hour on the forty-second day and Tamsin Rook stopped at the door and looked at the plate for about nine seconds and then went and sat on a wall about forty feet off with her bag on her knees, and she said that if he went in alone he would be a man asking about a bell and if he went in with her he would be a man and a courier, and she was not going to stand in a street being a third thing a clerk had to write down.
+They got there at about the ninth hour on the forty-second day and Tamsin Rook stopped at the door and read the plate, and read it twice, and then went and sat on a wall about forty feet off with her bag on her knees, and she said that if he went in alone he would be a man asking about a bell and if he went in with her he would be a man and a courier, and she was not going to stand in a street being a third thing a clerk had to write down.
 
 That was not the leash. She said it as her own decision, out loud, before he could use any part of it, which is what she has done since the thirty-first.
 
@@ -56,7 +56,7 @@ Tomas Vale sat down in it. He noticed the chair. He noticed that there was one c
 
 *Q. Does this office hold, or has this office ever held, a document in which one hand signs as the answer of more than one household?*
 
-*A. It does. I have personally seen four such returns in one file, in this building, over eleven years, from four different districts, in four different hands of the person who received them, and all four bear at the signature line the same hand, and in each of the four the signatory is described in the receiving clerk's note as the householder, and in no case have I asked whether the person signing is of the house, because this office's form has no column in which that could be entered, and a thing that cannot be entered is a thing nobody asks about. I will describe the hand, because you are the second person in eleven years to ask me and I would like it in a document that is not mine: it leans forward. The descender of the g hesitates and comes back. The downstroke of a d and of a g stop and start in the same place. And it is the same in four counties and in four receiving clerks' hands, and that is the part that convinced me, and I will tell you why, because it is a trade point and you are a craftsman and you will know what I mean — a clerk's hand is never the same twice and a signer's hand is the same every time, and I have been reading four different clerks' copies of one person's writing for eleven years and I have never once been able to see him. I am not going to describe the households to you. I am going to tell you why, and the reason is not modesty: a document in a file is not a person, and I have watched a person become a document in this office in eleven years, and the road to that is a question put in a corridor, and I am not going to put it in a corridor. I will tell you the file, if you will give me a sheet to write it on and I will give you the file and not the houses. — M.C., District Officer, this office, this day, at the twelfth hour.*
+*A. It does. I have personally seen four such returns in one file, in this building, over eleven years, from four different districts, in four different hands of the person who received them, and all four bear at the signature line the same hand, and in each of the four the signatory is described in the receiving clerk's note as the householder, and in no case have I asked whether the person signing is of the house, because this office's form has no column in which that could be entered, and a thing that cannot be entered is a thing nobody asks about. I will describe the hand, because you are the second person in eleven years to ask me and I would like it in a document that is not mine: it leans forward. The descender of the g hesitates and comes back. The downstroke of a d and of a g stop and start in the same place. And it is the same in four counties and in four receiving clerks' hands, and that is the part that convinced me, and I will tell you why, because it is a trade point and you are a craftsman and you will know what I mean — a clerk's hand is never the same twice and a signer's hand is the same every time, and I have been reading four different clerks' copies of one person's writing for eleven years and I have never once been able to see him. I am not going to describe the households to you. I am going to tell you why, and the reason is not modesty: a document in a file is not a person, and I have watched a person become a document in this office in eleven years, and the road to that is a question put in a corridor, and I am not going to put it in a corridor. I will tell you the file, if you will give me a sheet to write it on and I will give you the file and not the houses. — M.C., District Officer, this office, this day, at the tenth hour.*
 
 **His third answer**, in the same hand, and it is the best piece of paper Tomas Vale was given in four days:
 
@@ -108,7 +108,7 @@ He read it twice and then put it down on the table square with the other three, 
 
 ---
 
-There was one more thing, and Tomas Vale asked for it in about nine words and got it in about four, and it is the last thing in this chapter that he will be thanked for and it is not the last thing in the day.
+There was one more thing, and Tomas Vale asked for it in one breath, and it is the last thing in this chapter that he will be thanked for and it is not the last thing in the day.
 
 “District Officer.”
 
@@ -141,11 +141,11 @@ Tomas Vale wrote the four questions out again on his own page before he left, in
 *Third question, the twelfth hour, answered, signed, in his own hand, and the hour is on it, and there is a second sheet, four minutes later, and it is the better one.*
 *Fourth question, about the sixth hour, refused, signed, with a reason, in his own hand, and filed in a book of two hundred and forty entries where any person may ask for it.*
 
-He did not write *answered* three times and *refused* once in one sentence, and he did not write *the district answered three of four questions*, because a sentence like that is a response and a response is the thing this whole business has been about for six days, and there is a book in Kells that says in eleven words that *an empty column is a number that is missing and a sentence is the one thing a Crown office has never had to check*, and he is not going to be the man who merges a colleague's four answers into a paragraph in a book that may be read by somebody hostile in nine years.
+He did not write *answered* three times and *refused* once in one sentence, and he did not write *the district answered three of four questions*, because a sentence like that is a response and a response is the thing this whole business has been about for six days, and there is a book in Kells that says that *an empty column is a number that is missing and a sentence is the one thing a Crown office has never had to check*, and he is not going to be the man who merges a colleague's four answers into a paragraph in a book that may be read by somebody hostile in nine years.
 
 Nobody merged them, including him.
 
-And on the last line of the page he wrote the thing that is the real discovery of this chapter and it is eleven words long and it is the first time in a month that the man who lost everything has said a sentence about his own trade that he is not ashamed of:
+And on the last line of the page he wrote the thing that is the real discovery of this chapter, which is nine words long, and it is the first time in a month that the man who lost everything has said a sentence about his own trade that he is not ashamed of:
 
 *Being right is not the beginning of an exchange. I came four days for a door and there is a man in a chair in a building with an address and he answered three of my questions in his own hand inside an hour and refused the fourth in the same ink with a reason that cost him something, and he did not convert, and he did not repent, and he is not a door and he did not open one, and I would walk four miles back into that room tomorrow.*
 
@@ -161,7 +161,7 @@ At about the sixth hour, in the passage, with the duck's-egg door open behind hi
 
 “In four columns, with the hour against each, and the answers and the refusal in their own, and nobody merging them, and I did that myself and I want you to know I did that myself and that I did it because you told me about an empty column on a towpath four days ago, and I am writing that down as well and it is the same page.”
 
-She took the four sheets off him in the street and read them standing up against a wall, in the open, in front of about eleven people going to market, and it took her about nine minutes, and she did not ask him a single question while she read it, which she has done four times now and which is the highest thing anybody in this batch has been given.
+She took the four sheets off him in the street and read them standing up against a wall, in the open, in front of about eleven people going to market, and it took her until they had gone past, and she did not ask him a single question while she read it, which she has done four times now and which is the highest thing anybody in this batch has been given.
 
 Then she folded them in order and gave them back and said:
 

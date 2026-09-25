@@ -6,7 +6,7 @@ He went back to the smithy at about the sixth hour on the fortieth day with a sh
 
 *— Tomas Vale, maker, of Kells. Nothing here is Crown property. Nothing here is mine either.*
 
-Amos Trewin read it standing in his own doorway at about the sixth hour, and gave it back, and said four words.
+Amos Trewin read it standing in his own doorway at about the sixth hour, and gave it back, and did not answer it for a moment, and then he said the thing that turned the morning.
 
 “That is the first reason anybody has ever given me for wanting a page of a book.”
 
@@ -96,7 +96,7 @@ He wrote the method on a page at about the sixth hour of the evening at an inn h
 
 “If a trade's paper and an office's paper are the same paper,” he said, “what is the one question a person can put to a clerk that the clerk has to answer in his own name?”
 
-She did not answer for about nine seconds, and he could see her working, and it was not a slow answer, it was a careful one, and she did it the way she reads a shoulder: from the outside in, and then in, and then from the outside again.
+She did not answer at once, and he could see her working, and it was not a slow answer, it was a careful one, and she did it the way she reads a shoulder: from the outside in, and then in, and then from the outside again.
 
 “You have been asking offices who is on a list,” Tamsin Rook said. “That is why you have nothing. Everybody asks who. Nobody answers who, because a name is a thing you can be refused, and being refused a name looks like the office protecting somebody, and in a year you will have written a page about a district that will not say a name, and that page will be true, and it will be useless, and you will have spent a year of your life on it.”
 

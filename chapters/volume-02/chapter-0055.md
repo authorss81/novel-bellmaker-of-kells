@@ -100,7 +100,7 @@ He shut the book, which he had not been asked to do, and opened it again, which 
 
 “I am not refusing you because you are a Crown man in a barrow,” Amos Trewin said, “because you are not one, and I said so to a man from the district in the spring. I am refusing you because the ninth column and the eighth column together make a list of houses. A list of houses that have bought metal is a list of houses, and it is a good list, and it is the best list in this county, and I have never sold it and I am not going to sell it to a stranger on a road. There is nothing sinister in my not selling it to you. There is a hundred and forty feet of frontage here and forty people in this village and nine years of my handwriting in it, and I am the only copy, and the day that book leaves this shop there is no second one, and you cannot make a second one out of a shop that has been here for a hundred and forty years.”
 
-“That is the correct answer and I would have given the same one about a bench-book,” Tomas Vale said, “and I gave a page of one away in a yard in front of a hundred and forty people about two weeks ago and I have thought about it every day since, so I am not going to tell a man I understand the cost of it, because I do not understand the cost of it.”
+“That is the answer I would have given too, about a bench-book,” Tomas Vale said, “and I gave a page of one away in a yard in front of a hundred and forty people about two weeks ago and I have thought about it every day since, so I am not going to tell a man I understand the cost of it, because I do not understand the cost of it.”
 
 “You gave a page away?”
 
@@ -144,7 +144,7 @@ And at the top of the page, before either of those, because he had found it and 
 
 *Line — . Persons — . Response — . Returned — .*
 
-*And under it four words in the same hand, and the four words are:* I have not taken this.
+*And under it five words in the same hand, and the five words are:* I have not taken this.
 
 *There is a wax mark at the fold about the size of a thumbnail, and it is copying wax, and my sister has used copying wax in the corner of every letter she has ever left me since she was twenty-one, and I have seen it on four of them, and I have had a workshop and an archive and a mother who is gone and a trade I have lost in a month, and I am thirty-two, and I got that number out of a man who was angry with me when he said it, and he said it in a room, and it is the only time in my life anybody has said it.*
 

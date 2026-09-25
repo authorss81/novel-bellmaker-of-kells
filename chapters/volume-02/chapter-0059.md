@@ -164,4 +164,4 @@ The towpath ran south under them and the water went down to the lower river and 
 
 “Downstream,” Tamsin Rook said, and stopped, and waited to see whether he was going to say it or whether she was going to have to.
 
-He was quiet for about nine seconds, which is long for a man who has two questions in a book.
+He was quiet for the length of a cart going past, which is long for a man who has two questions in a book.

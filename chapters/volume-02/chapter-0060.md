@@ -46,7 +46,7 @@ She said the whole of it in about twenty seconds and then said, at the end, in a
 
 ---
 
-He wrote both of them down at the head of the stage on the boards of a bench, in four columns, in the flat hand, and it took him about nine minutes, and the four columns are these.
+He wrote both of them down at the head of the stage on the boards of a bench, in four columns, in the flat hand, and it took him until the light came off the water, and the four columns are these.
 
 *Column one, Abel Rundle, ferry-man, this stage. Asked the three questions in the same words. Answered the first, yes, and the second, yes, and would carry a paper, in his own words, on a day, and named the fare and would not talk it down. Recorded whole, at about the tenth hour, and not improved.*
 
@@ -78,11 +78,11 @@ And then, because he had promised himself in a shop past a county stone that he 
 
 ---
 
-Her column is in her own hand on the right-hand board, and it is four words, and she wrote it at about the twelfth hour and gave it to him face down and did not explain it and he turned it over and read it.
+Her column is in her own hand on the right-hand board, and it is five words, and she wrote it at about the twelfth hour and gave it to him face down and did not explain it and he turned it over and read it.
 
 *As far as it goes.*
 
-That is the whole of the slate. That is the first line of a slate Mercy Slee wrote in a town four days behind them with the word *leash* on it underlined, and a woman who cannot hear a bell and is not obliged to obey anybody has written four words and gone and sat on a parapet, and she did not write a promise and she did not write a refusal, and she has not improved them, and he is not going to improve them, and he put the board down in the same orientation she had given it to him in.
+That is the whole of the slate. That is the first line of a slate Mercy Slee wrote in a town four days behind them with the word *leash* on it underlined, and a woman who cannot hear a bell and is not obliged to obey anybody has written five words and gone and sat on a parapet, and she did not write a promise and she did not write a refusal, and she has not improved them, and he is not going to improve them, and he put the board down in the same orientation she had given it to him in.
 
 ---
 

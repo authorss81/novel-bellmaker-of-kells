@@ -10,7 +10,7 @@ Then he walked down the eighty yards with nothing in his hands at all, which is 
 
 The bell is on a post at the head of the water and it is a small bell in an iron headstock and it has a rope on it and it is not joined to anything. Marta Vell rang it at about the seventh hour, four strokes, unhurried, and then she coiled the rope and hooked it on the post and went in.
 
-He waited until she came out again, which took about nine minutes, and she had a cloth in her hand and the cloth was wet.
+He waited until she came out again, and she had a cloth in her hand and the cloth was wet.
 
 He got about nine words in.
 

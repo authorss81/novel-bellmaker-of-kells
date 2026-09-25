@@ -16,7 +16,7 @@ The man looked at the barrow in the yard, and at the frame in the cradle on it, 
 
 ---
 
-She bought four. It took her about eleven minutes and a conversation about the price.
+She bought four. It took her the length of a conversation about the price.
 
 The sheet is a road sheet, and a road sheet in this country is a single fold of cheap paper, printed on both sides, and it is bought by carriers, by coachmen, by anybody who is going to be answerable about where they were. The front carries the roads, the ferries, the bridges, the county stones, the coaching stages and their times, and the market towns with the days. The back carries the districts, the post runs, the tide table for the upper and lower water, and the **panels**: five small ruled boxes giving, for each district a carrier may work in, the name of the office where a *return* is to be addressed, the days it is received, and the days it goes out again.
 
@@ -100,7 +100,7 @@ Ruben Sallow put both hands on the counter.
 
 ---
 
-She bought five more of the same sheet, and had them wrapped, and the wrapping was done in about nine seconds by a girl who had been listening to the whole of it from about four feet away and had not moved.
+She bought five more of the same sheet, and had them wrapped, and the wrapping was done in a moment by a girl who had been listening to the whole of it from four feet away and had not moved.
 
 “You cannot ask that man to show you the plate,” the girl said at the counter, not to Tamsin, to the air. “He will not show you the plate. He has never shown anybody the plate. He showed a Crown man the plate once and the Crown man wrote a number down and he has not shown anybody anything since.”
 
@@ -116,9 +116,9 @@ Tomas Vale got a look at it in the yard, sitting on the barrow's shaft with it o
 
 He did not look at the back.
 
-He did not look at the back because a man holding a road sheet on a barrow looks at the *roads* on a road sheet, and she held it open at the roads for eleven minutes while he was getting the horse fed, and when she turned it over to show him the panel he was looking at the tide table.
+He did not look at the back because a man holding a road sheet on a barrow looks at the *roads* on a road sheet, and she held it open at the roads the whole time he was getting the horse fed, and when she turned it over to show him the panel he was looking at the tide table.
 
-And then when she showed him the fourth panel, which was complete, he said *that is a good panel*, and she said *it is*, and he said *the district has thought of something there, naming the day the return goes out*, and she said *it has*, and he said *that saves a carrier a week*, and she said *it does*, and he said *somebody in a district office has sat down and worked out that a return that takes eleven days to get out of a building is a return that gets answered late*, and she said *yes*, and he said *that is the Crown being competent at the one thing that is actually its business*, and she said *yes*, and neither of them said another word about the fifth panel for about nine minutes.
+And then when she showed him the fourth panel, which was complete, he said *that is a good panel*, and she said *it is*, and he said *the district has thought of something there, naming the day the return goes out*, and she said *it has*, and he said *that saves a carrier a week*, and she said *it does*, and he said *somebody in a district office has sat down and worked out that a return that takes eleven days to get out of a building is a return that gets answered late*, and she said *yes*, and he said *that is the Crown being competent at the one thing that is actually its business*, and she said *yes*, and then neither of them said another word about the fifth panel until the light had gone along the yard wall.
 
 It was she who put her thumb on it in the end, and she said: *Look at this one.*
 

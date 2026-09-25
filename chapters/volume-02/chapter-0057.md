@@ -10,7 +10,7 @@ She asked the ostler where he kept the book.
 
 “The book for the yard. Stabling, carts, and anything a person leaves.”
 
-He brought it out and it is a quarto with a column for the day, a column for the thing, a column for whose, and a column for the hour, and it is kept with a stub of pencil and not a pen, and the last four days of it are in a carter's hand and a carter's hand is not a good hand and Tomas Vale's is a very good one, and it took her about nine minutes to work out that nobody had ever been asked to use this book as a witness to anything.
+He brought it out and it is a quarto with a column for the day, a column for the thing, a column for whose, and a column for the hour, and it is kept with a stub of pencil and not a pen, and the last four days of it are in a carter's hand and a carter's hand is not a good hand and Tomas Vale's is a very good one, and it took her the length of the yard to work out that nobody had ever been asked to use this book as a witness to anything.
 
 “You want a line in it,” the ostler said.
 
@@ -58,7 +58,7 @@ And it does not have a name on it.
 
 “Then I am going to write in this book at the second hour that a request was produced by a person who gave no name and who had no witness at the time of making it, and I am going to write it in that order, and the order is the whole of the fairness in it, and if you would rather I wrote it in another order you may say so now and I will write it in another order and enter that you asked.”
 
-The man did not say anything for about nine seconds.
+The man did not say anything for long enough that a barrow came through the yard behind him.
 
 “Write that,” he said.
 

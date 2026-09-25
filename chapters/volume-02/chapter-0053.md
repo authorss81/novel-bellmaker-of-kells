@@ -30,7 +30,7 @@ There is a room with a table in it and a fire that is not lit, and five people i
 
 That was not what he had planned. What he had planned was what he had done in Kells for a month: ask each of them the same three questions, separately, one person at a time, in a different room if there was more than one room, and write down what each of them said in his own words with the hour against it, and put the five answers in five columns and not merge them, because that is the whole of what that town had learned in twenty-one days and it is the only method anybody has ever seen work.
 
-He asked the first one and got an answer that took about nine minutes and was about the water. He asked the second and got an answer that took about four minutes and was about a brother-in-law who had not come back for a funeral. He asked the third, who was about nineteen, and who said *I do not know anything about forms* and then, after about a minute, said *there is a thing on the table I am not supposed to have touched*, and Tomas Vale said *you are not going to be asked about it and you are not going to be asked to say anything at all*, and the boy said *right*, and sat down, and that was the third answer.
+He asked the first one and got an answer that took the whole of the standing-up and was about the water. He asked the second and got an answer that took about four minutes and was about a brother-in-law who had not come back for a funeral. He asked the third, who was about nineteen, and who said *I do not know anything about forms* and then, after about a minute, said *there is a thing on the table I am not supposed to have touched*, and Tomas Vale said *you are not going to be asked about it and you are not going to be asked to say anything at all*, and the boy said *right*, and sat down, and that was the third answer.
 
 Then Maud Prine stopped him.
 
@@ -46,7 +46,7 @@ Then Maud Prine stopped him.
 
 The form is a **supplementary return**, and Tomas Vale had seen the species of it twice in a month and had never seen this one filled in, and it is a good form.
 
-It is two sides. The first side asks the household what it wishes to state, and gives it four lines to say it in, under a heading that reads *reason, in the household's own words*, and that heading is the single best thing the Crown put in front of a ward in the whole of the twenty-one days he had spent watching it, and it is on the form because somebody in a Crown office had listened to a girl of sixteen for about nine minutes in an arcade. The second side asks for a name of a person present at the answering, and for the hour, and it says in its own small print at the foot: *A statement returned before the closing hour of the period stated above will be certified.*
+It is two sides. The first side asks the household what it wishes to state, and gives it four lines to say it in, under a heading that reads *reason, in the household's own words*, and that heading is the single best thing the Crown put in front of a ward in the whole of the twenty-one days he had spent watching it, and it is on the form because somebody in a Crown office stood in an arcade long enough to hear a girl of sixteen out. The second side asks for a name of a person present at the answering, and for the hour, and it says in its own small print at the foot: *A statement returned before the closing hour of the period stated above will be certified.*
 
 That is the whole of the Crown's promise and it is a good one. It means that a household which says something, in its own words, before a date, gets a stamp. And the stamp is worth having, because a stamped answer is a return, and a return is a thing an office cannot send anybody to a door about.
 
@@ -132,7 +132,7 @@ The man at the end of the table, who had said nothing at all for the whole of it
 
 “The certified statement from six years ago,” he said. “The one your brother-in-law signed. Not this year’s, which is on the table and which the office expects back. The old one, which is a record and not an instrument.”
 
-Maud Prine took her hand off the table and looked at the heap for about nine seconds.
+Maud Prine took her hand off the table and looked at the heap, and looked at it long enough that nobody at the table said anything.
 
 “I may give you that,” she said. “It is ours and it is a record and we are not using it, and I may give it to you because I am the one in this house who does the writing and the paper is in my keeping. I may not give you the one on the table, because that one is going back to the office on the fourth day and if it does not go back then this house is on a schedule twice, and I am not going to be the reason a house is on anything twice.”
 
@@ -168,7 +168,7 @@ The man called Matthew would not look at him for the last hour and did not thank
 
 He got the barrow at the fourth hour of the afternoon and wrote the hour and did not put the day-book away, and at about half past four he stood in the lane above the lane and wrote a thing that is on the page because he wrote it in a flat hand standing up, in daylight, with nobody watching:
 
-*Asked them apart. Knew it would not work about nine minutes after I started, and did it anyway, because it is the only instrument I have learned this month and because a thing that worked in a town of four hundred and eleven is a thing I want to be true of me. It was not true of me. They would not be a witness to themselves and they were right not to, and the reason they were right is better than the reason I was wrong.*
+*Asked them apart. Knew it would not work before I had finished the second one, and did it anyway, because it is the only instrument I have learned this month and because a thing that worked in a town of four hundred and eleven is a thing I want to be true of me. It was not true of me. They would not be a witness to themselves and they were right not to, and the reason they were right is better than the reason I was wrong.*
 
 *And then they were asked together, and did not enjoy it, and answered anyway, and gave me the only thing in this lane that anybody could give me, which is a sheet of paper out of a drawer, given by the person whose hand it is, without a name, without a signature, and with the condition attached that the paper still in the door must go back on the fourth day. I am carrying a Crown form signed by a man for a household of six, in a hand he wrote once, dated six years ago, given to me by a woman who has been forwarded twice and has put her own terms on giving it away.*
 
@@ -176,6 +176,6 @@ He got the barrow at the fourth hour of the afternoon and wrote the hour and did
 
 *Cost, and I am putting it here because I have learned to put it where the person who paid it can see it: I have made a man in a lane of six houses dislike me, at his own table, on his own afternoon, for no reason that is his fault or mine, and he will not be thanked, and he is right.*
 
-At about the seventh hour of the evening he came down to the top of the lane and stopped, and looked back up it, and the six-day heap was in a room with the door shut, and somewhere in that heap, under five stamped returns and one unstamped one, there were five dates in one young man's hand, none of which he had been alive to write.
+He came down to the top of the lane at about the seventh hour of the evening and stopped, and looked back up it, and the six-day heap was in a room with the door shut, and somewhere in that heap, under five stamped returns and one unstamped one, there were five dates in one young man's hand, none of which he had been alive to write.
 
 *And there is one thing on the top sheet that does not fit and I am putting it here because I am not going to leave it out of the book in case I forget it: the name in the box this year is not that hand. It is a different hand. It is a careful hand, and it is not one of the six, and I asked no questions about it, because Maud Prine told me to leave, and because I have spent this month asking questions separately and I am not going to start again up a lane because it is what I know.*
