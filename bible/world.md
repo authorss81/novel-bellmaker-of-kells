@@ -53,7 +53,7 @@ The northern line where the network failed during the Hush of Kells. It contains
 - **Reckoning 402 — The Hearthline Pact:** Nine settlements build a shared warning network after the Blackwater Famine. The pact requires local answers, physical redundancy, and the right to withdraw. It creates no permanent central relay.
 - **Reckoning 487 — The Sennet conquest:** The Crown takes Mereward and gains control of the roads, archives, and copper supply. The old bells continue to work locally because their keepers have not surrendered their responses.
 - **Reckoning 493 — The Quiet Edict:** Sennet legalizes Crown answers. A clerk may answer for a household, a workshop, or a ward in the name of public order. The first Crown clappers are installed.
-- **Reckoning 509 — The Hush of Kells:** A northern rebellion and a network failure cause several lines to go silent. The Crown blames bellmakers and removes independent keepers. There is no single publicly accepted account of who ordered the final severing.
+- **Reckoning 619 — The Hush of Kells:** Twelve years before the present, a northern rebellion and a network failure cause several lines to go silent. The Crown blames bellmakers and removes independent keepers. There is no single publicly accepted account of who ordered the final severing.
 - **Reckoning 619 — The Renewal Campaign:** The Crown begins requiring households to renew a civic oath. Refusal removes a person from the legal rolls and can place their children, land, or tools under municipal custody.
 - **Reckoning 631 — The present:** Tomas Vale hears a warning in Kells before the **Silent Muster** takes place. The crime is planned, and the warning is a genuine consequence of accepted responsibility rather than prophecy.
 

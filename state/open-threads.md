@@ -1,40 +1,48 @@
 # Open Threads
 
-These are planning promises established during bootstrap. They are not chapter events until written into prose.
+These are active promises after Volume 01, Batch 0001. They are not resolved merely because a clue has appeared.
 
 ## Immediate Volume 01 threads
 
-- Why did the fixed stripped Crown survey carrier ring in Tomas's locked workshop, who removed its clapper, and who drove the final route pulse?
-- Who does the child-sized handprint belong to, and why is Nell's household absent from the civic rolls?
+- Who removed the fixed stripped Crown survey carrier's survey clapper, who left Mara's attributed note, and who drove the first route pulse?
+- Does the child-sized wax handprint belong to Jory Fenn, and why is the Fenn household absent or incomplete in the civic rolls?
+- Why were Jory and Edan Fenn taken before the posted L-4 notice, and what earlier or continuing process connects their disappearances to the inspection?
+- Who is the missing local surveyor whose service entry is withdrawn, and why does the name Iven Sore appear on the route docket?
+- Why do the “J. Vale” lock-register sign-out and the “J. V.” maintenance tag echo one another? Is the echo a false name, a copied record, or a real person?
+- How did the fixed carrier's sound travel through the Bellhouse coupling, the north-gate relay, and the bypass? Which physical sound initiated each repetition?
 - Is the rescheduled dawn inspection a lawful renewal visit or the opening move of the **Silent Muster**?
-- How did Mara leave the warning note and connect the sound to the Crown inspection from inside the Quiet Office?
-- Who turned an official response into something that sounds like Kells-wide acceptance?
-- Can Tomas obtain three independent local answers without turning their disagreement into obedience?
-- Why does Tamsin's recovered courier handbell repeat one Low Ward signal beyond its authorized route?
-- What did Tomas's rope cut during the Hush cost, and what does Oren need to hear from him?
+- How did Mara connect the warning to the Crown inspection from inside the Quiet Office, and what does her note omit?
+- Why was Tamsin's courier handbell altered to repeat a Low Ward signal beyond its authorized route, and who used the maintenance key?
+- Can Tomas obtain three independent local answers without turning disagreement into obedience?
+- Can the town test a public warning before the rescheduled dawn without borrowing the private trial handbell's authority?
+- Who or what turns an official response into something that sounds like Kells-wide acceptance? The copied-answer mechanism remains unexposed.
+- What did Tomas's rope cut during the Hush cost, and what public account will Oren require when the old history is confronted?
 
-## Batch 0001 reveal limits
+## Chapters 11–20 planned pressure
 
-- Chapters 1–10 may establish the physical route, the pre-filed inspection and its seven-day pending-hearing stay, the consent chain, and one private Stage 1 warning.
-- Chapters 1–10 must not identify the copied-answer source or Crown clapper, reveal the Silent Muster's name-transfer mechanism, burn the archive, close the Vale Bellhouse, execute Halden's broader bell seizure, or send Tomas out of Kells.
-- The fixed Crown survey carrier, Tamsin's stolen courier handbell, and Tomas's newly cast trial handbell remain separate objects after the batch.
-- The fixed stripped carrier enters neutral watch custody in Chapter 10 under the writ's seven-day pending-hearing clause, remaining in its mounting frame. Before Tomas leaves Kells in Chapters 41–50, a later custody review must release that same object to him; the retaining bolts are released only for travel, and the frame travels in a reinforced padded cradle. No second stripped bell may replace it silently.
+- Test the warning against ordinary promises and flood danger; the three-answer public signal must preserve disagreement.
+- Let Halden's seizure pressure and Oren's public judgment develop without executing the full workshop seizure or closing the Bellhouse.
+- Keep the rescheduled inspection as a seven-day deadline; do not confuse it with the original dawn.
+- Allow Tamsin and Nell to choose their own limited actions; neither becomes Tomas's representative or a magical relay.
+- Keep the route physical and the evidence public enough to challenge, but do not expose the later copied-answer source.
 
 ## Series mystery threads
 
 - Who installed the first Crown clapper, and why did the Hearthline accept it?
 - What did Lira Vale know when she became a living anchor, and what parts of her choice were coerced?
 - Where are the names transferred by the Crown's **name levy** physically sent?
-- What is the exact origin of the first Hearthline bell? The answer is intentionally incomplete and must not become a new final threat.
+- What is the exact origin of the first Hearthline bell? The answer remains intentionally incomplete and is not a new threat.
 - How many Hushline settlements were erased, displaced, or absorbed into the Crown's route system?
+- The Hush of Kells is fixed at Reckoning 619, twelve years before the present. What record, if any, survives of who ordered the final severing?
 
 ## Relationship and character threads
 
 - Tomas must learn to ask Tamsin what she wants instead of deciding for her.
 - Mara must decide whether public truth can coexist with family privacy.
-- Oren must decide how to judge Tomas without turning grief into permanent punishment.
+- Oren must judge Tomas without turning grief into permanent punishment.
 - Sabin must teach consent as a craft rule, not only as a moral opinion.
 - Nell must choose whether a missing parent can be pursued through a fair network rather than a forced signal.
+- Tamsin and Tomas need repeated work together before romance can become a chosen partnership; no bell may make their relationship binding.
 
 ## Ending constraints
 

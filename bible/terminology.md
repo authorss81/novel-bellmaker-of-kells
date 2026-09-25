@@ -120,7 +120,7 @@ The oldest surviving relay chamber. Originally a place to compare local answers 
 
 ### Hush
 
-The network failure of Reckoning 509. “Hushed” means that bells and routes have stopped carrying reliable answers. It does not mean every bell is physically broken, and it does not mean the old history is fully known.
+The network failure of Reckoning 619, twelve years before the present. “Hushed” means that bells and routes have stopped carrying reliable answers. It does not mean every bell is physically broken, and it does not mean the old history is fully known.
 
 ### Holding ring
 
