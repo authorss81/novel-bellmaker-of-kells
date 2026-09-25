@@ -6,7 +6,7 @@ Tomas is 32, still the practical third-generation bellmaker and keeper of the Va
 
 ## Tamsin Rook
 
-Tamsin is 29, a former Crown road-ringer and signal courier recovering from forced-resonance hearing damage. She has recovered her stolen handbell, which was altered to carry a Low Ward signal beyond its authorized route, and retains possession of it. She agrees to supervised comparison and to carry a written route record, not a warning or an authority. Her skepticism is grounded in having obeyed a route that lied; she is interested in Tomas's evidence but does not grant him control of her route.
+Tamsin is 29, a former Crown road-ringer and signal courier recovering from forced-resonance hearing damage. She has recovered her stolen handbell, which was altered with wax laid over an older signal so a Low Ward warning carries beyond its authorized route, and retains possession of it. She agreed to one supervised daylight comparison on the Bellhouse threshold and let Tomas read the wear without touching the bell; the formal watched comparison remains outstanding. She agrees to carry a written route record, not a warning or an authority. Her skepticism is grounded in having obeyed a route that lied; she is interested in Tomas's evidence but does not grant him control of her route.
 
 ## Oren Pike
 
@@ -18,7 +18,7 @@ Nell is 16, a Low Ward apprentice who repairs small bells. Her younger brother J
 
 ## Sabin Fell
 
-Sabin is 61 and Tomas's former master. He teaches the old consent mechanics and refusal test but refuses to explain the Hearthline's history, bind the carrier, or place his name under Tomas's claim. He remains a conditional mentor rather than a substitute father or institutional protector.
+Sabin is 61 and Tomas's former master. He teaches the old consent mechanics and refusal test but refuses to explain the Hearthline's history, name the shape of a route failure beyond relay distortion, bind the carrier, or place his name under Tomas's claim. He carries his own unspoken guilt about the Hush and is a conditional mentor rather than a substitute father or institutional protector.
 
 ## Halden Crake
 
@@ -27,6 +27,10 @@ Halden is the Kells deputy reeve, acting locally under a Crown inspection commis
 ## Mara Vale and Lira Vale
 
 Mara is Tomas's estranged sister, a Quiet Office copyist whose note is attributed but not proven. Her warning says not to call the carrier's sound an answer, and her route into the inspection remains unknown. Lira remains missing from Tomas's immediate life; the batch adds no new information about her fate.
+
+## Iven Sore
+
+Iven Sore is the living master of the Bellwrights' Measure and has not yet appeared in prose. His name appears on the Crown route docket in Chapter 8, where the local surveyor's service entry has been withdrawn and the surveyor is missing. Oren declines to confirm that the docket's name and the missing surveyor are the same person. Tomas wants a name to attach blame to and is not entitled to one yet.
 
 ## Relationship and civic movement
 

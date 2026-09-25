@@ -6,7 +6,7 @@ Tomas Vale heard the cart wheels grinding over the wet stones before he saw the 
 
 He set down the file and went to the door.
 
-Two Crown porters stood beside a low handcart. The carrier rested upright in a wooden mounting frame, its broad bronze-green body lashed with leather straps. It was taller than a man's waist and broad enough that a child could not have lifted it. A brass plate on its side identified it as a survey carrier from the Crown maintenance store. The plate had been polished recently. The bell itself had not.
+Two Crown porters stood beside a low handcart. The carrier rested upright in a wooden mounting frame, its broad bronze-green body lashed with leather straps. It was taller than a man’s waist and broad enough that he could not have got both arms around it. A brass plate on its side identified it as a survey carrier from the Crown maintenance store. The plate had been polished recently. The bell itself had not.
 
 “The north-gate route?” Tomas asked.
 
@@ -49,6 +49,8 @@ He did not touch the body. He put one hand on the mounting frame instead and fel
 “Get the clerk who delivered it,” Tomas said. “And bring the repair order.”
 
 He was already moving. From the shelf beside the bench he took a clean sheet of oiled paper, a charcoal stub, and his smallest brass caliper. He measured the warp without shifting the carrier. Three-eighths at the lowest point. The crown strap was older than the frame. One rivet had been replaced with copper of a different color. A narrow scratch ran beneath the western lip, deep enough to catch a fingernail but not deep enough to explain the sound by itself.
+
+He measured the warp a second time and got the same figure, which settled nothing. A hand that can file a note to within a hair still shakes after a bad night, and a shaking hand writes down whatever it expects to find. Twelve years ago his hand had been steady while something that ought to have been loud went quiet, and he had spent every year since treating the two facts as if one proved the other.
 
 Tomas copied each mark onto the paper, then drew the frame, the empty crown, and the place where the bell had stood. He wrote the time in the corner: first light, before the Crown surveyor arrived. The surveyor was late. That fact might matter later, though he did not yet know how.
 
@@ -98,7 +100,7 @@ Pever’s gaze moved to the note beneath Tomas’s shirt. Tomas saw him notice a
 
 They worked for an hour. Tomas demonstrated the warp, the loose crown strap, and the damaged coupling under the floor. Pever wrote measurements in a small red book and ordered the porter to leave the frame in the casting room. He wanted the carrier sealed there until an official mechanic could be sent from Sennet. Tomas agreed, with one condition: the frame would remain accessible while he documented every mark.
 
-At noon, Pever finally left. The carrier stood in the center of the casting room, still upright, still empty of a clapper. The warped lip caught the gray light. The child’s wax handprint faced the door.
+Pever stayed until noon, wrote out the measurements again in a fairer hand, and left. The carrier stood in the center of the casting room, still upright, still empty of a clapper. The warped lip caught the gray light. The child’s wax handprint faced the door.
 
 Tomas cleaned the tools, then stopped. He picked up the tuning hammer and tapped the frame twice, a habit his father had used to mark a thought before speaking. The carrier gave no answer. He did not know whether the route beneath the floor had carried a pulse into the bell or whether some other physical vibration had done it. The cut coupling was a possibility, not a conclusion.
 
@@ -106,4 +108,4 @@ He locked the casting room, pocketed the route fragment, and left the note in hi
 
 Then the carrier rang again, though no one was near it.
 
-Tomas put his hand on the locked door and listened. The note was low, thin, and unmistakably meant for someone who had not yet learned how to answer.
+Tomas put his hand on the locked door and listened. The note was low, thin, and it lasted longer than the cut coupling underneath him could account for.

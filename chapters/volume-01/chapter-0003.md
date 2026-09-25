@@ -2,7 +2,7 @@
 
 Tamsin Rook reached Kells the next morning, shortly before noon, with one boot scraping mud, three hours of sleep behind her, and no handbell.
 
-The absence had a weight of its own. It sat against her hip where the small case normally hung, and every time she turned through a crowded lane she expected the faint copper knock of it against her thigh. Nothing answered. The north-gate relay lockbox had been opened with a master key sometime in the night, its wax seal cut cleanly enough that the watch first suspected a careless clerk. Tamsin knew the cut was not careless. The lockbox had been opened from the inside, and the theft had been arranged to look like an accident of procedure.
+The absence had a weight of its own. It sat against her hip where the small case normally hung, and every time she turned through a crowded lane she expected the faint copper knock of it against her thigh. Nothing answered. The north-gate relay lockbox had been opened with a master key sometime in the night, its wax seal cut cleanly enough that the watch first suspected a careless clerk. Tamsin knew the cut was not careless. Nothing had been forced, and the wax had been laid back down by a hand that knew the job. The theft had been arranged to look like an accident of procedure.
 
 She kept the route map in her coat and the missing-lock report folded in the market court. She did not ask the north-gate watch for help. That was a mistake she could not afford twice.
 
@@ -72,7 +72,7 @@ Tamsin thanked him and stood. The watchman had heard enough.
 
 “I wasn’t planning to ask him for permission.”
 
-The alley smelled of wet lye and old rope. Tamsin found a scrap of pale wax near the cooper’s threshold, flattened by a heel. It held a fine gray strand, not the red wax of the Bellhouse handprint. She lifted it onto the edge of her route map. The strand came from a Crown courier cord, used to tie down a case during rain. Someone had carried the handbell through here under cover of a delivery.
+The alley smelled of wet lye and old rope. Tamsin found a scrap of pale wax near the cooper’s threshold, flattened by a heel. It held a fine pale strand. Tamsin lifted the scrap onto the edge of her route map. The strand came from a Crown courier cord, used to tie down a case during rain. Someone had carried the handbell through here under cover of a delivery.
 
 A shopkeeper came out carrying a board. “You’re looking for Rook’s little bell?”
 
@@ -98,7 +98,7 @@ The lockbox stood in a stone niche beside the north gate, beneath a roof of lead
 
 Tamsin crouched and examined the lock. No scratches. The key had turned cleanly. She touched the lower hinge and found fresh grease. Someone had maintained the box recently. Someone who knew which parts to oil and which marks to leave.
 
-A small gray fiber clung to the hinge. She wound it around her finger. Not courier cord. Wool, dyed the green of the dyer’s alley. The stolen bell had been wrapped in that cloth, or its thief had been.
+A small fiber clung to the hinge. She wound it around her finger. Not courier cord. Wool, dyed the green of the dyer’s alley. The stolen bell had been wrapped in that cloth, or its thief had been.
 
 Tamsin stood as the watch arrived in force. Captain Oren Pike came through the gate with two men behind him. He was broad and tired, with a leather strip tied around his left wrist. His gaze found Tamsin, then the empty lockbox.
 
@@ -274,7 +274,7 @@ Tamsin glanced toward the empty lockbox. “I will compare a handbell, not decid
 
 “Good. The comparison is mine to accept or refuse, and the answer will remain mine.”
 
-Tamsin folded the map and tucked it into her coat. The gray wool fiber remained caught in her finger. She unwound it and placed it beside the lock register.
+Tamsin folded the map and tucked it into her coat. The green wool fiber remained caught in her finger. She unwound it and placed it beside the lock register.
 
 The wool led her back through the alley and behind the cooper’s stalls. Mira, the girl with the green scarf, was waiting beneath a loading board, as if she had known someone would follow. She pointed toward a ladder fixed to the cooper’s loft.
 
@@ -286,7 +286,7 @@ The wool led her back through the alley and behind the cooper’s stalls. Mira, 
 
 Tamsin climbed. The loft smelled of shavings and oil. A Crown delivery cloth lay beneath a broken hoop, and under it lay the courier handbell.
 
-It was smaller than the fixed survey carrier by half, with a flattened crown and a handle worn pale on one side. A dark line of wax had been worked into the crown’s groove, widening the old signal beyond its assigned route. The alteration was crude. Whoever had made it had not understood how to tune the handbell so much as how to make it obey longer.
+It was a handbell, no wider than her palm across the flattened crown, with a handle worn pale on one side where years of a courier’s grip had polished the metal. A dark line of wax had been worked into the crown’s groove, widening the old signal beyond its assigned route. The alteration was crude. Whoever had made it had not understood how to tune the handbell so much as how to make it obey longer.
 
 Tamsin wrapped the bell in the delivery cloth and sat with it until her breathing had slowed. The old pressure behind her ear returned as she touched the crown. She let it come. It did not tell her who had stolen the bell or why.
 
@@ -318,7 +318,7 @@ Oren looked toward the empty lockbox. “You are asking for a joint record.”
 
 “They usually are.”
 
-Tamsin folded the cloth around the handbell and tied it to her belt. The familiar weight returned, lighter than the case and more dangerous than the missing lock had been.
+Tamsin folded the cloth around the handbell and tied it to her belt. The familiar weight returned, lighter than the case had been and heavier than the report in her pocket.
 
 At the door, she looked back once more. The empty hooks caught the gray light. Someone had taken a small bell because it could carry a signal farther than it had been authorized to. Someone else had left a route that pointed toward a fixed carrier with no clapper. The two facts did not yet form a conclusion, but they were no longer separate accidents.
 
@@ -352,7 +352,17 @@ The admission took some of the anger out of her. Not all of it.
 
 “Ask, then. I may still say no.”
 
-Tomas stepped aside. Tamsin entered the Bellhouse with the recovered handbell, the route map, and the boundary she had chosen. The fixed carrier remained locked in the casting room. None of the three bells shared a frame.
+She unwrapped the cloth on the threshold, where the street and the casting-yard wall could both see it, and set the handbell on the bench. Tomas did not pick it up. He leaned over it and counted what a maker can count without touching: the flattened crown, the pale wear on one side of the handle, and the dark line of wax laid into the groove.
+
+“The wax is over an older signal,” he said. “It was not cut into it. Whoever did this wanted the same note to travel further, not a different note.”
+
+“He had a key,” Tamsin said. “That is what I have. You have a habit.”
+
+“It is a poor substitute for a name.”
+
+“It is the one I have.”
+
+She wrapped the handbell again before she came the rest of the way inside. Tomas stepped aside. Tamsin entered the Bellhouse with the recovered handbell, the route map, and the boundary she had chosen. The fixed carrier stayed where it was, upright in its frame in the locked casting room.
 
 Tamsin looked back once as she passed the threshold. “You do not get to turn my bell into a command because you are afraid of what happens if it stays silent.”
 

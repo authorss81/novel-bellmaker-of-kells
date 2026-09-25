@@ -1,6 +1,6 @@
 # Chapter 0006 — The Order Before the Bell
 
-The notice on the public board had been pinned there for three days, but the rain had loosened one corner and the clerk had not thought to replace it. Tomas arrived at market court with Nell’s waxed copy of the household fragment in a packet and the fixed carrier’s measurements in another pocket. He had not brought the carrier. The casting-room door remained locked, and the route beneath the Bellhouse had been covered with a board weighted by an iron block.
+The notice on the public board had been pinned there for five days, but the rain had loosened one corner and the clerk had not thought to replace it. Tomas arrived at market court with Nell’s waxed copy of the household fragment in a packet and the fixed carrier’s measurements in another pocket. He had not brought the carrier. The casting-room door remained locked, and the route beneath the Bellhouse had been covered with a board weighted by an iron block.
 
 Deputy Reeve Halden Crake stood beneath the court’s tiled roof with two Crown officers and the same thin clerk from the landing office. The clerk held a short ledger against his chest. A knot had tied itself in the string of his seal case.
 
@@ -46,7 +46,7 @@ The order read:
 
 CROWN RENEWAL INSPECTION  
 LOW WARD — WEST ROAD — ROUTE L-4  
-DAWN, FIFTH DAY FROM POSTING
+DAWN, SEVENTH DAY FROM POSTING
 
 The paragraph beneath it authorized entry into dwellings and examination of household rolls. It named “unregistered minors” as public assets pending civic review. A final line permitted removal of any signal apparatus that obstructed the inspection.
 
@@ -90,7 +90,7 @@ The clerk unhooked a small wooden board from beneath the court’s shelter. On i
 
 FILED: THREE DAYS BEFORE THE CARRIER SOUNDED  
 ROUTE: L-4  
-DAWN: FIFTH DAY FROM POSTING
+DAWN: SEVENTH DAY FROM POSTING, THE POSTING DAY COUNTING AS THE FIRST
 
 The writing was plain. Tomas asked the clerk to include the seal impression. The clerk hesitated, then pressed the seal onto the board. The red wax left a broken circle around the Crown mark.
 

@@ -1,10 +1,8 @@
 # Chapter 0005 — The Child Who Was Not Named
 
-Nell Fenn’s room was above a chandler’s shop in the Low Ward, reached by stairs that leaned toward the river. The door did not close fully because the frame had warped with damp. Inside, a narrow bed stood under the window, a cook pot hung over a small hearth, and three people had made the room their office without a clerk to record the work.
+Nell Fenn’s room was above a chandler’s shop in the Low Ward, reached by stairs that leaned toward the river. The door did not close fully because the frame had warped with damp. Inside, a narrow bed stood under the window, a cook pot hung over a small hearth, and two other people had made the room their office without a clerk to record the work: the landlady, who had flour on her sleeves and was sorting buttons into bowls for a merchant two streets up, and a lodger with a limp, sharpening a knife that did not need sharpening. Neither looked pleased to see Tomas.
 
-A woman with flour on her sleeves was sorting buttons into bowls. A man with a limp sat by the window, sharpening a knife that did not need sharpening. Neither looked pleased to see Tomas.
-
-“My mother is at the laundry,” the woman said. “If you’re here about the rent—”
+“Fenn’s mother is at the laundry,” the landlady said. “If you’re here about the rent—”
 
 “I’m here about the paper,” Tomas said.
 
@@ -30,7 +28,7 @@ Tomas looked at the copied print. “Your father?”
 
 “Edan Fenn. He went to answer the renewal notice five days ago. A clerk gave him a paper and told him to bring the family rolls. He said he would return before the market closed. He did not.”
 
-The woman at the table stopped sorting buttons. “Edan was a good rope-maker. He did not run from debt. He ran toward trouble.”
+The landlady stopped sorting buttons. “Edan made good rope. He did not run from debt. He ran toward trouble.”
 
 “Did anyone see where he went?”
 
@@ -40,9 +38,11 @@ Tomas asked for the record. Nell retrieved a folded sheet from beneath the bed. 
 
 The Fenn household was listed as three people, but the names did not match the family Nell knew. A fourth line had been cut away so neatly that only the edge of the letters remained. The children’s names were written below in a different hand, as if added after the family had already been recorded.
 
-Under the surviving lines, a clerk had added: Nell is a person in her own right. Jory is not here. The cut line was where Jory should have appeared, though the fragment alone could not prove that.
+Under the surviving lines, a clerk had written: Nell Fenn, enumerated. Jory Fenn, not returned. The cut line was where Jory should have appeared, though the fragment alone could not prove that.
 
-Tomas read it twice. “This is not a civic roll.”
+Tomas read it twice. The two entries were in the same hand, the same ink, and the same unhurried order. Nobody had made an exception for the boy. They had made a line for him and then written that he was elsewhere.
+
+“This is not a civic roll.”
 
 “It came from the board,” Nell said. “The clerk gave it to my mother when she asked why Jory was missing.”
 
@@ -112,15 +112,17 @@ Tomas felt the answer settle between them. It was not the answer he could give q
 
 “All right,” he said. “We start with the roll.”
 
-Nell gave him the date beneath the seal. It was the same date printed on the Crown notice Tomas had seen in the landing office. Three days before the fixed carrier rang.
+Nell gave him the date beneath the seal. It matched the date the market-court board carried under the L-4 heading, in the small line the loose corner nearly hid. Three days before the fixed carrier rang.
 
-Jory had been taken six days earlier and Edan five days earlier. This notice therefore could not be the beginning of their disappearances, though it might be part of the same process. Tomas wrote that possibility beside the date and did not turn it into a conclusion.
+Jory had been taken six days earlier and Edan five days earlier. This notice therefore could not be the beginning of their disappearances, though it might be part of the same process. Tomas copied the date onto the back of his hand instead of onto a sheet, because a date looked at too long begins to argue for itself.
 
-Sabin’s shop, the route beneath the Bellhouse, the west road, and this household record had all arrived at the same point in time. Tomas wrote the date on a clean sheet and did not add a conclusion.
-
-Nell noticed. “You are not writing that it means something.”
+Nell watched his hands. “You are not writing that it means something.”
 
 “I am writing what I know.”
+
+“Sabin’s shop, the route under your Bellhouse, the west road, and this piece of paper all say the same thing, and you are not writing down what the thing is.”
+
+“I am writing it in what I do,” Tomas said. “That is slower.”
 
 “My mother says you always keep the danger in your hands.”
 
@@ -154,4 +156,4 @@ He copied the seal, date, and surviving lines onto a separate sheet, then return
 
 She nodded. “I know how records disappear.”
 
-It was the first useful thing she had said that made him want to stay.
+It was the first thing she had said that he wanted to keep.

@@ -11,11 +11,11 @@ Last batch summary: `state/batch-0001-summary.md`
 
 Tomas Vale remains in Kells and the Vale Bellhouse remains open, but the workshop is under Crown scrutiny. A fixed, waist-high stripped Crown survey carrier is in neutral Kells watch custody under a seven-day pending-hearing stay. It remains in its mounting frame; the retaining bolts were released only for transport. Crown ownership is unresolved, and the carrier is not the trial handbell.
 
-Tomas's newly cast trial handbell remains at the Bellhouse under a written no-public-ringing order. It is bound to the posted-notice sliver, Tomas's narrow warning duty, and Nell Fenn's one informed private answer. The loose working bells also remain at the Bellhouse under the same no-ringing order. Tamsin Rook retains her recovered stolen courier handbell and has agreed only to supervised comparison of its wear.
+Tomas's newly cast trial handbell remains at the Bellhouse under a written no-public-ringing order. It is bound to a sliver of the market-court L-4 posting wedged into its frame as witness matter, Tomas's narrow warning duty, and Nell Fenn's one informed private answer. The loose working bells also remain at the Bellhouse under the same no-ringing order. Tamsin Rook retains her recovered stolen courier handbell after one supervised daylight comparison, and the formal watched comparison is still outstanding.
 
 ## Active threats and promises
 
-The Crown's filed dawn Low Ward inspection on route L-4 has been delayed by the seven-day hearing clause, not canceled. The full Silent Muster, its use of unregistered children's names, the copied-answer mechanism, the missing local surveyor, and the fate of Lira Vale remain unresolved. The next civic obligation is a three-answer public test that can preserve disagreement without becoming a command.
+The Crown's filed dawn Low Ward inspection on route L-4 was for the morning after Chapter 10 and has been delayed by the seven-day hearing clause, not canceled. The full Silent Muster, its use of unregistered children's names, the copied-answer mechanism, the missing local surveyor, and the fate of Lira Vale remain unresolved. The next civic obligation is a three-answer public test that can preserve disagreement without becoming a command.
 
 ## Relationship pressure
 
@@ -27,4 +27,4 @@ Tomas began at Stage 0 (Hand) and ends at the first edge of Stage 1 (Near Toll).
 
 ## Next planned work
 
-Write Volume 01, Chapters 11–20 from `workspace/volume-01/batch-0002/PROMPT.md`. Keep the fixed carrier, Tamsin's handbell, and Tomas's trial handbell distinct. Test the three-answer public signal, develop Halden's pressure and Oren's public judgment, and do not resolve the copied answer, the Silent Muster's full mechanism, the archive fire, the Bellhouse closure, or Tomas's departure.
+Write Volume 01, Chapters 11–20 from `workspace/volume-01/batch-0002/PROMPT.md`. Keep the fixed carrier, Tamsin's handbell, and Tomas's trial handbell distinct. Test the three-answer public signal, develop Halden's pressure and Oren's public judgment, and do not resolve the copied answer, the Silent Muster's full mechanism, the archive fire, the Bellhouse closure, or Tomas's departure. Carry forward three specific cautions: the docket name Iven Sore belongs to the living Bellwrights' Measure master and does not identify the missing surveyor without evidence; the Unrung are named in the volume outline but have not yet appeared in prose; and the notice's "seventh day from posting" anchors the ten-day working window between the carrier's first ringing and the rescheduled dawn.

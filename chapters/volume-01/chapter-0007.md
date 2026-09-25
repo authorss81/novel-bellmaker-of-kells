@@ -1,14 +1,14 @@
 # Chapter 0007 — A Warning Without an Order
 
-The no-public-ringing notice appeared on the Vale Bellhouse door before noon.
+Oren brought the no-public-ringing order to the Vale Bellhouse door himself and nailed it there before noon, while the market watched him do it, and then stood beside it until Tomas had read it twice.
 
 It was a narrow sheet of Crown paper, sealed with gray wax and weighted against the wind by a nail. It prohibited the ringing of any bell connected to the north-gate route after the hour unless a Crown mechanic had inspected it. The fixed carrier was named separately. So was every loose relay bell stored in the workshop.
 
-Tomas read the notice twice, then used it to weigh down the paper holding his own measurements.
+Tomas read the notice again, then used it to weigh down the paper holding his own measurements.
 
 “Only public ringing,” he said. “It does not say I cannot make a bell.”
 
-Oren, who had come to watch the door after delivering the order, glanced at the seal. “It says any bell connected to the route.”
+Oren, who had not yet left the step, glanced at the seal. “It says any bell connected to the route.”
 
 “My workbench is not connected to the route.”
 
@@ -76,7 +76,7 @@ He repaired the blank with a narrower file and stopped before his hand began to 
 
 “What claim?”
 
-Tomas took a sliver of the posted Crown notice from inside his coat. He had cut it clean along the blank margin, leaving the route number, date, and broken seal visible. The paper was dry despite the rain. It was not a magical relic. It was an ordinary public record that could be pointed to and challenged.
+Tomas took a sliver of the market-court notice from inside his coat. Not the order on the door behind him, which was Halden’s and had no route number on it. This was the L-4 posting, cut clean along the blank margin, leaving the route, the dawn, and the broken seal visible. The paper was dry despite the rain. It was not a relic. It was an ordinary public record that could be pointed to and challenged.
 
 He placed the sliver on the workbench.
 
@@ -84,7 +84,7 @@ He placed the sliver on the workbench.
 
 Nell looked at the paper. “You want the bell to warn people.”
 
-“I want it to carry a narrow duty. I will warn that the posted inspection may take unregistered children, name the evidence and the limits, and leave each family’s decision to them. I will not say that the inspection is the crime. I will not say that every child is in danger. I will not tell anyone to move, hide, or obey.”
+“I want it to carry a narrow duty. I will warn that the posted inspection may take children who are not on the roll, name the paper I am holding and the parts of it I cannot vouch for, and leave each family’s decision to them. I will not say that the inspection is the crime. I will not say that every child is in danger. I will not tell anyone to move, hide, or obey.”
 
 “If people hear it, what will they do?”
 
@@ -122,7 +122,7 @@ She looked toward the yard gate, where a watchman could see them if he passed. �
 
 Tomas felt the shape of the claim settle in the room. It was not a command. It was not complete. It was enough to test.
 
-He placed the trial blank in a small wooden frame and set the notice sliver against the crown while the metal cooled. He did not wrap the paper around the bell. The paper remained outside, a visible object that anyone could take away and examine.
+He placed the trial blank in a small wooden frame and wedged the notice sliver against the crown while the metal cooled. He did not wrap the paper around the bell or let it touch the rim. It sat in the frame where anyone could lift it out with two fingers and read it end to end.
 
 “Keep your hand on the frame,” he said. “Not the bell. If the metal moves, let it move. If the claim becomes unclear, say so.”
 
@@ -132,7 +132,7 @@ He placed the trial blank in a small wooden frame and set the notice sliver agai
 
 Nell placed her hand on the frame. Tomas took up the striker and waited until the last heat had left the crown.
 
-Tomas struck the trial handbell once. The first note was low and plain. It carried no hidden sentence in the metal. It was a sound Tomas had shaped to survive a nearby room, not a sound meant to overwhelm the street. The notice sliver remained visible on the bench.
+Tomas struck the trial handbell once. The first note was low and plain. It carried no hidden sentence in the metal. It was a sound Tomas had shaped to survive a nearby room, not a sound meant to overwhelm the street. The notice sliver stayed in its groove against the crown, and Nell put a finger on it to prove it was still there.
 
 He spoke the duty once, naming what he knew and what he did not. The words were not a spell. They were an acceptance that another person could hear and test.
 

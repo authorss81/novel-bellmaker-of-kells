@@ -1,6 +1,6 @@
 # Chapter 0010 — The Answer Is Not Consent
 
-The holding writ arrived after the last market cart had gone, carried by two Crown officers and a clerk whose seal case was tied twice around his wrist. The officers had brought a handcart with a padded frame, but they did not wheel it into the Bellhouse yard. They stopped beneath the north-gate wall and waited for Halden Crake.
+The holding writ arrived inside the deadline Halden had set at the gate, carried by two Crown officers and a clerk whose seal case was tied twice around his wrist. It came after the last market cart had gone, and it came as paper, which changed the shape of the demand the deputy had made on the road. The officers had brought a handcart with a padded frame, but they did not wheel it into the Bellhouse yard. They stopped beneath the north-gate wall and waited for Halden Crake.
 
 Tomas was working at the bench when he heard the wheels. The afternoon had left the casting room smelling of hot metal and old dust. On the bench lay the posted-notice sliver, the new trial handbell, the broken blank, the split tuning file, and the paper on which he had recorded the route marks.
 
@@ -110,7 +110,7 @@ Nell stepped out from the shadow of the Bellhouse stair. She had come without as
 
 “By her. That is the point.”
 
-The woman looked toward the Crown officers. “If the bell says my son may be taken, I will move him. If it does not, I will not leave the room. I will not let a maker’s promise decide for me.”
+The woman looked toward the Crown officers. “If the bell says the ward’s children may be taken, I will take my sister’s two over the low road tonight. If it does not, I will not leave the room. I will not let a maker’s promise decide for me.”
 
 “I am not offering a promise.”
 
@@ -240,7 +240,7 @@ Oren came back after seeing the carrier placed in the watch store. He handed Tom
 
 “Good. If you did, I would be more worried.”
 
-Oren’s face softened by a fraction. “The inspection has moved seven days. We have until then to test the rules, publish the evidence, and decide what the town can bear. The first, second, and third slips are for three independent answers. Each person must understand the claim and be free to refuse. Tomas’s keeper duty belongs on the header, not in place of an answer.”
+Oren’s face softened by a fraction. “The inspection has moved seven days. We have until then to test the rules, publish the evidence, and decide what the town can bear. The first, second, and third slips are for three independent answers. Each person must understand the claim and be free to refuse. Your keeper duty belongs on the header, not in place of an answer.”
 
 “And if the answers disagree?”
 
@@ -260,7 +260,7 @@ The last hours before the original dawn passed in practical work. He cleaned the
 
 He accepted the losses without making a speech about them. The Bellhouse remained open, but open was no longer the same as secure.
 
-Near midnight, Oren’s watchman brought a message that the carrier had been placed in the watch store with its frame secured. The watch seal remained visible. The retaining bolts had been released only for the transfer; the carrier remained seated in its mounting frame.
+Near midnight, Tomas stood in the casting room where the frame had been. The boards still held the pale rectangle of clean dust it had kept, and he could see where the four feet had pressed into the wax of old spills. He did not sweep it. If the frame came back, he wanted to know exactly where it had stood.
 
 Tomas unfolded Nell’s waxed copy of the household fragment and placed it beside the three blank witness slips. He set the route fragment beside the watch receipt. The survey seal, the missing line, the notice date, and the trial bell’s two notes occupied the same table.
 

@@ -58,7 +58,7 @@ Oren entered. The room smelled of cold metal, oil, and the sharp sweetness of Ma
 
 “Who delivered it?” he asked.
 
-“Two porters and a clerk named Pever. The surveyor was late.”
+“Two porters at first light, and the surveyor Pever an hour later with a clerk. He was late.”
 
 “Who saw the first ringing?”
 

@@ -69,7 +69,7 @@ The man’s jaw tightened. “You are causing delay.”
 
 Tomas moved to the edge of the channel and looked down. The line had been cut cleanly, then closed again with a narrow bypass. Beside the cut lay a small wooden tag marked with a date and an initial. The tag had been crushed under a boot, but enough remained to read: L-4, third watch, J. V.
 
-J. V. could be Jerm Venn or a clerk. It could be a maintenance mark or a deliberate signature. It also echoed the J. Vale sign-out in the north-gate lock register. Tomas copied both marks beside the route fragment he had carried from the Bellhouse, then drew a line through neither. A matching initial could be a clue or a convenient lie.
+J. V. could be a clerk’s initials, a maintenance code, or a name somebody had chosen to leave lying in the mud. Tomas copied the mark beside the route fragment he had carried from the Bellhouse, then drew a line through none of it. A matching initial could be a clue or a convenient lie, and the difference was the whole of his evidence.
 
 Tamsin crouched beside him. “Your notebook is full of questions without answers.”
 
@@ -189,7 +189,7 @@ They separated at the towpath. Tomas returned to the line and copied the service
 
 When he reached the north gate, Halden Crake was waiting in the road. A Crown officer carried a broad black case. The market had closed behind them. The fixed watch bell hung above the gate, silent for the moment.
 
-“Vale,” Halden said. “You have until midnight to surrender the carrier and the trial bell.”
+“Vale,” Halden said. “The commission is paper, and paper is coming to the Bellhouse before midnight. You have until then to surrender the carrier and the trial bell.”
 
 Tomas looked at the notice in the clerk’s hands. “And if I do not?”
 
@@ -199,7 +199,7 @@ Tomas looked at the notice in the clerk’s hands. “And if I do not?”
 
 “The one that follows the inspection.”
 
-“That is not an answer.”
+“That is not a hearing.”
 
 “It is the law’s answer.”
 

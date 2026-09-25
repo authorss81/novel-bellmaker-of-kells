@@ -2,7 +2,7 @@
 
 Sabin Fell’s repair shop stood behind the old wool market, where the street narrowed enough for two people to pass only by turning sideways. The sign above the door had lost the painted bell years ago. Sabin had replaced it with a strip of iron shaped like a tuning fork.
 
-Tomas found him at the back bench, filing a cracked handbell while three customers waited on a bench inside. The handbell’s note was ordinary work, not the fixed carrier’s warning, and the room had the same careful patience as a tuning bench. Sabin did not look up when Tomas entered.
+Tomas found him at the back bench, filing a cracked clapper bell while three customers waited on a bench inside. The handbell’s note was ordinary work, not the fixed carrier’s warning, and the room had the same careful patience as a tuning bench. Sabin did not look up when Tomas entered.
 
 “If you have come to ask whether the carrier is cursed, leave before I charge you for the question.”
 
@@ -44,7 +44,7 @@ Tomas looked up. “That is very narrow.”
 
 “An answer from someone who understands the claim. A private handbell can have one informed answer. A local public signal needs three independent answers. The person answering may refuse, ask for time, or offer repair. If they cannot withdraw without punishment, the answer is not free.”
 
-Sabin's hand stopped. “There. You have been looking for a fourth thing.”
+Sabin’s hand stopped. “There. You have been looking for a fourth thing.”
 
 “What fourth?”
 
@@ -68,7 +68,7 @@ Tomas looked toward the shop door. The customers had gone quiet enough to hear t
 
 “And the route can repeat it.”
 
-“Yes, if a physical route and a living keeper support the repetition. A relay can distort the tone. A Crown fitting can make one answer sound like several. That is a separate failure, and I will not teach you how to diagnose it today.”
+“Yes,” Sabin said, “if a physical route and a living keeper support the repetition. A relay can distort the tone. Past that there are failures I will not name for you today.”
 
 “Why not?”
 
@@ -116,7 +116,7 @@ Sabin followed his gaze. “Do not make an ordinary bell explain itself.”
 
 “Accounts are not answers. They are people telling you what reached them.”
 
-Tomas rubbed his thumb over the callus on his palm. The Hush had taught him what happened when a warning died in the wrong place. He had cut a rope to save a child under a falling frame. The child had lived. Ewan Pike had not. Since then, Tomas had treated every sound as a chance to prevent another death and every delay as a personal failure.
+Tomas rubbed his thumb over the callus on his palm. The Hush had taught him what happened when a warning died in the wrong place, and he had spent twelve years refusing to ask out loud which part of it had belonged to him. Since then he had treated every sound as a chance to prevent another death and every delay as a personal failure.
 
 Sabin seemed to hear the thought without magic. “You are trying to make the warning mean the decision.”
 
