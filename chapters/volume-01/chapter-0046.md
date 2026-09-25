@@ -142,7 +142,7 @@ He stood at the gate with his coat on.
 
 “Then write it down.”
 
-“I have written it down. It is in the day-book and it is in your own words and it is on the page under the heading of what it cost, and it says that I decided in a room you asked not to be in, and that I did not ask you, and that I have no answer to that except that I had four days and the district is coming on the twenty-eighth and I could not do it on the twenty-eighth.”
+“I have written it down. It is in the day-book and it is in your own words and it is on the page under the heading of what it cost, and it says that I decided in a room you asked not to be in, and that I did not ask you, and that I have no answer to that except that I had two days and the district is coming on the twenty-eighth and I could not do it on the twenty-eighth.”
 
 “Do not do that.”
 

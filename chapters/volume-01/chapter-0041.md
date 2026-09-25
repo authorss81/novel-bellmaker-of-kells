@@ -38,7 +38,7 @@ Then a man at the back said, “Twenty-two.”
 
 “And one,” Mrs Corris said.
 
-She was at the front, in the same shawl, and she was sixty-five and she had put her own name in a Crown column on the twentieth day, and she said the second word the way you put a knife down.
+She was at the front, in the same shawl, and she had put her own name in a Crown column on the twentieth day, and she said the second word the way you put a knife down.
 
 “One,” Nell Fenn agreed. “Out of thirty-seven doors and forty-one on the schedule and four hundred and eleven persons in this ward, and it was taken at the fifth hour and thirty minutes off a line nobody in that house had ever been marked on, and the objection was written down in the margin in the clerk’s own name and initialled, and the objection did not stop it. Both numbers are on the same page and I am not going to let anybody in this lane have one of them without the other.”
 
@@ -72,7 +72,7 @@ It was Absalom Teage who asked it, and he asked it standing up, in the flat voic
 
 “I said four days and I meant four days, and the fourth day is the twenty-fourth,” Tomas said.
 
-“Then say it on the twenty-fourth.” Teage did not put the slate down. “You rang a bell four times in this market lane on the Friday night at about twenty past eight and a hundred and eighty people went out of it in the dark, and a carrier lost a cart and thirty-six pounds, and a Crown girl of nineteen has a wrist broken who was standing where you asked her to stand. Have you got anything for me? Not an apology. I have had nine of those from nine men this week. Have you got a thing I can use.”
+“Then say it on the twenty-fourth.” Teage did not put the slate down. “You rang a bell four times in this market lane on the night of the nineteenth at about twenty past eight and a hundred and eighty people went out of it in the dark, and a carrier lost a cart and thirty-six pounds, and a Crown girl of nineteen has a wrist broken who was standing where you asked her to stand. Have you got anything for me? Not an apology. I have had nine of those from nine men this week. Have you got a thing I can use.”
 
 “Yes,” Tomas said. “But not today. I will say it on the twenty-fourth, in this lane, as many times as anybody wants to hear it, and I will not improve it the second time. And what I am not going to do is tell you here what it was, because a thing I say in a lane at noon on the twenty-second is a version, and this ward has three weeks of evidence about what happens when a sentence leaves the room it was made in.”
 
@@ -126,7 +126,7 @@ Nell read it out twice, which is what she does, and the second reading was slowe
 
 “It is exactly the three questions with the hand taken off them,” Mercy Slee said. “That is all it is. It is us, in a Crown hand, with our own words in the reason field, and a box for the name of whoever was standing there. The only difference is that the Crown gets to send it round instead of us going round, and there is no one in a lane arguing that somebody should not answer.”
 
-Nobody answered her, and she was not wrong, and by the following morning there were three households in this ward who had sent something back.
+Nobody answered her, and she was not wrong, and by the following morning there were two households in this ward who had sent something back.
 
 And Tomas Vale, standing at the bottom of his own lane on the twenty-second day of the month, with the extract of the surveyor’s return above him on a board and a form below it and a carter’s slate going up and down his street, understood the whole of the twenty-two days he had spent in a single sentence, and it is the sentence that is the title of the page he wrote that night, and he did not improve it in the morning, and Oren Pike entered it in the gate book in his own hand, which is the only place in this business where a sentence has ever been entered twice:
 
@@ -138,6 +138,6 @@ And Tomas Vale, standing at the bottom of his own lane on the twenty-second day 
 
 And one other thing, which is not on the page, because it is not a fact about the Crown and not a fact about the ward and is only a fact about a man, and it is in his own day-book where nobody looks:
 
-*And I find that on the twenty-second day, with my page gone into a shawl and my bell on its frame in a yard with three seals on the door, I am not lighter. I thought I would be. I have carried that page for two days as though it were the thing that was doing the work, and it was never the thing that was doing the work. The thing that was doing the work was a carter with a slate and a woman of sixty-five who put her own name in a Crown column because she was in the room, and a woman of about forty who had a Crown officer at her door twice and did not want to be invisible on the twenty-first. Nobody in this ward has been saved by a procedure this month. Every single thing that has happened in this ward that mattered was done by a person who could have done nothing, on their own account, in their own words, and there is not one of them I would have chosen.*
+*And I find that on the twenty-second day, with my page gone into a shawl and my bell on its frame in a yard with three seals on the door, I am not lighter. I thought I would be. I have carried that page for two days as though it were the thing that was doing the work, and it was never the thing that was doing the work. The thing that was doing the work was a carter with a slate and a woman who put her own name in a Crown column because she was in the room, and a woman of about forty who had a Crown officer at her door twice and did not want to be invisible on the twenty-first. Nobody in this ward has been saved by a procedure this month. Every single thing that has happened in this ward that mattered was done by a person who could have done nothing, on their own account, in their own words, and there is not one of them I would have chosen.*
 
 *And if I had been a bell instead of a man I would have rung about it, and it would have gone further than I want it to, and the ward would have filled in the rest of the sentence for me by the second strike.*

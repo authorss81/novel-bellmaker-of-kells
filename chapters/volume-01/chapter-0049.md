@@ -10,7 +10,7 @@ There is a clause in that. It is not a small one and nobody in that room drew at
 
 It says the originals are to be destroyed. It does not say they are to be removed. It says the hour is to be entered by a copyist.
 
-And Officer Rudd read that schedule out in a full market court and then stood aside, and the district’s copyist took out a book, and Rudd did not say one word about it either way, and afterwards, in the lane, when a carter’s wife asked him whether it was right, he said four words which are on the page because Tomas Vale wrote them down within an hour of hearing them: *It is a form. It is a schedule. It is right.*
+And Officer Rudd read that schedule out in a full market court and then stood aside, and the district’s copyist took out a book, and Rudd did not say one word about it either way, and afterwards, in the lane, when a carter’s wife asked him whether it was right, he said four words which are on the page because Tomas Vale had them down within an hour of hearing them: *It is a form. It is a schedule. It is right.*
 
 ---
 
@@ -46,7 +46,7 @@ And **Absalom Teage**, of one hundred and fourteen, entered upon the same list o
 
 There is a Crown document about Absalom Teage that says his son has already left the ward, and there is a Crown document about Absalom Teage that says he was taken out of it at the second hour of the afternoon, and both of them are true, and the first of them is in a Crown’s own hand in a round’s own book, and there is no field anywhere on either sheet that can hold both facts at once.
 
-Nobody in Kells made those two facts into a sentence. They tried. Nell Fenn tried for two days and wrote it up and read it back to herself and struck it out, and what she has in the ward’s book is four lines, and the fourth line says: *And I have tried for two days to make this into one sentence and I cannot, and I am not going to pretend to anybody that I can, and I am going to leave it as two facts with a date against each of them, which is the whole of what this ward has learned to do in a month and is not enough and is the best thing anybody here has.*
+Nobody in Kells made those two facts into a sentence. They tried. Nell Fenn tried for two days and set it down and read it back to herself and struck it out, and what she has in the ward’s book is four lines, and the fourth line says: *And I have tried for two days to make this into one sentence and I cannot, and I am not going to pretend to anybody that I can, and I am going to leave it as two facts with a date against each of them, which is the whole of what this ward has learned to do in a month and is not enough and is the best thing anybody here has.*
 
 ---
 
@@ -76,7 +76,7 @@ The officer entered her objection in the margin in his own name and initialled i
 
 Mrs Wilde said one thing about that, in the lane, and it was: “Then the column is not empty. I have been telling people for two years that the column is empty and it is not empty, and nobody has ever cared whether it was empty, and now there is a surveyor’s name on my line in a hand I have never seen in my life, in a margin, in a lane, and there is my mother-in-law’s hand in the column, and the surveyor is alive and my mother-in-law is not, and I do not know which of the two of them is going to matter in a year, and both of them are going to be in two books in this town and one in Fourmile, and my daughter is ten years old and on a wagon somewhere north of here, and I would like somebody to tell me what I am supposed to do with that.”
 
-Nobody could, and about nine people tried, and the answer she got was from Mrs Corris of one hundred and thirty-three, who said, in a shawl, at sixty-five, that she had been in a full market court two days ago and had put her own name in the same column on purpose and it had not saved anything, and the two women stood in the lane together and did not agree about a single thing and neither of them was wrong.
+Nobody could, and about nine people tried, and the answer she got was from Mrs Corris of one hundred and thirty-three, who said, in a shawl, that she had been in a full market court two days ago and had put her own name in the same column on purpose and it had not saved anything, and the two women stood in the lane together and did not agree about a single thing and neither of them was wrong.
 
 ---
 
@@ -149,7 +149,7 @@ And the butt was the ash-pit in the corner of the yard, which is the pit his fat
 
 They burned it in three goes, in the open, at about the fourth hour, and the copyist wrote the hour against each go and the number of pages, and about a hundred and forty people stood in the rain and watched, and nobody sang anything and nobody cheered and nobody booed, and the rain made the fire very hard to see and then very easy.
 
-Tomas Vale stood in his own yard, four feet off the ash-pit, with his hands at his sides, and did not ring anything, and did not ask anybody to stop it, and did not go up the hill to Sabin Fell or down to the watch house or into the market court, and he wrote down the hour, and the three goes, and the page numbers, and the rain, in his day-book, in the flat hand, at the time.
+Tomas Vale stood in his own yard, four feet off the ash-pit, with his hands at his sides, and did not ring anything, and did not ask anybody to stop it, and did not go up the hill to Sabin Fell or down to the watch house or into the market court, and he set down the hour, and the three goes, and the page numbers, and the rain, in his day-book, in the flat hand, at the time.
 
 He was asked about it four times by people who were not the Crown.
 
@@ -161,17 +161,17 @@ Mercy Slee asked him at about the fourth hour, in the lane, in the rain, with a 
 
 “I did.”
 
-“You have a bell in that yard and a keeper at the low gate and the district has a page about it in Fourmile and it is twenty-five minutes past the third hour and the Crown is in your yard.”
+“You have a bell in that yard and a keeper at the low gate and the district has a page about it in Fourmile and it is twenty-five minutes past the fourth hour and the Crown is in your yard.”
 
 “Yes,” Tomas said.
 
 “That is not an answer to a question.”
 
-“It is the answer to that question,” he said. “If I ring it now — and I want you to hear this properly and then I am going to go and stand in the rain again — it will go to a district office in Fourmile and a man there will read it, and what he will read is a bellmaker standing in a yard while a Crown burns his father’s books, and that man will be right about the bell and right about the fire, and he will write a page that says the bells of this ward are unaccounted for, and it will be true, and it will be the best evidence in the whole file, and every person in this ward who wrote anything down this month will be read by somebody who has been handed a reason to think the whole of it was a bell.”
+“It is the answer to that question,” he said. “If I ring it now — and I want you to hear this properly and then I am going to go and stand in the rain again — it will go to a district office in Fourmile and a man there will read it, and what he will read is a bellmaker standing in a yard while a Crown burns his father’s books, and that man will be right about the bell and right about the fire, and he will write a page that says the bells of this ward are unaccounted for, and it will be true, and it will be the best evidence in the whole file, and every person in this ward who put anything down this month will be read by somebody who has been handed a reason to think the whole of it was a bell.”
 
 He put the day-book down against the wall so it would not get wet.
 
-“**A bell cannot stop a fire. And a bellmaker who thinks it can has stopped being a maker.** I have had a month to work that out and I worked it out in about nine seconds in a lane about four hours ago, standing next to a man who took ninety feet of backfill out of a Crown trench with a bar at four in the morning, and he did not stop a flood either, and the gate came up, and it is also what the Crown will put in a return tomorrow.”
+“**A bell cannot stop a fire. And a bellmaker who thinks it can has stopped being a maker.** I have had a month to work that out and I worked it out in about nine seconds in a lane about twelve hours ago, standing next to a man who took ninety feet of backfill out of a Crown trench with a bar at four in the morning, and he did not stop a flood either, and the gate came up, and it is also what the Crown will put in a return tomorrow.”
 
 “You have let them burn it.”
 
@@ -217,7 +217,7 @@ The sealing of the Vale Bellhouse was done at about the fifth hour of the aftern
 
 *The millrace bridge bell. Not in this yard. At the north gate of this town, under a condition of the watch of the twenty-seventh day, and to be returned.*
 
-*The books, taken and destroyed at the third hour.*
+*The books, taken and destroyed at the fourth hour.*
 
 The plain carrier was taken out of the frame and put on the bench and the frame was put down beside it, and then the door was sealed, and the seal is a Crown wax with the district’s number on it, and Captain Pike put the watch’s own mark on it under the wax, because a Crown seal on a door in a Crown town is not a lock unless the watch is in it, and he did that on his own initiative and entered it, and it is the last entry of the twenty-eighth day in the gate book of Kells and it is nineteen words long and it does not say what he thought about it.
 

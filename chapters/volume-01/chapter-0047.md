@@ -8,7 +8,7 @@ Then he found Tomas Vale in the lane outside the Bellhouse with a slate under hi
 
 “You did what.”
 
-“I wrote it down.” Oren had not moved from the step. “On the fifteenth day, at about the ninth hour at night, in your father’s yard, with a lamp on the bench, I sat down and I wrote a paragraph into the watch gate book about a damp line under a bellmaker’s floor, and I read it out to Jerm before I shut the book, and I wrote it because I was proud of it. Three sentences. *Found on the fifteenth day by the maker. No person has lifted it. No person has traced it. No person knows what it is.* I said to you in that yard that three is the number that can carry a thing in a town of this size, and I was pleased with myself, and it was the best paragraph I have written this year.
+“I wrote it down.” Oren had not moved from the step. “On the fifteenth day, at about the ninth hour at night, in your father’s yard, with a lamp on the bench, I sat down and I put a paragraph into the watch gate book about a damp line under a bellmaker’s floor, and I read it out to Jerm before I shut the book, and I put it there because I was proud of it. Three sentences. *Found on the fifteenth day by the maker. No person has lifted it. No person has traced it. No person knows what it is.* I said to you in that yard that three is the number that can carry a thing in a town of this size, and I was pleased with myself, and it was the best paragraph I have written this year.
 
 “And on the seventeenth day I made a fair copy of the gate book’s entries for the fifteenth and I enclosed it with my return, because a return that refers to an enclosure has to have the enclosure, and enclosures are ordinary, and I did not read it again.”
 
@@ -30,9 +30,9 @@ They decided it separately, as three people who were not permitted to decide it 
 
 Oren Pike decided first and told nobody. He worked out at the second hour that a lawful order to ascertain what is in the ground of a yard may not be refused, may not be delayed, and may not be argued in a lane, and that the only three things available to a man in Kells about an order like it are to obey it, to be absent from it, and to be in it and write. He entered that in the watch book in his own flat hand, in a paragraph, and the paragraph says: *That the watch will attend at the Vale Bellhouse yard on the twenty-seventh for the purpose stated in the authority of the district, will admit no person into that yard except a person doing the work and a person keeping the record, will not obstruct, will not assist beyond the keeping of the record, and will not take any part in the finding.*
 
-Jerm decided second and told nobody, and what he decided was about a book, and it took him the whole morning: he wrote out in advance, on a leaf, in his own hand, every hour he expected the work to be in progress and what he expected to see at each of them, so that when the spade went in he was not a man writing down whatever he saw afterwards, which is what a book becomes in about six months if the man holding it was not ready.
+Jerm decided second and told nobody, and what he decided was about a book, and it took him the whole morning: he set out in advance, on a leaf, in his own hand, every hour he expected the work to be in progress and what he expected to see at each of them, so that when the spade went in he was not a man writing down whatever he saw afterwards, which is what a book becomes in about six months if the man holding it was not ready.
 
-Tomas decided last, in the yard, at about the fourth hour, and it took him about four minutes and it was not a difficult decision, and he wrote it down in the day-book that night and it is the shortest of the week’s entries:
+Tomas decided last, in the yard, at about the fourth hour, and it took him about four minutes and it was not a difficult decision, and he set it down in the day-book that night and it is the shortest of the week’s entries:
 
 *Twenty-seventh day. I am opening the floor of my own shop in front of the ward, in daylight, with the Crown doing it and their own paper, and I am going to stand in my own yard and watch every inch of it and write the hours.*
 

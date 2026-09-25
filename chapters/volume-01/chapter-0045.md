@@ -16,7 +16,7 @@ So the first column of what the ward was about to say had one household in it, a
 
 ---
 
-“You have not got your two people,” Mercy Slee said, at the board, at the ninth hour, with about thirty in the lane.
+“You have not got your two people,” Mercy Slee said, at the board, at the seventh hour, with about thirty in the lane.
 
 “No.”
 
@@ -34,7 +34,7 @@ So the first column of what the ward was about to say had one household in it, a
 
 “That is your business and I am going to be in that room and I am not going to help you pick, because you will turn round and ask me who would do the most good at the front of a step and that is a different question and I am not going to answer it for you.”
 
-Nell went down the lane at the ninth hour and stood in a front room at one hundred and eight with seven people in it who were not of the house and asked a woman sitting in a good chair with her hands in her lap.
+Nell went down the lane at about half past seven and stood in a front room at one hundred and eight with seven people in it who were not of the house and asked a woman sitting in a good chair with her hands in her lap.
 
 Mrs Wilde said no for about nine seconds.
 
@@ -90,7 +90,7 @@ Nell read it out, and then she said the part she had not put in the writing, in 
 
 “There is nothing clever about that. I want you to know what it is actually for, because I have been asked twice since the seventh hour and I am going to answer once and properly. It is not a refusal. **A refusal is a sentence and a sentence gets merged.** If this ward wrote *the ward will not remove any person under seventeen*, that is a sentence, and in about a fortnight it will be in a file as the answer of Kells, and it will be the answer of Kells whether we meant it or not, and the seven households in the third column will have been spoken for by a girl of sixteen without their asking.
 
-“An empty column is not a sentence. **An empty column is a number that is missing, and a number that is missing can be counted.** Seven is a number. I have not put seven in the paper because I will not hand anybody a figure they could enter, and the count is in this room and anybody who wants it can count it themselves off the schedule on the board, and if they are too frightened to count it then that is the right answer to give them.
+“An empty column is not a sentence. **An empty column is a number that is missing, and a number that is missing can be counted.** Seven is a number. I have not put seven in the paper because I will not hand anybody a figure they could enter, and the count is in this room and anybody who wants it can get it off the schedule on the board themselves, and if they are too frightened to do that then it is the right answer to give them.
 
 “Now the part Mrs Wilde came for.”
 
@@ -102,13 +102,13 @@ And there were about two hundred and thirty people in that market court who went
 
 Then the columns.
 
-The first column had one household in it and Nell said the number out and read the household’s four lines and the four lines were about a boy of nine who is not named on their line and has never been named on it, and who was going to Fourmile on the Friday in a cart because the Crown’s office had put a box on a form with his name in it and a space for where he goes, and nobody had asked the house anything, and the house had filled it in itself.
+The first column had one household in it and Nell said the number out and read the household’s four lines and the four lines were about a boy of nine who is not named on their line and has never been named on it, and who was going to Fourmile on the twenty-sixth in a cart because the Crown’s office had put a box on a form with his name in it and a space for where he goes, and nobody had asked the house anything, and the house had filled it in itself.
 
 The second column had twenty-five households in it and Nell read the number and did not read the names, and somebody at the back stood up and asked for the names, and Mercy Slee said, from the step, “No. If you want to know what a house said you go and ask the house. That is the entire arrangement and it is why the number is the only thing in it.”
 
-The third column was empty and she read that out too, in the same voice, and then somebody said *seven*, out loud, in about eleven different voices at once, because they had counted.
+The third column was empty and she read that out too, in the same voice, and then somebody said *seven*, out loud, in about eleven different voices at once, because they had done it off the board themselves.
 
-“Seven,” Nell Fenn said. “Counted on the hands, and there were seven hands, and I did not put a figure on the paper and I am not going to. And somebody at the back of this room has counted off the schedule on the board and got thirty-three, and that is a different number and it is a true number, and both of them are in the court book now, because both of them are true and they are about different things. One of them is a number of people in this room. The other one is a number of lines on a Crown page that belong to a house in this ward, and one and twenty-five and seven is thirty-three, and there are forty-one lines on that board, and the eight that are missing are lines with no house in this ward behind them at all, and I have not named them and I am not going to, because naming them is the Crown’s work and has been since the ninth day of this month and it is not going to become the ward’s on my account.
+“Seven,” Nell Fenn said. “On the hands. There were seven hands, and I did not put a figure on the paper and I am not going to. And somebody at the back of this room has been off the schedule on the board and got thirty-three, and that is a different number and it is a true number, and both of them are in the court book now, because both of them are true and they are about different things. One of them is a number of people in this room. The other one is a number of lines on a Crown page that belong to a house in this ward, and one and twenty-five and seven is thirty-three, and there are forty-one lines on that board, and the eight that are missing are lines with no house in this ward behind them at all, and I have not named them and I am not going to, because naming them is the Crown’s work and has been since the ninth day of this month and it is not going to become the ward’s on my account.
 
 “An empty column can be counted two ways and both counts are true and neither of them is a sentence. A sentence is the one thing a Crown office has never once had to check. That is what the empty column is for.”
 
@@ -132,7 +132,7 @@ The room made the noise a room makes.
 
 Nell Fenn did not look at Mrs Wilde and Mrs Wilde did not look at Nell Fenn and Mercy Slee, at the side, in the last twenty minutes of a five-hour proceeding, put her hand over her own mouth and then took it away again, which is the only thing she did in that room in five hours that was not procedure.
 
-Mrs Corris went on, standing up, in a shawl, at sixty-five, in about two hundred and thirty people.
+Mrs Corris went on, standing up, in a shawl, in about two hundred and thirty people.
 
 “I am not asking for a person because I have faith in her. I am asking because on the twenty-first I had a name put in a Crown column by a Crown clerk in a public room, and I have not worked out yet whether that clerk did me a kindness or did the district a service, and I have not the wit to work it out, and I am sixty-five. And a person who comes to a door and writes down that she was in the room is a thing I can check. A return is not a thing I can check. So I will take the return and I will take the person, and I do not care one half of one farthing which of them does the work, and I would like it entered that I said that in a full market court and that nobody stopped me.”
 

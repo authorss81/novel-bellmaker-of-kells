@@ -92,7 +92,7 @@ And then the thing that had been standing behind the whole day came out of Oren 
 
 He put his finger on the first one.
 
-“That one wants names of duties. That one wants names of persons who have spoken. That one wants names of persons who sound bells. That one wants names of households. Four documents. Four different offices to send them, four different hands to write them, four days in a month, and every single one of them ends in the word *names*, and every single one of them arrived in this ward in the same two weeks, and And I would have told you, in any ordinary year of this trade, that a district does not send four requests in a fortnight by accident.”
+“That one wants names of duties. That one wants names of persons who have spoken. That one wants names of persons who sound bells. That one wants names of households. Four documents. Four different offices to send them, four different hands to write them, four days in a month, and every single one of them ends in the word *names*, and every single one of them arrived in this ward in the same two weeks, and I would have told you, in any ordinary year of this trade, that a district does not send four requests in a fortnight by accident.”
 
 “There has not been a year of this trade when a district sends four requests in a fortnight by accident,” Tomas said.
 
