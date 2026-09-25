@@ -8,6 +8,8 @@
 
 **Result: the audit passes.** `outline/volume-02.md` was written after this file, as `PHASE_SYSTEM.md:179` requires.
 
+> **Reviewed and repaired after this file was written.** Eight findings came back; seven were actionable and are fixed in `reviews/volume-01/audit-review-repair.md`. **Two of them bear on findings below:** finding 3's claim that the Corris age was removed everywhere now holds *without* a disclosed exception, because the retained repetition at `ch45:155` was removed with the rest of that line when the line was repaired for a different reason (finding 6's line, which the removal had made unreadable); and a conflicting pair of narrator ages for **Sena Dunn, of 121** was found and aligned to *about fifty*. **The four weekday lines named in finding 1 were repaired in the chapters and were still quoted as live in six places in the state layer**, which is the same unrun-sweep failure the audit names, pointed at the state layer instead of the prose. **No finding below was reversed, no plot changed, and no chapter restarted.**
+
 ---
 
 ## Part 1 — `outline/volume-01.md` item by item

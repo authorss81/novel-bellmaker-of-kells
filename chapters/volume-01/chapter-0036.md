@@ -126,7 +126,7 @@ Nell Fenn signed it in her own hand, and Mercy Slee beside her, and then there w
 
 The Crown counter was sitting under the arcade because the round was on the twenty-first and they would sit on the twenty-first, and they had come on the eighteenth anyway, because the watch had put a table and a chair in that arcade on the ninth day and nobody had ever withdrawn the compulsion.
 
-There was a clerk behind it and a lamp and a book, and at about the sixth hour of the eighteenth a woman came up the arcade from the market lane, and she was about forty-five, and she was wearing a good coat that had been mended twice, and she stood at the front of the table and she did not look at the book first.
+There was a clerk behind it and a lamp and a book, and at about the sixth hour of the eighteenth a woman came up the arcade from the market lane, and she was about fifty, and she was wearing a good coat that had been mended twice, and she stood at the front of the table and she did not look at the book first.
 
 Sena Dunn of house one hundred and twenty-one, who had asked *which child* four times at a door on the tenth day, and who had agreed to a route in open court on the eighth and withdrawn in open court on the eighth, and whose name was in no book in this town, and who had not been at the ward board in nine days and had not been asked to be.
 
