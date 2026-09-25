@@ -2,13 +2,33 @@
 
 The two Crown survey guards came back at first light and took up their positions under the arcade as if they had never left. One of them wrote in a small book. The other watched the yard gate. Neither man had eaten yet, and the one with the book kept rubbing his thumb over the same line, the way a man rubs a coin he has been given for bad news.
 
-Three blank witness slips lay on the workbench, cut from cheap paper by a clerk's knife. Tomas had laid them out before dawn because Oren had handed them over at midnight with the observation that a man who waits for the right moment to be given paper will decide the paper ought to have said something else.
+Three blank witness slips lay on the workbench, cut from cheap paper by a clerk’s knife. Tomas had laid them out before dawn because Oren had handed them over at midnight with the observation that a man who waits for the right moment to be given paper will decide the paper ought to have said something else.
 
 He did not move them. He moved everything else.
 
 The trial handbell sat on its bench under a folded cloth. He lifted the cloth, checked the crown, and set it back. The sliver of the L-4 posting was still wedged in the wooden frame where anyone could take it out with two fingers and read the route, the dawn, and the broken seal. The paper did not touch the rim. He had cut it that way on purpose.
 
 The no-public-ringing order was still nailed to the door, and its terms were narrow: no public ringing in this workshop, no ringing of any bell connected to the north-gate route, and no movement of the fixed carrier, which was not here to move. The carrier itself was two streets away in the watch store, upright in its frame in a padded cradle, the retaining bolts released for transport, the red watch seal tied around the lower brace. Tomas had walked past the watch house at four in the morning and had not gone in. Knowing exactly where a thing was had become one of the ordinary duties of his week.
+
+A wheelwright’s counter bell had been standing on the filing leg since the second hour, waiting on a hanging strap and a shim of boxwood, and Tomas had put the file to it twice and taken the file away twice.
+
+The fault was in the strike, not in the casting. Somebody had hung it a quarter inch too long, so the clapper was arriving a fraction late and the note beat against itself, and the cure was either a shim and a shortened strap or a quarter inch taken off the crown, and metal off the crown is gone for good. He wanted to try the shim first because a shim can be argued with later.
+
+He raised the file to find out how much the rim had already lost, and the trial handbell answered from the next bench.
+
+That was the whole of the trouble, and it was a trouble no guild could have written down. A bell under a cloth four feet away with a live claim in it will pull a note that the note in your hand did not make, and the wheelwright’s honest iron came back with an opinion folded into it that the wheelwright had not asked for. He struck the counter bell again to be sure. The two of them quarreled. One of them was bound to a Crown route and had never been rung for anything a customer would pay for, and it was the louder of the two.
+
+The guard under the arcade had a line for it by then. Tomas could hear the nib, and he did not look over, because looking over would have been the third time that morning he had answered the book instead of the work.
+
+He set the file down.
+
+He could have moved the trial handbell to the far end of the shop. He had done that a hundred times in eleven years of work. He did not do it, because the bell was named in a Crown order and a guard was standing under the arcade with a book, and a man who carries a bound bell across a room in front of a witness has stopped arguing about metal and started arguing about custody, and custody is the argument the Crown is better at.
+
+So the counter bell went back into the wheelwright’s cart with its strap untied and its note still beating.
+
+“You will have it in six days,” Tomas said.
+
+“In six days,” the wheelwright said, in the voice of a man putting a date somewhere he could not lose it, and took the cart out of the yard, and did not ask for his money back, which would have been worse.
 
 The problem on the bench was this: he had three slips and no lawful bell to put them near.
 
@@ -18,13 +38,13 @@ He put the candidates on the back of a wrapping sheet.
 
 *LOOSE RELAY BELLS — under the same order, and the connected ones sit on a Crown line. Out.*
 
-*THE NORTH-GATE WATCH BELL — ordinary, proper clapper, never touched by me. If I sound that, the Crown's own instrument carries my claim and the line under the wall carries it further. Out.*
+*THE NORTH-GATE WATCH BELL — ordinary, proper clapper, never touched by me. If I sound that, the Crown’s own instrument carries my claim and the line under the wall carries it further. Out.*
 
 He had a fourth line and did not want to write it.
 
 *MARKET COURT CALL BELL — unbound iron, hand striker, kept on a rack in the court loft. Not on the route. The court owns it. The ushers ring it to call an assembly.*
 
-That one was not ruled out. It was also not available, because a bell in the market court's loft belonged to the market court, and nobody there had been asked.
+That one was not ruled out. It was also not available, because a bell in the market court’s loft belonged to the market court, and nobody there had been asked.
 
 Sabin Fell came at midmorning with a covered basket and the expression of a man who had walked farther than he intended.
 
@@ -38,7 +58,7 @@ He read the four lines twice, which Tomas appreciated, because Sabin did not rer
 
 “Four things you cannot use, and one you have not asked anyone to own,” he said. “That is a good morning. Sit down, because the next part is where men like us get clever.”
 
-He turned the sheet over and drew a box around Tomas's question marks.
+He turned the sheet over and drew a box around Tomas’s question marks.
 
 “Here is the rule. You set the claim down once. You read the same words to each person, in the same order. If you improve the words for the second person because the first one frightened you, you are not collecting answers. You are arranging agreement.”
 
@@ -64,7 +84,7 @@ He wrote on the back of a Crown requisition form, which Tomas would regret letti
 
 “**One.** The physical witness. Something a person can walk to and touch. If you cannot point at it, it is not a claim. It is a feeling with a bell attached.”
 
-“**Two.** The keeper's duty. One person, named, with a specific shape. Not protect the town. Warn about the thing you have looked at, name the evidence and the gaps in it, and stop there.”
+“**Two.** The keeper’s duty. One person, named, with a specific shape. Not protect the town. Warn about the thing you have looked at, name the evidence and the gaps in it, and stop there.”
 
 “**Three.** The three answers. Independent. Free. Each may say yes, no, later, or this much and not that. Each recorded in their own words.”
 
@@ -78,9 +98,9 @@ Something in that landed harder than it should have. Tomas thought of the trial 
 
 “Why five people? You said three answers.”
 
-“Because you do not know which three will answer, and a man asked only once can be told it is an honour.” Oren looked toward the gate. “I have three slips from last night and two more I took out of the watch store's book this morning, because three is a number you can be handed and five is a number you have to go looking for. I have five slips. I have not five answers. Write the words, Vale. Everything else is weather.”
+“Because you do not know which three will answer, and a man asked only once can be told it is an honour.” Oren looked toward the gate. “I have three slips from last night and two more I took out of the watch store’s book this morning, because three is a number you can be handed and five is a number you have to go looking for. I have five slips. I have not five answers. Write the words, Vale. Everything else is weather.”
 
-Tamsin Rook came at the fifth hour with rain in her scarf and the recovered handbell in her coat, out of sight and out of anybody's hand. The guard with the book had already written her name on a second page with the word *courier* beside it, and Tomas understood that a person who arrives on a Crown schedule is difficult to treat as an intruder.
+Tamsin Rook came at the fifth hour with rain in her scarf and the recovered handbell in her coat, out of sight and out of anybody’s hand. The guard with the book had already written her name on a second page with the word *courier* beside it, and Tomas understood that a person who arrives on a Crown schedule is difficult to treat as an intruder.
 
 “You have guards on your door.”
 
@@ -104,7 +124,7 @@ Tamsin Rook came at the fifth hour with rain in her scarf and the recovered hand
 
 “Good. Keep it that way. A man who repeats a rumor to kill it has adopted it.”
 
-The market court was half full by the sixth hour, more than Tomas had expected. Rain had driven people out of the low lanes and under the arcade, and the clerk's board with its filing date, its route number, and its broken seal stood where Tomas had asked for it yesterday with one corner still lifting.
+The market court was half full by the sixth hour, more than Tomas had expected. Rain had driven people out of the low lanes and under the arcade, and the clerk’s board with its filing date, its route number, and its broken seal stood where Tomas had asked for it yesterday with one corner still lifting.
 
 Oren set a small table against the arcade rail and laid the frame face up. He did not sit. Tomas understood that a watch captain who sat would be presiding, and presiding was a claim he had no right to make.
 
@@ -118,13 +138,13 @@ Then the question, the same words each time.
 
 “Will you accept a duty to carry those words, as written, to people who ask you for them? You may accept less than all of it. You may ask for time. You may refuse. Your answer goes on a slip in your own words, and it stands for no one else.”
 
-The first man accepted. The second asked whether the words would be read at the ward's own board or only at the market court, and Tomas said he did not know yet and would not promise, and the man said he would answer when he knew, which Oren wrote as *time asked* and not as a yes.
+The first man accepted. The second asked whether the words would be read at the ward’s own board or only at the market court, and Tomas said he did not know yet and would not promise, and the man said he would answer when he knew, which Oren wrote as *time asked* and not as a yes.
 
 The third, a woman who sold salt fish on the landing, said she would carry the words to any house on her row that asked her, and added in the same breath that she was not going to be the one who tells a mother to move her child. Tomas said that was correct and would go in her line as she had said it.
 
 The fourth accepted and asked for a copy, because he had heard the version with *before dawn* and wanted to know what had actually been said. Oren gave him the copy and entered the paper in the watch account, which was thin.
 
-The fifth was Bevin Sarr, a net-maker with gray hands and a wet sleeve, who had come because his brother mended the market's grain nets and he did not want the ward to be the kind of place where a brother stopped working.
+The fifth was Bevin Sarr, a net-maker with gray hands and a wet sleeve, who had come because his brother mended the market’s grain nets and he did not want the ward to be the kind of place where a brother stopped working.
 
 He read the question with one finger on the line, the way a man checks a fence for a gap.
 
@@ -138,9 +158,9 @@ The arcade quieted by a degree Tomas felt in his teeth. Behind him the guard wit
 
 “You want to know so you can answer it for me. That is not an insult. It is what you would do. You would find a way to write my no so it counted as a yes with a note attached, and then you would put the note in a drawer and use the yes.”
 
-Oren's hand stayed flat on the table. “Say more or stop there. Both are allowed.”
+Oren’s hand stayed flat on the table. “Say more or stop there. Both are allowed.”
 
-“My name is on the ward's list. Not a renewal list. The other one, the one the clerk keeps for the Crown, with house numbers and who is inside. I have been on it since my wife died and I did not pay the entry fee. If I put my name on a slip that says a public answer was given for this ward, the slip goes into the same office as the list. Once it is in that office I cannot take it out, I cannot correct it, and nobody in this arcade will read it again.”
+“My name is on the ward’s list. Not a renewal list. The other one, the one the clerk keeps for the Crown, with house numbers and who is inside. I have been on it since my wife died and I did not pay the entry fee. If I put my name on a slip that says a public answer was given for this ward, the slip goes into the same office as the list. Once it is in that office I cannot take it out, I cannot correct it, and nobody in this arcade will read it again.”
 
 “So write it and keep it. Do not file it. I will hold it.”
 
@@ -152,9 +172,9 @@ He tapped the table twice with his knuckle, and then stopped tapping.
 
 “Captain,” he said. “Write what he said.”
 
-Oren wrote it in the man's own words and did not compress them, and turned the sheet so Sarr could read it.
+Oren wrote it in the man’s own words and did not compress them, and turned the sheet so Sarr could read it.
 
-“Sign it if you want,” he said. “Not if you don't.”
+“Sign it if you want,” he said. “Not if you don’t.”
 
 Sarr read it. He did not sign. “Leave it unsigned. Then it is a record that a man declined, and not a record that a man signed something.”
 
@@ -176,7 +196,7 @@ The four who remained had not left, and one of the four was a man who had told t
 
 “Then tell me what to name instead.”
 
-“The water,” said an older man at the back with a rope-scarred forearm. “I am Wenna Cray's uncle and I will not pretend I speak for her. The water is up two marks on the sill at the low gate since yesterday. My cellar took it. Take my hand to the stone and feel what I feel. That is not a seal. It is a thing that will be in my house tonight whether your bell is lawful or not.”
+“The water,” said an older man at the back with a rope-scarred forearm. “I am Wenna Cray’s uncle and I will not pretend I speak for her. The water is up two marks on the sill at the low gate since yesterday. My cellar took it. Take my hand to the stone and feel what I feel. That is not a seal. It is a thing that will be in my house tonight whether your bell is lawful or not.”
 
 “The west road takes the low section first,” said another. “It took water there in the spring rise, and this rain is coming back, and the bridge keeper is one man with one pair of boots.”
 
@@ -186,7 +206,7 @@ The four who remained had not left, and one of the four was a man who had told t
 
 The charcoal stopped. He had wanted a claim about the inspection, because the inspection was what frightened him and because a claim about a Crown order could be supported with paper he could hold in his hand. A claim about water would have to be made at a river gate, in the rain, in front of people who would know within a minute whether he was lying.
 
-He set it down anyway, in the second part, where the keeper's duty lived, and he did not yet have the sentence.
+He set it down anyway, in the second part, where the keeper’s duty lived, and he did not yet have the sentence.
 
 The clerk came out with his ledger under his arm and the knot in his seal string pulled tight again.
 

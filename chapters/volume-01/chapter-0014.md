@@ -1,6 +1,6 @@
-# Chapter 0014 — The Bellwright's Condition
+# Chapter 0014 — The Bellwright’s Condition
 
-Sabin's shop had three customers on the bench by the time Tomas got there, which was an ordinary afternoon thing, and none of them were Crown.
+Sabin’s shop had three customers on the bench by the time Tomas got there, which was an ordinary afternoon thing, and none of them were Crown.
 
 “You are late,” Sabin said. “You are also carrying a bell under a cloth, which you may not set down in my shop, because the last man who set a thing down in my shop became responsible for it and I am not going to start now.”
 
@@ -12,17 +12,17 @@ Tomas set it on the anvil block by the door instead, where it was still in his s
 
 Tomas laid it out in the plainest order he had. He would let the Measure put its hands on the trial handbell and write down what it could find: the wall thickness, the lip, the raised ridge, the file marks, the split file, the paper sliver in the frame. He would not let the Measure strike it, because the no-ringing order was nailed to his door and he was not going to be the man who argued about the meaning of an order on the afternoon it was written. He would not take a master key, because a master key in Kells would make every answer given in this workshop an answer the workshop was responsible for, and he was not willing to be responsible for answers he had not asked anybody to give.
 
-“And if the Measure's condition is the key?” Sabin said.
+“And if the Measure’s condition is the key?” Sabin said.
 
 “Then the Measure has a condition and I have a workshop with a door.”
 
 Sabin put the file down. “There is a thing you have not said, and you have been carrying it round the room in your hands. Say it.”
 
-Tomas took the route docket out of his coat. He had the watch captain's copy, with the seal on the corner and the withdrawn service entry folded into the second page.
+Tomas took the route docket out of his coat. He had the watch captain’s copy, with the seal on the corner and the withdrawn service entry folded into the second page.
 
-“The name on the withdrawn service entry is Iven Sore. He is the master of the Bellwrights' Measure. He is also the man who will be sitting in the room tomorrow with a wax tablet and the right to open my bell.”
+“The name on the withdrawn service entry is Iven Sore. He is the master of the Bellwrights’ Measure. He is also the man who will be sitting in the room tomorrow with a wax tablet and the right to open my bell.”
 
-Sabin took the docket and read the name. He read it the way he read the four lines on Tomas's wrapping sheet, which was to say twice, and then he gave it back with the carefulness of a man handing over something that belonged to somebody else.
+Sabin took the docket and read the name. He read it the way he read the four lines on Tomas’s wrapping sheet, which was to say twice, and then he gave it back with the carefulness of a man handing over something that belonged to somebody else.
 
 “Then you are going to ask him,” he said. “And you are going to ask him in a room with a clerk in it, which means the room is already deciding the answer before you open your mouth.”
 
@@ -34,9 +34,9 @@ Sabin took the docket and read the name. He read it the way he read the four lin
 
 “He is careful because he has been blamed once already and there is nobody left to blame but the trade.” Sabin dried his hands on his apron. “You want a name to be angry at. I know what that is. I have a wooden box of failed clappers and every one of them is labelled with a date, and if I ever got the chance I would be astonishing at whoever put the lead in the alloy. Ask your question. Then stop, and let the silence be part of the answer, and do not help him out of it.”
 
-The inspection room was two rooms above the fish market, taken for the day, with the shutters open because the room above it had been a drying loft and still smelled of mackerel. There were three benches in it, one of them a workbench, and a woman with a wax tablet who introduced herself as the Measure's clerk and then wrote her own name on the tablet and showed it to Tomas, which he understood to be the point of the exercise.
+The inspection room was two rooms above the fish market, taken for the day, with the shutters open because the room above it had been a drying loft and still smelled of mackerel. There were three benches in it, one of them a workbench, and a woman with a wax tablet who introduced herself as the Measure’s clerk and then wrote her own name on the tablet and showed it to Tomas, which he understood to be the point of the exercise.
 
-The market court clerk came with them, and Jerm came with the market court clerk, because a bell had to travel from the Bellhouse to this room and back and the trip had to be on somebody's record.
+The market court clerk came with them, and Jerm came with the market court clerk, because a bell had to travel from the Bellhouse to this room and back and the trip had to be on somebody’s record.
 
 The Crown officer at the court arch tried to stop it at the bottom of the lane.
 
@@ -48,11 +48,11 @@ Jerm held up the order and read it. “No public ringing. No ringing of any bell
 
 “He is carrying it to a room the court has licensed, and I am standing here, and the court clerk is standing here, and if you want it in the record you may write it in the record, and then the record will say a Crown officer stopped a lawful guild inspection and the court will have to answer for that at the hearing.”
 
-The officer wrote something in a small book, which cost him thirty seconds and saved him an argument, and then the bell went up the stair under a cloth, in Tomas's hands, in daylight, in front of four people who had each been asked to pay attention.
+The officer wrote something in a small book, which cost him thirty seconds and saved him an argument, and then the bell went up the stair under a cloth, in Tomas’s hands, in daylight, in front of four people who had each been asked to pay attention.
 
 Iven Sore came at the fourth hour.
 
-He was not what Tomas had expected, which was a disappointment, because Tomas had been braced for a rival. He was a narrow man of perhaps sixty with ink to the second knuckle, a plain grey coat with the Measure's triangle worked in black thread at the cuff, and hands that went to a tool the way another man's hand goes to a doorway in the dark. He set a road-map case on the bench, unrolled it, looked at the trial handbell for a while without touching it, and then said:
+He was not what Tomas had expected, which was a disappointment, because Tomas had been braced for a rival. He was a narrow man of perhaps sixty with ink to the second knuckle, a plain grey coat with the Measure’s triangle worked in black thread at the cuff, and hands that went to a tool the way another man’s hand goes to a doorway in the dark. He set a road-map case on the bench, unrolled it, looked at the trial handbell for a while without touching it, and then said:
 
 “Two things before I begin. First, the no-ringing order is on your door, so I will not sound your bell, and my inspection is therefore incomplete on tone, and I will enter that as a limitation, in writing, where the crown can see it. Second, when I ask you a question about material, answer about material. You may answer me about consent at the end, and I will tell you when we are there.”
 
@@ -94,7 +94,7 @@ Tomas took the docket out and put it on the bench, and Iven read it standing, an
 
 “Was the name withdrawn by you?”
 
-“I am going to answer you as far as a man in my position can, and I am going to do it slowly, and you are not going to like the shape of it.” Iven put one finger on the name. “I can support this. I have never held a Crown survey commission in this ward. I can support that. I can support that the Measure has no copy of that service entry, and no letter of appointment, and no entry in the Kells book for a Crown surveyor of the name Iven Sore in any year I have kept the book. I can support that the Crown roll and the Measure's roll are not the same document and that a name may stand in one and not the other.”
+“I am going to answer you as far as a man in my position can, and I am going to do it slowly, and you are not going to like the shape of it.” Iven put one finger on the name. “I can support this. I have never held a Crown survey commission in this ward. I can support that. I can support that the Measure has no copy of that service entry, and no letter of appointment, and no entry in the Kells book for a Crown surveyor of the name Iven Sore in any year I have kept the book. I can support that the Crown roll and the Measure’s roll are not the same document and that a name may stand in one and not the other.”
 
 “Was the name borrowed by a clerk?”
 
@@ -120,11 +120,11 @@ Then he unrolled the map on the bench, which was not what Tomas expected, and it
 
 “What are those marks?” Oren said.
 
-“Withdrawals.” Iven put his hand flat on the hide. “This is the Measure's working road map, and the craft has kept it since before the Crown laid a mile of copper. Every ward that ever took its answers back is marked here, with a date and a reason in the key: *line cut by the office*, *keeper withdrew*, *answers falsified*, *ward dissolved*. There are fifty-three of them. Grey Weir pulled its route in four hundred and sixty-two and did not take it back. Blackfen has been dark since the famine. Tallow Reach takes its route out and puts it back every spring and marks both dates, and the Measure considers that proper craft and not cowardice.”
+“Withdrawals.” Iven put his hand flat on the hide. “This is the Measure’s working road map, and the craft has kept it since before the Crown laid a mile of copper. Every ward that ever took its answers back is marked here, with a date and a reason in the key: *line cut by the office*, *keeper withdrew*, *answers falsified*, *ward dissolved*. There are fifty-three of them. Grey Weir pulled its route in four hundred and sixty-two and did not take it back. Blackfen has been dark since the famine. Tallow Reach takes its route out and puts it back every spring and marks both dates, and the Measure considers that proper craft and not cowardice.”
 
 “Why keep a record of wards that stopped answering?”
 
-“Because a town that has never withdrawn has never been asked whether it would.” He lifted a corner of the hide and let it drop. “You are looking for who altered your line on the fifth night. I cannot give you that, and I will not pretend the map can. A map shows where a line runs. A hand does this.” He held up his own. “The map can tell you that L-4 in this ward was patched in a Crown hand in a Crown year, because the patch is in Crown stitching, and the Measure does not stitch. That is craft, not conspiracy. It cannot tell you whose hand.”
+“Because a town that has never withdrawn has never been asked whether it would.” He lifted a corner of the hide and let it drop. “You are looking for who altered your line on the night the carrier came, or on the morning after, and I cannot give you that, and I will not pretend the map can. A map shows where a line runs. A hand does this.” He held up his own. “The map can tell you that L-4 in this ward was patched in a Crown hand in a Crown year, because the patch is in Crown stitching, and the Measure does not stitch. That is craft, not conspiracy. It cannot tell you whose hand.”
 
 Tomas looked at the map for a long time. It was the first honest answer anyone had given him since the carrier rang, and it was an answer about the shape of the hole rather than the name in it.
 
@@ -132,11 +132,11 @@ Tomas looked at the map for a long time. It was the first honest answer anyone h
 
 “Give me the condition,” Tomas said.
 
-“Two, and I will write them in front of you. One, the material inspection, which you have had, and which I will file with its limitation noted. Two: a withdrawal procedure, published, lodged with the market court before the day of the hearing, in which any household or any keeper on a route carrying your words may take himself off that route without giving a reason, without a fee, and without any consequence to himself or his trade. If that document is lodged, the Measure's challenge against your licence stays a challenge and does not proceed. If it is not lodged, the challenge proceeds at the hearing and I will not be the one who decides the outcome.”
+“Two, and I will write them in front of you. One, the material inspection, which you have had, and which I will file with its limitation noted. Two: a withdrawal procedure, published, lodged with the market court before the day of the hearing, in which any household or any keeper on a route carrying your words may take himself off that route without giving a reason, without a fee, and without any consequence to himself or his trade. If that document is lodged, the Measure’s challenge against your licence stays a challenge and does not proceed. If it is not lodged, the challenge proceeds at the hearing and I will not be the one who decides the outcome.”
 
 “And the master key?”
 
-“Here is my part, and I will be plain because you have been plain.” Iven set his hands on the map. “The Measure will give you a certified inspection record, a copy of this map, a master's opinion on your material, and a seat in the room where a route is built. All of it is on the table now. In exchange I want one key to the master bell of this ward, and every answer that passes on a Kells route passes through it, and the Bellhouse is answerable for them. You will say no. I would think less of you if you said yes, and I would still hold the key.”
+“Here is my part, and I will be plain because you have been plain.” Iven set his hands on the map. “The Measure will give you a certified inspection record, a copy of this map, a master’s opinion on your material, and a seat in the room where a route is built. All of it is on the table now. In exchange I want one key to the master bell of this ward, and every answer that passes on a Kells route passes through it, and the Bellhouse is answerable for them. You will say no. I would think less of you if you said yes, and I would still hold the key.”
 
 “And you believe that is safer.”
 
@@ -148,7 +148,7 @@ The clerk wrote them. Tomas signed beneath them without improving a word.
 
 Then the inspector asked the last question, which was not about material, and which Iven had told him to expect.
 
-“Vale. If the three answers on Saturday disagree, and two of them are still frightened, and the town is looking for somebody to be angry with before the rescheduled dawn — what does your bell do?”
+“Vale. If the three answers on the day of the test disagree, and two of them are still frightened, and the town is looking for somebody to be angry with before the rescheduled dawn — what does your bell do?”
 
 Tomas thought about the answer for as long as it was worth.
 
@@ -160,7 +160,7 @@ He packed the map case. At the door he stopped and looked at the bell under the 
 
 “Unmake it if you have to,” he said. “A bell that has been answered once and then carried twice is not a bell. It is a debt with a sound in it. I have seen men keep such a thing for a year because they liked the tone.”
 
-They carried it back down the stair and up the hill, in daylight, with the clerk's record of the bell's condition at both ends of the trip pinned to the cloth, and Tomas felt, in the whole length of the walk, the specific loneliness of a man who had just been told by a competent man that the thing he had built was not yet the thing he needed.
+They carried it back down the stair and up the hill, in daylight, with the clerk’s record of the bell’s condition at both ends of the trip pinned to the cloth, and Tomas felt, in the whole length of the walk, the specific loneliness of a man who had just been told by a competent man that the thing he had built was not yet the thing he needed.
 
 He put the trial handbell back on its bench under its cloth, wedged the sliver into its frame against the crown where two fingers could lift it out, and wrote the inspection and the refusal in the day-book at the bottom of a column that already said *payment suspended by order*.
 

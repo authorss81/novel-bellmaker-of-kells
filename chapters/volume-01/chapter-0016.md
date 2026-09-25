@@ -12,17 +12,17 @@ Thirty-eight came. Two of them were Crown officers, and Halden Crake came with a
 
 “Then object in the book,” Oren said. “You may object in the book before he speaks. Write it down, Captain Pike, and let the objecting stand in front of the dead man rather than behind him.”
 
-Halden had the black-case man write it. Oren noticed that Oren's own name had gone into the book as a witness before Tomas had come in, and that Halden had not tried to cross it out, and that this was the most honest thing the deputy had done all week.
+Halden had the black-case man write it. Oren noticed that Oren’s own name had gone into the book as a witness before Tomas had come in, and that Halden had not tried to cross it out, and that this was the most honest thing the deputy had done all week.
 
 They put Tomas on the step under the arcade facing the court, because he was the only person who would have to look at them.
 
-Halden's first question was quick, and it came from the front, and it was the question the room had been carrying all morning.
+Halden’s first question was quick, and it came from the front, and it was the question the room had been carrying all morning.
 
 “Did you cut the rope?”
 
 “I did.”
 
-A sound went through thirty-eight people, and it was not a word. Wen Anner, a cooper's apprentice of twenty-four with rope-scarred forearms, came three steps into the open before the clerk could stop him.
+A sound went through thirty-eight people, and it was not a word. Wen Anner, a cooper’s apprentice of twenty-four with rope-scarred forearms, came three steps into the open before the clerk could stop him.
 
 “He cut it,” Wen said. “He cut it and I was the one on the frame, and I am not here to be a witness for anybody, and I would like it written that I am not here for the Crown either.”
 
@@ -40,19 +40,19 @@ Oren let the first question go, and put the second one himself, in the flat orde
 
 “I am,” said Wen.
 
-“The rope was the frame's lifting line. It held the counterweight. I could get the frame down onto the boy, or I could take the weight off it, and I took the weight off it. I cut the rope because the frame was going over and there was no other thing in reach.”
+“The rope was the frame’s lifting line. It held the counterweight. I could get the frame down onto the boy, or I could take the weight off it, and I took the weight off it. I cut the rope because the frame was going over and there was no other thing in reach.”
 
 “And the line?” Oren said. “The warning.”
 
 He had not expected to be asked that in this order. He had spent three days preparing for a question about the child, and he had an answer for the child that he had said to himself in the dark and found shameful, because it sounded like pride.
 
-“The line was already carrying something when I came up,” he said. “A warning from the upper line. It came through the gate wall and under the stones and I could hear it in the lamp's iron, and it was saying — I do not know what it was saying. Not words. A note, and then another note, and the second one was thin. Captain Pike's brother said afterwards that it told them to clear the lower road. I did not know that at the time and I have not asked anybody to believe that I did.”
+“The line was already carrying something when I came up,” he said. “A warning from the upper line. It came through the gate wall and under the stones and I could hear it in the lamp’s iron, and it was saying — I do not know what it was saying. Not words. A note, and then another note, and the second one was thin. Captain Pike’s brother said afterwards that it told them to clear the lower road. I did not know that at the time and I have not asked anybody to believe that I did.”
 
 “You cut the line,” Oren said, “while it was making a warning.”
 
 “Yes.”
 
-“So the warning ended. It did not reach the people below us. Ewan Pike was under the line when the counterweight came down, and he had heard the note, and he had said the lower road. It is in his mother's statement. It is in mine. And you ended the line with a knife in a wet frame at about the fourth hour of the morning.”
+“So the warning ended. It did not reach the people below us. Ewan Pike was under the line when the counterweight came down, and he had heard the note, and he had said the lower road. It is in his mother’s statement. It is in mine. And you ended the line with a knife in a wet frame at about the fourth hour of the morning.”
 
 “Yes.”
 
@@ -94,15 +94,15 @@ Wen Anner came forward again.
 
 “Do not.” Wen held up a hand, and he was not a large man and it was not a large hand, and it stopped a watch captain. “Twelve years I have had it that the bellmaker killed a man to get a child out and I could never work out which of those two things I was supposed to be angry about. You are letting me make my own decision about that, and I would like it confirmed in the book that I am allowed to be angry at both.”
 
-“Your name is on the statement of the child's removal,” Oren said. “The fact that you are alive is on the record, and it is not in dispute, and it does not cancel the other fact. Both go in the book. I am not going to make you choose.”
+“Your name is on the statement of the child’s removal,” Oren said. “The fact that you are alive is on the record, and it is not in dispute, and it does not cancel the other fact. Both go in the book. I am not going to make you choose.”
 
 “I have chosen. I am angry at both, and I would like the clerk to write down that I said so before I have to think about it again.”
 
-The clerk wrote it down.
+The clerk took his pen up and wrote down that Wen Anner was angry at both, in Wen Anner’s own words, because it was what Wen Anner had asked for and the only part of the afternoon he had been sure of.
 
 Then Halden stood up, and the black-case man opened the case and took out a sheet, and Oren felt the shape of what was coming the way you feel a change in the weather in a room with one window.
 
-“The Crown asks the witness to confirm a civic fact,” Halden said, reading. “The Vale workshop is under a no-ringing order. In four days' time, at dawn, there is a scheduled inspection on route L-4, and at that hour this town is proposing to ring a bell carrying a claim that has been made by a man who has already admitted destroying a warning in this ward. The Crown's position is that a man who has done that once is not the man who should be asking a town to trust a sound he made.”
+“The Crown asks the witness to confirm a civic fact,” Halden said, reading. “The Vale workshop is under a no-ringing order. In four days’ time, at dawn, there is a scheduled inspection on route L-4, and at that hour this town is proposing to ring a bell carrying a claim that has been made by a man who has already admitted destroying a warning in this ward. The Crown’s position is that a man who has done that once is not the man who should be asking a town to trust a sound he made.”
 
 “Deputy,” Oren said, “that is a question with a conclusion inside it, and you have dressed it as a fact.”
 
@@ -124,9 +124,9 @@ Oren shut the book.
 
 He read them out.
 
-“One. Any public signal made in this town on a claim bearing the maker's name must carry, in the words themselves and not in a footnote, what is known, what is not known, and the name of the keeper who accepts the next action. Silence about the limits is a breach.
+“One. Any public signal made in this town on a claim bearing the maker’s name must carry, in the words themselves and not in a footnote, what is known, what is not known, and the name of the keeper who accepts the next action. Silence about the limits is a breach.”
 
-”Two. Any household or any keeper may withdraw from a route carrying that claim, at any hour before or after it is made, without giving a reason, without a fee, and without any consequence to that household, that keeper, or their trade. A withdrawal is recorded as a withdrawal and is never written down as a silence.
+“Two. Any household or any keeper may withdraw from a route carrying that claim, at any hour before or after it is made, without giving a reason, without a fee, and without any consequence to that household, that keeper, or their trade. A withdrawal is recorded as a withdrawal and is never written down as a silence.”
 
 “Three. A signal made in this town on a claim of this kind is not a municipal act, and may not be entered, described, or enforced as the will of the ward, the market court, the watch, or the Crown.”
 
@@ -140,11 +140,11 @@ Nobody said anything for a while, and then a man near the door said, “It does 
 
 “No,” Oren said. “It is not meant to help you. It is meant to make it possible for a thing to be useful and still be refused. If it does not help you, I am sorry, and I have not pretended it will.”
 
-The clerk read the whole account back. It took a quarter of an hour. Three people corrected details: a watchman who said the frame did not lean, it stood at an angle and leaned when the rope went; a boy who said the lamp was on the gate step and not in Tomas's hand; a woman who said the thin sound came after the shouting had stopped, not during it. Oren entered all three corrections, initialled them, and did not rule anything out.
+The clerk read the whole account back. It took a quarter of an hour. Three people corrected details: a watchman who said the frame did not lean, it stood at an angle and leaned when the rope went; a boy who said the lamp was on the gate step and not in Tomas’s hand; a woman who said the thin sound came after the shouting had stopped, not during it. Oren entered all three corrections, initialled them, and did not rule anything out.
 
 The crowd did not believe him. Tomas had known that it would not, and had told himself on the walk down that it would not matter, and found that it mattered exactly as much as it had always mattered, and that no amount of writing would make thirty-eight frightened people feel differently about a man who had cut a rope.
 
-They were not satisfied. Oren had promised himself they would be, and had lied to himself about it, and he noted the lie in the book as well, in a line that read: *and this account does not resolve the ward's grief, nor is it intended to.*
+They were not satisfied. Oren had promised himself they would be, and had lied to himself about it, and he noted the lie in the book as well, in a line that read: *and this account does not resolve the ward’s grief, nor is it intended to.*
 
 Near the end, before the light went, a man at the side of the court asked the clerk something about the old line, and the clerk told him to sit down, and the man said his name and said it loudly enough to be written.
 
@@ -152,30 +152,30 @@ He was a gate-porter and a rope-maker named Gib Hask, and he had gray in his bea
 
 “Then write this as well,” he said. “There is copper under this town. There has been since before the Crown and there will be after, and the Crown put it in without asking the ward, and there is a line of it under my own house that I can put my heel on. I am not here for your bellmaker. I am here to say that I want it out of the ground, all of it, and I will say it again tomorrow, and I will say it on the day after the hearing, and if you have a record then put this in it: I asked for the wire out and nobody in this room gave me an answer.”
 
-“And what would you do,” Oren said, “if the ward's only warning was that same wire?”
+“And what would you do,” Oren said, “if the ward’s only warning was that same wire?”
 
 Hask considered it with more care than Oren had expected from a man who had come to shout.
 
 “Then I would say that plainly too,” he said, “and I would want to know who put it in, and who gets paid when it comes out, and who is left to warn us in the dark. That is my whole case and you may write it down and you may not improve it.”
 
-It went into the book, in his words, and Oren wrote beside it that the ward had a party who wanted the Crown's buried line removed and would not accept the removal of the town's only warning system, and that the two positions were held by named men in one room and were not reconcilable by a hearing.
+It went into the book, in his words, and Oren wrote beside it that the ward had a party who wanted the Crown’s buried line removed and would not accept the removal of the town’s only warning system, and that the two positions were held by named men in one room and were not reconcilable by a hearing.
 
 Then the rain moved round and came in under the tiles, and the clerk ran for the door, and the court emptied into a wet lane.
 
-Oren stood in the emptying arcade with Halden, who had not yet gone, and who had folded the black-case man's sheet back into the case without looking at it again.
+Oren stood in the emptying arcade with Halden, who had not yet gone, and who had folded the black-case man’s sheet back into the case without looking at it again.
 
 “You got what you wanted, Captain,” Halden said. “A man has admitted a death in public and a bellmaker has accepted conditions in front of a crowd. Next time I come, I will not be asking him to explain himself.”
 
 “What will you be asking for?”
 
-“The millrace bell,” Halden said. “And then the courier's. And you will find that the conditions you read out this afternoon are worth nothing at four in the morning to a woman standing in a lane who has been told her own ward has spoken.”
+“The millrace bell,” Halden said. “And then the courier’s. And you will find that the conditions you read out this afternoon are worth nothing at four in the morning to a woman standing in a lane who has been told her own ward has spoken.”
 
 He walked out into the rain.
 
-Oren stood there and understood, without any comfort in it, that Halden Crake was not a fool and had never been a fool, and that the man who understood the most about a warning was going to spend the last two days of a stay using it.
+Oren stood there and understood, without any comfort in it, that Halden Crake was not a fool and had never been a fool, and that the man who understood the most about a warning was going to spend the last three days of a stay using it.
 
 A watchman came up the arcade stairs from the low road, soaked and out of breath, and he had a message from a gate keeper with a slate under his arm.
 
-“The water's over the low turn,” the man said. “And the west road's gone soft at the north end, and there's a Crown road gang's cart across the culvert with a stone in it and nobody's come. and the gate keeper says tell the bellmaker the sill is above the second mark and climbing, and that he will use the word *crest* when he has read it with his own hand and not before.”
+“The water’s over the low turn,” the man said. “And the west road’s gone soft at the north end, and there’s a Crown road gang’s cart across the culvert with a stone in it and nobody’s come. and the gate keeper says tell the bellmaker the sill is above the second mark and climbing, and that he will use the word *crest* when he has read it with his own hand and not before.”
 
-Oren took the message and stood in the wet with it, and thought about a man who had spent the afternoon telling thirty-eight people what he was not, and a river that was doing exactly one thing, without anybody's permission, at its own speed.
+Oren took the message and stood in the wet with it, and thought about a man who had spent the afternoon telling thirty-eight people what he was not, and a river that was doing exactly one thing, without anybody’s permission, at its own speed.

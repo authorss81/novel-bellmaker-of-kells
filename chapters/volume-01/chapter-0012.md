@@ -1,6 +1,6 @@
 # Chapter 0012 — A Promise Before the Rain
 
-Hollis Renn's written reply had one line on it, and Tamsin had pinned the line to the inside of her coat where she could not avoid reading it.
+Hollis Renn’s written reply had one line on it, and Tamsin had pinned the line to the inside of her coat where she could not avoid reading it.
 
 *I will talk at the low gate at six. I will not ring anything.*
 
@@ -10,7 +10,7 @@ The rain had been falling since the middle of the night. It was not the dramatic
 
 The Kells Water was up. She could see it before she could measure it: the landing stage had three treads under that she had been counting for six years, and there were four. The barges tied at the quay rode high, which meant the current had got fat, and the ferry chain was tight, which meant somebody downstream had thrown brush into the channel in the night.
 
-The low gate stood at the bottom of the Low Ward's drainage, a slab of oak in a stone sill with a windlass above it and three marks cut into the stone beside it. It was the last thing on her route, the landing stage was above it, and the ferry road ran on past both. Renn was standing at the sill with a lantern he had not lit, in a coat that had been patched at the elbow for years.
+The low gate stood at the bottom of the Low Ward’s drainage, a slab of oak in a stone sill with a windlass above it and three marks cut into the stone beside it. It was the last thing on her route, the landing stage was above it, and the ferry road ran on past both. Renn was standing at the sill with a lantern he had not lit, in a coat that had been patched at the elbow for years.
 
 “You said six,” Tamsin said.
 
@@ -36,11 +36,11 @@ He did not read it. He unrolled the oilskin, held it flat against the windlass h
 
 “No.”
 
-Tamsin set her bag on the wet stone and took out the handbell. She unwrapped it slowly. It was no wider than her palm across the flattened crown, dull where the handle had been polished by a courier's grip, and in the groove under the crown a dark line of wax lay over an older, paler groove underneath it. She had read that line once, on the top step of the Bellhouse stair, with no watch anywhere near, and she had not let anybody else read it since. It had never looked like a mystery. It looked like somebody who had wanted a note to go further and had achieved it by making the bell lie about how far the note was supposed to go.
+Tamsin set her bag on the wet stone and took out the handbell. She unwrapped it slowly. It was no wider than her palm across the flattened crown, dull where the handle had been polished by a courier’s grip, and in the groove under the crown a dark line of wax lay over an older, paler groove underneath it. She had read that line once, on the top step of the Bellhouse stair, with no watch anywhere near, and she had not let anybody else read it since. It had never looked like a mystery. It looked like somebody who had wanted a note to go further and had achieved it by making the bell lie about how far the note was supposed to go.
 
-“I want to test the reach,” she said. “Not the bell's loyalty. Its reach. It has a Low Ward signal authorized from the north gate to this landing. I want to know whether it stops here.”
+“I want to test the reach,” she said. “Not the bell’s loyalty. Its reach. It has a Low Ward signal authorized from the north gate to this landing. I want to know whether it stops here.”
 
-Renn's mouth moved. “And if it does not stop here?”
+Renn’s mouth moved. “And if it does not stop here?”
 
 “Then the bell is telling people above the landing something they did not agree to, and I will not use it to carry a promise, and I will write down that it does not stop here.”
 
@@ -50,7 +50,7 @@ Renn's mouth moved. “And if it does not stop here?”
 
 Renn thought about it for as long as a man thinks when the river is up and his gate is in it.
 
-“Crane's boy is on the landing stage with a lantern,” he said. “He is fifteen and he is deaf in one ear, which makes him a poor judge and an honest one. Ring once. If he hears it, the bell carries past the landing and the ward is not the only thing in the room. If he does not, then I have wasted a good raincoat and you owe me a slate.”
+“Crane’s boy is on the landing stage with a lantern,” he said. “He is fifteen and he is deaf in one ear, which makes him a poor judge and an honest one. Ring once. If he hears it, the bell carries past the landing and the ward is not the only thing in the room. If he does not, then I have wasted a good raincoat and you owe me a slate.”
 
 She rang it once, at the gate, with the windlass between her and the water.
 
@@ -70,11 +70,11 @@ The note had cost her more than the boy knew. It sat in her left ear the way the
 
 “He heard it,” Renn said.
 
-“He heard it at the stage. That is the authorized end of the route.” Tamsin wrapped the bell again before anyone else could arrive. “The authorized route is not the same as the reach. I know the reach is longer. I have known it since March. What I did not have until a slate was a duty to put beside it.”
+“He heard it at the stage. The stage is a stone’s throw above the drain gate, and the drain gate is the last thing the route touches, so he heard it at the authorized end of it.” Tamsin wrapped the bell again before anyone else could arrive. “The authorized route is not the same as the reach. I know the reach is longer. I have known it since March. What I did not have until a slate was a duty to put beside it.”
 
 Renn unrolled his board again and turned it so the two could see the last line together.
 
-“Nothing is added above the landing,” he read. “You see the difficulty. That line is a promise about words. The wax in that crown is a promise about distance, and nobody wrote it down, and nobody whose house it enters signed it.” He rolled the oilskin. “Your bell is a bigger room than your route. That is all it is. I have a windlass that will lift this gate when the water reaches the third mark, and no windlass that will stop your note in a man's kitchen.”
+“Nothing is added above the landing,” he read. “You see the difficulty. That line is a promise about words. The wax in that crown is a promise about distance, and nobody wrote it down, and nobody whose house it enters signed it.” He rolled the oilskin. “Your bell is a bigger room than your route. That is all it is. I have a windlass that will lift this gate when the water reaches the third mark, and no windlass that will stop your note in a man’s kitchen.”
 
 “I know that.”
 
@@ -86,7 +86,7 @@ Renn unrolled his board again and turned it so the two could see the last line t
 
 She said it again, and the boy on the stage nodded without understanding any of it, which Tamsin decided was the correct amount of understanding for a bystander.
 
-Tomas came up the towpath at half past six with his coat buttoned wrong and a surveyor's rod over his shoulder that he had no business carrying up a river path.
+Tomas came up the towpath at half past six with his coat buttoned wrong and a surveyor’s rod over his shoulder that he had no business carrying up a river path.
 
 “You are early for a man who asked for a physical inspection of a river gate,” she said.
 
@@ -94,7 +94,7 @@ Tomas came up the towpath at half past six with his coat buttoned wrong and a su
 
 Renn took him to the stone and put his own hand flat on the second mark.
 
-The water was a finger's width above it. Three days ago it had been a hand's width below the first.
+The water was a finger’s width above it. Three days ago it had been a hand’s width below the first.
 
 “Two marks and a finger since yesterday,” Renn said. “The rain has not stopped since two in the morning, and it was not meant to stop until tomorrow. I cannot tell you what it will do tonight. I have a windlass and a mark and forty years of reading one against the other, and none of that tells me what the river has already decided.”
 
@@ -102,9 +102,9 @@ The water was a finger's width above it. Three days ago it had been a hand's wid
 
 “I think it will be higher at dark than it is now, and I will know more at six this evening than I know now, and that is the whole of my craft.” Renn looked at the rod. “You will not get a number out of me that will let you sleep.”
 
-Foreman Crane came down the path then, a broad man in a wet felt hat who ran the market's landing and had been, for as long as anyone could remember, the person who decided whether a barge unloaded before or after the fish was out. He had heard the bell from forty feet away and he arrived out of breath and angry in the direction of good news.
+Foreman Crane came down the path then, a broad man in a wet felt hat who ran the market’s landing and had been, for as long as anyone could remember, the person who decided whether a barge unloaded before or after the fish was out. He had heard the bell from forty feet away and he arrived out of breath and angry in the direction of good news.
 
-“The ward is closing the low lane,” he said. “We are moving the fish to the high boards. I want you to ring that thing at the landing so the whole ward knows before the carts are loaded, and nobody loses a morning's trade finding out at the wrong end of a wet street.”
+“The ward is closing the low lane,” he said. “We are moving the fish to the high boards. I want you to ring that thing at the landing so the whole ward knows before the carts are loaded, and nobody loses a morning’s trade finding out at the wrong end of a wet street.”
 
 “You heard one note at the gate,” Tamsin said. “That is a signal authorized for the Low Ward. You are asking me to make it mean *the low lane is closing*, which is a thing nobody has accepted and nothing I am entitled to say.”
 
@@ -120,15 +120,15 @@ Crane looked at her for a while, the way a man looks at weather he cannot argue 
 
 “Right,” he said. “Knock, then. And if a woman opens with a child in her arms, I am speaking, not you.”
 
-They got as far as four doors before Tomas caught them at the third, which was the chandler's, where Nell Fenn was helping her master stack sacks above the water line and did not stop to argue.
+They got as far as four doors before Tomas caught them at the third, which was the chandler’s, where Nell Fenn was helping her master stack sacks above the water line and did not stop to argue.
 
-“The claim is not finished,” Tomas said. “I have the physical witness, which is this sill, and the visible fact, which is what Renn's hand can show anyone. What I do not have is the sentence, and until I have the sentence I cannot ask anyone to accept it, and I will not ring the gate bell on a claim that has no keeper's duty in it.”
+“The claim is not finished,” Tomas said. “I have the physical witness, which is this sill, and the visible fact, which is what Renn’s hand can show anyone. What I do not have is the sentence, and until I have the sentence I cannot ask anyone to accept it, and I will not ring the gate bell on a claim that has no keeper’s duty in it.”
 
 Tamsin turned on him. “You are the keeper of the sentence. It has been three days.”
 
 “It has been three days because I kept waiting for a clean answer, and there is not going to be one, and that is not a reason to spend the flood standing in a doorway.”
 
-They went back down to the sill with Renn and the lantern that was still not lit. The water had gained a finger since six o'clock. That was ordinary. It was also the entire basis of the claim, and a finger in half an hour on a rising river is a number that a person can feel in their stomach without ever being told.
+They went back down to the sill with Renn and the lantern that was still not lit. The water had gained a finger since six o’clock. That was ordinary. It was also the entire basis of the claim, and a finger in half an hour on a rising river is a number that a person can feel in their stomach without ever being told.
 
 Tamsin set down her bag and took out a slate and a stub of chalk.
 
@@ -170,24 +170,24 @@ Tamsin nodded. She had expected it, and being right about a refusal did not make
 
 He went to work on the sill.
 
-By nine the rain had thickened into something that emptied the towpath. The low lane was shut, and the fish were on the high boards, and the market's morning trade was gone because the water had taken the lane, and nobody's bell had done that.
+By nine the rain had thickened into something that emptied the towpath. The low lane was shut, and the fish were on the high boards, and the market’s morning trade was gone because the water had taken the lane, and nobody’s bell had done that.
 
-Tamsin walked the four doors with Crane and knocked on nine more, saying only what Crane said, in his own words where she could, and standing silent when he could not find his words. In the eleventh house a woman told her the Crown's warning was why the river was up, and Tamsin did not argue, because she had no way to prove that false and no duty to try.
+Tamsin walked the four doors with Crane and knocked on nine more, saying only what Crane said, in his own words where she could, and standing silent when he could not find his words. In the eleventh house a woman told her the Crown’s warning was why the river was up, and Tamsin did not argue, because she had no way to prove that false and no duty to try.
 
 At noon a boy came down the towpath from the low ward, soaked and out of breath.
 
-“The water's over the lane at the chandler's,” he said. “And there's a crowd at the west road, and a Crown road gang working the low turn, and the foreman is standing in it shouting at the water like it owes him money.”
+“The water’s over the lane at the chandler’s,” he said. “And there’s a crowd at the west road, and a Crown road gang working the low turn, and the foreman is standing in it shouting at the water like it owes him money.”
 
 Renn came out of his gate with the oilskin rolled under his arm.
 
-“Then it will crest before dark,” he said, “and the low section will take the weight of it, and I will read the mark at six and ring if I have to, and that is the last of what I know.”
+“Then it will be higher at dark than it is now,” he said, “and I will read the mark at six and ring if I have to, and that is the last of what I know.”
 
-Tamsin took out the chalk and the slate, and set Dace's promise on the face of it in clean block letters so that anyone could read it standing up in the rain, and then she went up the towpath on foot to deliver it in person, one house at a time, because the bell in her coat was authorized to a boundary and she was not.
+Tamsin took out the chalk and the slate, and set Dace’s promise on the face of it in clean block letters so that anyone could read it standing up in the rain, and then she went up the towpath on foot to deliver it in person, one house at a time, because the bell in her coat was authorized to a boundary and she was not.
 
-Behind her, at the low gate, Hollis Renn put his shoulder to the windlass bar and began, unhurriedly, to lift.
+Behind her, at the low gate, Hollis Renn had his shoulder under the windlass bar and no gate coming, because the pawl was slipping and there was a barrow-load of gravel packed behind the sill where the Low Ward’s own drain had been throwing it for eleven years.
 
-A fish seller came past with a basket on her head, looked at the gate, and then at the sky, and said to no one in particular that she had been in Kells forty years and had never once seen the gate up in a rising water.
+A fish seller came past with a basket on her head, looked at the gate, and then at the sky, and said to no one in particular that she had been in Kells forty years and had never once seen that gate come up in a rising water, and that nobody ever got it up at all until the water had found its own way through.
 
-Nobody answered her. Tamsin had begun walking before the sentence was finished, and she was three houses up the row before she understood what the gate being up meant: the water had reached the third mark, and the man who had promised not to add anybody's words to his had four hours left in which to be alone with his own.
+Nobody answered her. Tamsin had begun walking before the sentence was finished, and she was three houses up the row before she understood what the fish seller had said: the water was over the second mark and climbing toward the third, and the man who had promised to say four words and nothing else had until six o’clock to decide whether they were true, and the gate he would have needed to say them from was half full of gravel.
 
 She set the hour on the slate, and rang nothing, and went on.

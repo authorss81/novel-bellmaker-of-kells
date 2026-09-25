@@ -16,19 +16,19 @@ The first trouble came at the eighth hour, from a woman she had never met, who s
 
 “The woman at the chandler said two.”
 
-“The woman at the chandler was at the back and heard a count. That is a different failure from mine and I am not going to take it off her.” Tamsin shifted so she could see the woman's mouth. It helped and it did not. “What did your mother do?”
+“The woman at the chandler was at the back and heard a count. That is a different failure from mine and I am not going to take it off her.” Tamsin shifted so she could see the woman’s mouth. It helped and it did not. “What did your mother do?”
 
 “She packed a box.”
 
 “Was the box worth packing?”
 
-The woman looked at her as if the question were in a foreign language. Then she said, “It was not,” and went away, and Tamsin sat on the bollard and worked out that she had just been more useful in thirty seconds than the whole of yesterday's assembly, and that this was not a thing to be proud of, because the woman had packed a box for nothing and the nothing had been done to her by a sentence in a crowd.
+The woman looked at her as if the question were in a foreign language. Then she said, “It was not,” and went away, and Tamsin sat on the bollard and worked out that she had just been more useful in thirty seconds than the whole of yesterday’s assembly, and that this was not a thing to be proud of, because the woman had packed a box for nothing and the nothing had been done to her by a sentence in a crowd.
 
 She went to the watch house at the ninth hour.
 
 Jerm had the account of the four strokes written in his square hand, with the time, and beside each stroke the words that had been spoken, and he had written them in the order they had been spoken, which was more than she had expected from a gate watchman.
 
-“Oren wants the slips,” Jerm said. “Not to keep. For the hearing file. He says a Crown clerk's man came at sixth hour and asked for the three as one packet, and Oren said no, and the man said the packet is how it is filed, and Oren said then it can be filed as three, and the man said he did not have authority to say no on that, and Oren said that was the first honest thing anybody had said to him in a week.”
+“Oren wants the slips,” Jerm said. “Not to keep. For the hearing file. He says a Crown clerk’s man came at sixth hour and asked for the three as one packet, and Oren said no, and the man said the packet is how it is filed, and Oren said then it can be filed as three, and the man said he did not have authority to say no on that, and Oren said that was the first honest thing anybody had said to him in a week.”
 
 “Did the man take anything?”
 
@@ -36,7 +36,7 @@ Jerm had the account of the four strokes written in his square hand, with the ti
 
 “He will come back for the slips, and he will say the hearing needs one response, and there will be a man in the room who agrees with him, because a hearing is a place where one clean answer is worth more than four ugly ones.”
 
-Jerm's pen stopped. “What do you want me to do?”
+Jerm’s pen stopped. “What do you want me to do?”
 
 “Copy all three into the watch archive separately, and the withdrawals into a fourth heading, because a withdrawal is a record and not an absence. Every copy keeps its own heading, its own date and its own name, and they go in as entries and not as one with three under it. Then put a second copy of each on the ward board, tied, in a covered box, so the Low Ward has a copy that is not in this building. And write in the index that there are three and three withdrawals, and that all of it was made in one afternoon, so nobody can ever come in here and ask for a packet and be told there is one.”
 
@@ -46,7 +46,7 @@ Jerm's pen stopped. “What do you want me to do?”
 
 She was at the north gate at the tenth hour with Jerm and a slate.
 
-The rain had gone. The river was a foot and a half down on the low gate's second mark and falling, and the mud on the towpath had the look of a road that would be passable by noon and impassable by dark.
+The rain had gone. The river was a foot and a half down on the low gate’s second mark and falling, and the mud on the towpath had the look of a road that would be passable by noon and impassable by dark.
 
 “Log it,” she said. “I am going to ring once, at the gate, and you are going to write down who says they heard it and who says they did not, and I am not going to ask them first. I am going to stand where I can be seen and ring, and you are going to walk.”
 
@@ -132,7 +132,7 @@ He wrote it on the back of his claim sheet, which was the sheet the Crown wanted
 
 “Yes,” she said. “That is the part I keep having to work out.”
 
-She walked up the towpath alone, because the boy who usually ran messages had been sent to the upper village and she would not put a child's name on the same slate as this. Behind her the gate bell went for the change of watch, and she felt it in the stones under her boots and did not hear it at all.
+She walked up the towpath alone, because the boy who usually ran messages had been sent to the upper village and she would not put a child’s name on the same slate as this. Behind her the gate bell went for the change of watch, and she felt it in the stones under her boots and did not hear it at all.
 
 At the market court at noon there was a notice on the board that had not been there at the eighth hour, and the crowd around it was the bad kind of quiet.
 
@@ -140,7 +140,7 @@ Deputy Crake had posted it himself, at the eleventh hour, on Crown paper, and hi
 
 AN EMERGENCY CUSTODY HEARING IS SET FOR THE FIRST HOUR OF LIGHT ON THE DAY FOLLOWING THIS POSTING, AT MARKET COURT, BEFORE THE RESCHEDULED INSPECTION OF ROUTE L-4. THE MATTER IS THE WHOLE OF SIGNAL APPARATUS HELD IN THE VALE BELLHOUSE. THE COMMISSION ASSERTS THAT THE PUBLIC SIGNAL MADE YESTERDAY IN THIS COURT HAS DEMONSTRATED THAT THE WORKSHOP IS ABLE TO SOUND AN ANSWER IN THE WARD WITHOUT THE AGREEMENT OF THE WARD, AND IS THEREFORE MORE DANGEROUS THAN BEFORE, NOT LESS.
 
-The last sentence had a clerk's hand under it, and the clerk looked as though he would have preferred to be standing somewhere else.
+The last sentence had a clerk’s hand under it, and the clerk looked as though he would have preferred to be standing somewhere else.
 
 “Read it out,” Halden said, to nobody, in a voice pitched for the lane. “The whole of it. I want the ward to hear the last line in my mouth and not on a piece of paper.”
 
@@ -152,6 +152,6 @@ A woman near the front said, “Some of us will be glad. We never wanted the bel
 
 Tamsin read the notice twice, and then read it a third time looking for the part that named a time it could be beaten, and found that the notice was competently drafted and could not be beaten, and that the only place in the whole of it that was soft was the last sentence, which said *without the agreement of the ward*, and which was, strictly, and to her lasting irritation, correct.
 
-She copied it out into the watch book with the time and the seal, and then walked to the Low Ward board and pinned her own copy beside Nell Fenn's sheet, which was still up, sun-bleached, with its three lines about not being asked to move anybody.
+She copied it out into the watch book with the time and the seal, and then walked to the Low Ward board and pinned her own copy beside Nell Fenn’s sheet, which was still up, sun-bleached, with its three lines about not being asked to move anybody.
 
 Two papers about the same bell, side by side, in a place where people already went to argue. It was not much. It was what a courier could do, which was to make sure the two stories had to stand next to each other, and to refuse, for one more day, to be the reason either of them was believed.

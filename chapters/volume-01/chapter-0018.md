@@ -2,15 +2,15 @@
 
 The water had come down three inches in the night and kept coming down, and by the seventh hour the low turn of the west road was a road again with a stream in the middle of it. The undercut at its north end had stopped moving, which Tomas entered in the day-book as the one piece of good news available to him and did not trust.
 
-He had slept two hours. At the eighth hour he lodged the withdrawal procedure at the market court, on the same sheet he had been failing to finish since the guild inspection, and the clerk read it twice, copied it into the court book, and gave him a receipt. That paper turned the Bellwrights' Measure's challenge from a proceeding into an argument.
+He had slept two hours. At the eighth hour he lodged the withdrawal procedure at the market court, on the same sheet he had been failing to finish since the guild inspection, and the clerk read it twice, copied it into the court book, and gave him a receipt. That paper turned the Bellwrights’ Measure’s challenge from a proceeding into an argument.
 
 *Any household or keeper whose own words are carried by a route made under this claim may take himself off that route at any hour, before or after it carries, without giving a reason, without a fee, and without any consequence to that household, that keeper, or their trade. A withdrawal is recorded as a withdrawal. It is never recorded as a silence.*
 
-Iven Sore's second condition, satisfied on the morning of the second-to-last full day of the stay, by a maker with a bad hand.
+Iven Sore’s second condition, met at last, and met by a maker with a bad hand.
 
 The market court usher came in the ninth hour of the morning with the court call bell in a cloth.
 
-She was a wiry woman of fifty-odd with ink-blue cuffs and the manner of somebody who had been ringing a thing to order since she was eleven. She unwrapped it on the clerk's table: an unbound iron handbell, black with age, about the size of a two-handled cup, leather-wrapped handle, striker on a thong, no wire beneath it, no groove in its crown, no wax in it of any kind.
+She was a wiry woman of fifty-odd with ink-blue cuffs and the manner of somebody who had been ringing a thing to order since she was eleven. She unwrapped it on the clerk’s table: an unbound iron handbell, black with age, about the size of a two-handled cup, leather-wrapped handle, striker on a thong, no wire beneath it, no groove in its crown, no wax in it of any kind.
 
 “Jerm looked under it, and inside the loft, and at the beam, at my request this morning,” she said. “There is no line. I have rung this bell for the market, the court and the annual roll for nineteen years and it has never carried a word. Today it carries a count. I am its keeper. I will stop it when I decide to, and I will count every answer, including the ones I dislike.”
 
@@ -40,15 +40,15 @@ Oren had his pen still. He wrote for a while.
 
 “It is the shape of the thing,” Tomas said, and then wished he had not, because it drew a small laugh and Halden did not deserve a laugh and neither did the court, and it took him three more minutes to get the room back by saying the only thing that had ever got a room back in Kells, which was the truth, said plainly, without an audience.
 
-The four people who had said they would stand in the court that morning were in the arcade before it filled, and Tomas had the four of them against the wall for ten minutes, which was the last ten minutes in which he could still be useful to them.
+The four people who had said they would stand in the court that morning were Wenna Cray, Sena Dunn, Wyman Dace, and Hollis Renn, and three of them were in the arcade before it filled, and Tomas had those three against the wall for ten minutes, which was the last ten minutes in which he could still be useful to them.
 
-He had asked them yesterday at the ward board and again at the Bellhouse gate, one at a time, the same words each time, and he had written their agreement on four separate sheets, because a sheet with two names on it is a list and a sheet with one name on it is a person.
+He had asked them one at a time over three days, Cray and Dunn at the ward board, Dace at the toll shed, and Renn at his own gate, the same words each time, and he had written their agreement on four separate sheets, because a sheet with two names on it is a list and a sheet with one name on it is a person.
 
 Two of them had changed.
 
 “I am not answering in here,” Wenna Cray said. “You have my sentence and you have my price, which is the cart at the culvert, and I will say it at the ward board tonight where I chose to say it. This is not my room and these men write in a book.”
 
-“Then you are withdrawn, and it is written that you were withdrawn, and you may take your row with you or leave it standing, and it is not mine to give either.” She thought about it and took the row, which cost her something, and Tomas entered *withdrawn before the count, of her own motion, reason given* and did not try to make it tidier.
+“Then you are withdrawn, and it is written that you were withdrawn, and you may take your row with you or leave it standing, and it is not mine to give either.” Cray thought about it and took the row, which cost her something, and Tomas entered *withdrawn before the count, of her own motion, reason given* and did not try to make it tidier.
 
 Hollis Renn had sent word by a gate boy at the seventh hour, in four words: *I keep a gate, not a court.* Tomas entered that too, and found that his count of three had just lost two and gained a man he had to find in the lane.
 
@@ -62,7 +62,7 @@ The two replacements were standing in the arcade and had not been in the yard th
 
 Foreman Crane had not been asked and had not refused, and Tomas had to ask him now, in front of two witnesses, with the same words he had used on everyone else. Crane said yes, and then said that he had one thing to add before the reading, which was that he wanted to withdraw from two doors.
 
-“You wrote a procedure yesterday morning and lodged it at the court. I have read it. Under it I can take myself off a route with no reason given. I am taking myself off two doors on my row, I will name the two doors in open court and no reason at all, and then I will carry the words to the landing and the ward board and nowhere else.”
+“You wrote a procedure and lodged it at the court at the eighth hour, and I stood in the arcade and heard the clerk read it into the book before any of this began. Under it I can take myself off a route with no reason given. I am taking myself off two doors on my row, I will name the two doors in open court and no reason at all, and then I will carry the words to the landing and the ward board and nowhere else.”
 
 “Are those the two doors where the woman whose box you helped pack lives?”
 
@@ -74,13 +74,13 @@ Foreman Crane had not been asked and had not refused, and Tomas had to ask him n
 
 The clerk read the claim, and Tomas read it again himself in his own voice, because the frame required the same words and he was not going to be the man who improved them for the crowd.
 
-*THE WATER STANDS ABOVE THE SECOND MARK AT THE LOW GATE AND IS FALLING. THE CROWN ROAD GANG'S CART IS ACROSS THE CULVERT AT THE LOW TURN. I MEASURED AN UNDERCUT AT THE NORTH END OF THE WEST ROAD'S LOW SECTION, ONE SPAN AND A HALF FROM THE NORTHERN WALL, AND IT HAS NOT MOVED SINCE YESTERDAY. A CROWN NOTICE WAS FILED THREE DAYS BEFORE THE FIXED SURVEY CARRIER SOUNDED. IT SCHEDULES A DAWN RENEWAL INSPECTION ON ROUTE L-4 AND NAMES UNREGISTERED MINORS AS PUBLIC ASSETS. I CANNOT TELL YOU WHEN THE WATER WILL FALL FAR ENOUGH TO CROSS. I CANNOT TELL YOU WHAT THE INSPECTION IS FOR OR WHO ORDERED IT. I WILL NOT TELL YOU WHAT TO DO WITH ANYTHING YOU OWN.*
+*THE WATER STANDS ABOVE THE SECOND MARK AT THE LOW GATE AND IS FALLING. THE CROWN ROAD GANG’S CART IS ACROSS THE CULVERT AT THE LOW TURN. I MEASURED AN UNDERCUT AT THE NORTH END OF THE WEST ROAD’S LOW SECTION, ONE SPAN AND A HALF FROM THE NORTHERN WALL, AND IT HAS NOT MOVED SINCE YESTERDAY. A CROWN NOTICE WAS FILED THREE DAYS BEFORE THE FIXED SURVEY CARRIER SOUNDED. IT SCHEDULES A DAWN RENEWAL INSPECTION ON ROUTE L-4 AND NAMES UNREGISTERED MINORS AS PUBLIC ASSETS. I CANNOT TELL YOU WHEN THE WATER WILL FALL FAR ENOUGH TO CROSS. I CANNOT TELL YOU WHAT THE INSPECTION IS FOR OR WHO ORDERED IT. I WILL NOT TELL YOU WHAT TO DO WITH ANYTHING YOU OWN.*
 
 He had added the falling water, which was true, and the fact that the undercut had not moved, which was also true, and he had left in every sentence about what he could not do.
 
 It was then, with the crowd settled and before the usher had the bell in her hand, that Sena Dunn stood up in the third row of seats.
 
-She was thirty-four, and her agreement was written in Tomas's own hand at the top of the second page of his day-book with the hour beside it, because a man who says afterwards that a woman agreed to something should be able to open a book and show where.
+She was thirty-four, and her agreement was written in Tomas’s own hand at the top of the second page of his day-book with the hour beside it, because a man who says afterwards that a woman agreed to something should be able to open a book and show where.
 
 “I am withdrawing,” she said.
 
@@ -112,15 +112,15 @@ The usher rang the bell once. It was an ordinary iron sound with an ordinary edg
 
 The first answer belonged to Foreman Crane.
 
-“I accept a duty to carry those words to the river landing and to the ward board, and to no door at all unless the door asks me first. I will not ring anything. I will not shout in a lane. I will say the part about the Crown's cart, because that part is under my hand. And I withdraw from two doors on my row, by the procedure lodged yesterday, and I give no reason in this court, and the clerk will write that there were two and no reason, and that is the correct way for it to be written.”
+“I accept a duty to carry those words to the river landing and to the ward board, and to no door at all unless the door asks me first. I will not ring anything. I will not shout in a lane. I will say the part about the Crown’s cart, because that part is under my hand. And I withdraw from two doors on my row, under the procedure you lodged at the eighth hour, and I give no reason in this court, and the clerk will write that there were two and no reason, and that is the correct way for it to be written.”
 
-The clerk wrote *two doors withdrawn, no reason given*, and Crane nodded at it the way a man nods at a gate he has closed himself.
+The clerk entered *two doors withdrawn, no reason given*, and Crane nodded at it the way a man nods at a gate he has closed himself.
 
 The usher counted one on the iron.
 
 The second belonged to Wyman Dace, and it was not the answer Tomas had expected and it was, in the end, the one that taught him the most.
 
-“I am neither refusing nor accepting yet,” Dace said. “I will walk that road again this morning, and until I know what the water has done to the north end overnight I will not carry a word of it anywhere, because a man repeating yesterday's measurements in a rising town is not a keeper, he is a habit. Give me until noon. I will come back before the court closes and say yes or no, in front of the clerk.”
+“I am neither refusing nor accepting yet,” Dace said. “I will walk that road again this morning, and until I know what the water has done to the north end overnight I will not carry a word of it anywhere, because a man repeating yesterday’s measurements in a rising town is not a keeper, he is a habit. Give me until noon. I will come back before the court closes and say yes or no, in front of the clerk.”
 
 A murmur went through the arcade, and it was not a hostile one. Tomas felt the old pull to shorten a request for time into a yes, and kept his mouth shut, because a man who asks a public question does not get to answer it early.
 
@@ -128,7 +128,7 @@ The usher counted two on the iron, and a request for time going into the same co
 
 The third belonged to Bevin Sarr, who had come in a wet coat and stood with his hood up, and who did not look at Tomas once.
 
-“I refuse the route,” he said. “I will not carry these words and I will not let them be carried in my name. Put in the book that a man declined, and that he said no out loud so it cannot be written as a silence, and that he is doing it because the office holding the ward's list also holds a slip with his hand on it, and he is not a fool twice. I will not sign it. I will stand here while you write it.”
+“I refuse the route,” he said. “I will not carry these words and I will not let them be carried in my name. Put in the book that a man declined, and that he said no out loud so it cannot be written as a silence, and that he is doing it because the office holding the ward’s list also holds a slip with his hand on it, and he is not a fool twice. I will not sign it. I will stand here while you write it.”
 
 The clerk wrote it, and the usher counted three on the iron, so that a listener at the back of the arcade could tell that the third thing he had heard was a man declining, and could count the decline along with the promises.
 
@@ -138,13 +138,13 @@ Then a man near the pillars shouted it.
 
 He was neither young nor drunk, and eighty people turned to look at the street instead of at the three people on the step, and two of the Crown officers moved.
 
-Tomas felt the whole shape of the next ten minutes arrive in his chest before anything happened. He could ring. He had a claim, a court, and three counted strokes of iron on a bell that was not his, and if he put a fourth stroke on it — a low, plain, maker's note — he could put his own voice under the confusion for as long as the room would listen to it.
+Tomas felt the whole shape of the next ten minutes arrive in his chest before anything happened. He could ring. He had a claim, a court, and three counted strokes of iron on a bell that was not his, and if he put a fourth stroke on it — a low, plain, maker’s note — he could put his own voice under the confusion for as long as the room would listen to it.
 
 He looked at the usher.
 
 She shook her head. “It is my bell,” she said. “And it is not yours to fix a crowd with.”
 
-“She is right,” Oren said, in the voice he used at a gate. “The north-gate bell has not rung. No Crown bell has rung. What you have heard this morning is a court bell counting three answers, one of them a man saying no. I am the watch captain and I am telling you that, and I am the man who will be asked at the hearing whether it was true, and I would rather be asked than have somebody's fourth stroke make it harder to answer.”
+“She is right,” Oren said, in the voice he used at a gate. “The north-gate bell has not rung. No Crown bell has rung. What you have heard this morning is a court bell counting three answers, one of them a man saying no. I am the watch captain and I am telling you that, and I am the man who will be asked at the hearing whether it was true, and I would rather be asked than have somebody’s fourth stroke make it harder to answer.”
 
 The man who had shouted sat down on the step. Nobody contradicted Oren. Tomas took a slip of paper from the court clerk and wrote on it, in a hand that had begun to shake, *the count was three, and the fourth was not rung, and the clerk will say so*, and gave it to the clerk to read out, and did not speak for the rest of the hour except to read what he had written in the morning.
 
@@ -154,21 +154,21 @@ Wyman Dace came back twenty minutes before the court closed, wet to the waist, w
 
 “The north end has not moved,” he said. “The water is a foot and a half down on it and falling. The bridge piers are sound and the third stone has not shifted. I will carry the words to the bridge, and to the toll shed, and nowhere else, and not up past the landing. And I will say what I found, which is that the road there is bad and getting better, and a man should not put a loaded cart on it today.”
 
-The usher did not count it again. The clerk entered it in Dace's own column, under his name and the hour, with the word *amended* beside it, because Tomas had insisted on a column per person rather than a column per stroke, and a man whose answer is added to must be able to see that it was added to and not quietly replaced.
+The usher did not count it again. The clerk entered it in Dace’s own column, under his name and the hour, with the word *amended* beside it, because Tomas had insisted on a column per person rather than a column per stroke, and a man whose answer is added to must be able to see that it was added to and not quietly replaced.
 
-Three answers in three columns. A fourth column with the withdrawals in it, and a fifth with two doors on a man's row, and not one of those five columns headed by a name the Crown could file as a signature.
+Three answers in three columns. A fourth column with the withdrawals in it, and a fifth with two doors on a man’s row, and not one of those five columns headed by a name the Crown could file as a signature.
 
 He wrote it on the back of his hand while the court was still sitting, in the charcoal stub he had carried since the third day: *three answers, one amended, three withdrawn, two doors withdrawn. They did not agree. That is not a failure of the bell. That is the bell working.*
 
 It was in the fourth hour of the afternoon when the watch at the gate sent a rider up the hill.
 
-“Surveyor's in,” the man said. “The one the deputy has been waiting since Saturday. She wants the gate book and a dry place to sit, and she has been eleven days on that road because the ferry at Fourmile is not running and the Crown will not pay for a boat.”
+“Surveyor’s in,” the man said. “The one the deputy sent for on the second day. She wants the gate book and a dry place to sit, and she has been eleven days on that road because the ferry at Fourmile is not running and the Crown will not pay for a boat.”
 
 Oren went out to the gate, and Tomas walked down behind him, because he wanted to see the face.
 
-The woman at the gate was perhaps thirty-five, travel-worn, with a surveyor's rod, a leather case, and the expression of somebody who has been delayed by other people's arrangements and intends to say so once and then never again.
+The woman at the gate was perhaps thirty-five, travel-worn, with a surveyor’s rod, a leather case, and the expression of somebody who has been delayed by other people’s arrangements and intends to say so once and then never again.
 
-“Captain Pike. Surveyor Rhea Collis, northern district, appointed to certify the Low Ward inspection on route L-4, rescheduled to the morning after tomorrow at dawn. I have a commission, a seal and eleven days of mud. I was not the officer who certified the carrier at the Bellhouse, and I have never held the L-4 entry. If you have a roll in there I would like to see my own line on it, because in my experience a surveyor's name gets entered somewhere and then nobody remembers doing it.”
+“Captain Pike. Surveyor Rhea Collis, northern district, appointed to certify the Low Ward inspection on route L-4, rescheduled to the morning after tomorrow at dawn. I have a commission, a seal and eleven days of mud. I was not the officer who certified the carrier at the Bellhouse, and I have never held the L-4 entry. If you have a roll in there I would like to see my own line on it, because in my experience a surveyor’s name gets entered somewhere and then nobody remembers doing it.”
 
 Oren brought out the roll and found her line, in a fair hand, with a date on it, and no withdrawal under it.
 
@@ -179,7 +179,7 @@ Oren brought out the roll and found her line, in a fair hand, with a date on it,
 She went up the hill with her case, and Tomas stood in the road and understood that an accredited surveyor would be standing at the north gate at the hour the carrier had first sounded, and that the name on the withdrawn docket was still the name on the withdrawn docket, and that having a woman arrive on the road had not moved the name by one inch.
 
 By the time the lamps were lit, the market court clerk came up the hill to find Tomas, and he was in a temper, which Tomas had begun to look for as a sign that a document was about to be given to him.
-“The ward version has already changed,” the clerk said. “There is a woman at the chandler's saying there were two answers and both of them agreed to leave, and she says she heard it from a man who was standing at the back.”
+“The ward version has already changed,” the clerk said. “There is a woman at the chandler’s saying there were two answers and both of them agreed to leave, and she says she heard it from a man who was standing at the back.”
 
 “Two answers, both agreeing,” Tomas said. “There were three, and one was a man saying no, and one said he would not carry a word of it until he had walked a road again.”
 
@@ -191,7 +191,7 @@ Oren had come up behind the clerk. “Let it stand. Put a copy of the court book
 
 They were closing the arcade when the black-case man came up the lane with a Crown clerk behind him, and the clerk was carrying a folded paper with a seal that Tomas had seen twice in his life and did not like at all.
 
-“Vale. A correction from the commission, entered this evening, in the L-4 matter. The Crown treats today's three-answer record as a single local response received on route L-4, and evidence of a public answer is Crown property held by the Crown's filing office. The Bellhouse is to surrender the original witness slips and the maker's claim sheet to the survey store by the eighth hour tomorrow, in default of which the Crown will treat their retention as concealment and will apply at the dawn hearing for the seizure of all signal apparatus in the workshop.”
+“Vale. A correction from the commission, entered this evening, in the L-4 matter. The Crown treats today’s three-answer record as a single local response received on route L-4, and evidence of a public answer is Crown property held by the Crown’s filing office. The Bellhouse is to surrender the original witness slips and the maker’s claim sheet to the survey store by the eighth hour tomorrow, in default of which the Crown will treat their retention as concealment and will apply at the dawn hearing for the seizure of all signal apparatus in the workshop.”
 
 He held the paper out. Tomas did not take it.
 

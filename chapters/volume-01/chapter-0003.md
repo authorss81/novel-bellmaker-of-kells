@@ -294,9 +294,9 @@ She found the green scarf’s owner in the lane below and asked whether the man 
 
 When she returned to the watch house, she placed the recovered handbell on the table beside the lock register. Oren examined the handle and the wax without taking it from the cloth.
 
-“Your route map says this bell should stop at the river landing,” he said.
+“Your route map says this bell should stop at the low drain gate at the end of the landing,” he said.
 
-“It does.”
+“It does. Past that gate the flood bell takes up the ward’s own signal, and past that gate a courier’s note has stopped being a courier’s note.”
 
 “The wear says otherwise.”
 
