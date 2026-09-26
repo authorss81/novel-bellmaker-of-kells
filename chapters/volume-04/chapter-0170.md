@@ -56,7 +56,7 @@ At about the seventh hour he stood on the road with the barrow on the flat behin
 
 And then he noticed it, standing on the road, and it is the last thing on the page and it is the only thing he is not going to write a rule about.
 
-**Twenty days. I have not asked her what this is for on any of the twenty, and I have asked everybody else on this road about nine times a day, and I noticed it on the first of these ten days and I wrote it down and I have not asked on any of the nineteen since, and the reason has not changed and has not got longer and is four inches long, and I am not going to ask her today on a road with four other people in it, and I am not going to decide anything about it at about the seventh hour on a bank, because a man who fixes a reason on a thing at the seventh hour is a man building a case, and I do not have a case, I have a road, a barrow, four people and a bridge.**
+**Twenty days. I have not asked her what this is for on any of the twenty, and I have asked everybody else on this road about nine times a day, and I noticed it on the first of these ten days and I wrote it down and I have not asked on any of the nine since, and the reason has not changed and has not got longer and is four inches long, and I am not going to ask her today on a road with four other people in it, and I am not going to decide anything about it at about the seventh hour on a bank, because a man who fixes a reason on a thing at the seventh hour is a man building a case, and I do not have a case, I have a road, a barrow, four people and a bridge.**
 
 ---
 

@@ -8,7 +8,7 @@ The frame has not been in a building since the thirty-third and it is a hundred 
 
 At about the sixth hour, for the shed was busy at the fifth and there was no room to speak, Tomas stood with Tamsin Rook at the edge of the yard where the ground changed from cinder to stone, and she had her hand on the shed corner post and her boots on the hard edge, reading the yard through it.
 
-They had walked twenty-two days and he had not once asked her what the road was for. He had noticed it twice, on the flat below the ford and on the bank above the turning, and had not asked either time, because a man who fixes a reason on a thing is building a case and he had none.
+They had walked twenty-eight days and he had not once asked her what the road was for. He had noticed it three times, in a street of about forty houses, on a flat at the top of a lane above the inn, and on the bank above the turning, and had not asked on any of the three days, because a man who fixes a reason on a thing is building a case and he had none.
 
 He did not ask her for a reason now. He asked about the road, which was a different thing and was his to ask.
 
@@ -18,7 +18,7 @@ She looked at the yard, not at him. The hammers rang through the post into her p
 
 "No," she said.
 
-It was the first plain word she had given him in twenty-two days about anything that mattered, and it was about the road and not about him. He accepted it the way he had accepted every refusal on this road, by not improving it.
+It was the first plain word she had given him in twenty-eight days about anything that mattered, and it was about the road and not about him. He accepted it the way he had accepted every refusal on this road, by not improving it.
 
 "Then I go on," he said. "Because nobody else will carry it and the return will stand forty years if I stop."
 
