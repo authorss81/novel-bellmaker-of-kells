@@ -82,7 +82,7 @@ He said no to the first two and he said no to the third as well, and then he shu
 
 “You asked the district.”
 
-“In October, in the ordinary way, on a form any landlord may send, and they answered it in nine days on their own paper with a date on it, and the answer is a good answer and it is the whole of what I have ever been given by that office, and I have got it in a drawer in that house because I keep everything anybody sends me about my own houses, and I will not let you have it and I will not read it to you and I will tell you what it says, because I have read it about nine times and I have shown it to nobody.”
+“In the ordinary way, on a form any landlord may send, and I sent it the same week she came to me, and they answered it in nine days on their own paper with a date on it, and the answer is a good answer and it is the whole of what I have ever been given by that office, and I have got it in a drawer in that house because I keep everything anybody sends me about my own houses, and I will not let you have it and I will not read it to you and I will tell you what it says, because I have read it about nine times and I have shown it to nobody.”
 
 “Please.”
 
