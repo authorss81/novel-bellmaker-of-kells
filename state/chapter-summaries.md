@@ -711,3 +711,33 @@ Day 155, **the fourth hour, bare** to **the ninth hour of the evening**, **Tomas
 ## Chapter 0170 — Four People, One Bridge, Twenty Days Of Not Asking, And A Road That Goes On Whether He Can Read It Or Not
 
 Day 156, **the fourth hour, bare** to **the ninth hour of the evening**, **Tomas Vale's POV with Tamsin Rook on the edge of it**, a flat at a gate lane, a road past a turning, four people, a shovel, a bridge three miles back, a bank. **THE BATCH CLOSE.** He says the thing out loud in the ordinary voice — the barrow is not money, the paper is not authority, he has no standing in this district or the last three, he will not ask any of them for anything, if they walk it that is theirs and he will not say thank you, if they go home that is theirs and he will not ask why — **and nobody makes a sentence of it, and the fourth says nothing at all and picks the shovel up and comes.** Then the only question anybody has asked him in ten days he could answer inside a minute: **what happens if the timber is never bought. It stands. And if nobody puts a return against it. It stands, and it will be three boards in another nine years, and a hand's width of daylight, and about nine people a year will be right about it and about nine people a year will go round it, and neither of those two nines will ever be written down next to each other, and nobody will be able to say afterwards whether the bridge was shut or abandoned, because those are the same word for a bridge.** And a girl with a basket gives the true thing about it: **the bridge is the only thing on this road you cannot get into a column, and that is why it is the only thing we all said the same thing about.** And the ten days' list, the three ways of moving a thing, and **a true sentence is the smallest thing anybody can carry and he has four people and not one sentence, and the man who would have carried one wanted a form and he cannot give him a form and is not able, and those are two ends of one fact.** And the not-asking at twenty days, and the closing sentence: **the road goes on whether I can read the drawing of it or not, and it always has, and I have a hundred and fifty-six days of that and I am not going to spend the next ten pretending to have found something.**
+
+## Chapter 0171 — The Timber Yard Above The Bridge
+Day 157, fourth to ninth hour evening. Bridge paid as unbuyable: lot-or-none timber price, district buys only against new line. Four walk on.
+
+## Chapter 0172 — The Ford Crew At The Lower Water
+Day 158. Ford gang six, near thirty with kin; district pays heap; edge bedded holds, middle tipped washes.
+
+## Chapter 0173 — The Market Table Under Canvas
+Day 159. Fourteen tents, near fifty, three days in seven; book takes coin for row.
+
+## Chapter 0174 — The Landing Gang
+Day 160. Landing eight, near forty, paid by sack; Tamsin at post reading work, asked nothing.
+
+## Chapter 0175 — The District Clerk Mending A Shelf
+Day 161. Shelf mended by carter; return seen with nine places as work with mouths.
+
+## Chapter 0176 — The Nine Lines In A Return
+Day 162. REVERSAL: nine places read in fair hand while clerk pasted and ruled; paid coin and meal; no household box; keeper reason in his mouth.
+
+## Chapter 0177 — The Sentence Nobody Will Carry
+Day 163. One true thing to four, four refusals; sentence vs document.
+
+## Chapter 0178 — The Question About The Road
+Day 164. Question about road, one word no, accepted, walked past.
+
+## Chapter 0179 — The Fifth Walker
+Day 165. Corrie Vane walks one day to ferry; five and not company.
+
+## Chapter 0180 — The Bank Above The Ninth Mile
+Day 166. Close; fifth gone, four again, register thirteen.

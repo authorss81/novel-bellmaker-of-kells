@@ -130,3 +130,11 @@
 
 - **Mara Vale's trail is visible, is confirmed to be hers by the hand and not by the wax, and refuses to answer, and he does not go into an office to make her — PAID, Chapter 0105 and Chapter 0110, PAID AGAIN DIFFERENTLY IN CHAPTER 0128, AND PAID A THIRD TIME IN CHAPTERS 0147, 0148 AND 0150.** **She is load-bearing in `outline/ending.md` for Volumes 9 and 11. She appears in person in this volume and gives him nothing and is not turned into an ally he can summon, and the last time her name is on a page in this volume it is on a thing she chose and not on a thing he got.** She published what he would prefer hidden, before they ever met, and that stands.
 - **The Silent Muster is proved, by a document and a date and not by a bell, to be one clause of a larger Renewal operation — PAID, Chapter 0107.** A printed standing instruction, a number, a date, eleven clauses, clause seven about children entered on no roll, and two dated district forms in two other counties referring to clause seven by its number. **No signature, only a store number; six clauses unread and unguessed, out loud, in a market; it does not say what happens to a child once taken; it names no enemy and opens no mechanism. A child is still not found and Jory Fenn is still not found by a document. THE WORDS *muster* AND *Renewal* APPEAR NOWHERE IN CHAPTERS 121 TO 160, AND THE SWEEP OF `chapters/volume-04/` FOR BOTH RETURNS NOTHING.**
+
+## Batch 0003 added (171–180, closed none before it, reversal earned)
+
+- Nine places as work in district return (0176) — now the volume finding; use, not re-earn.
+- Bridge stands unbuyable (0171) — paid.
+- Sentence vs document: sentence dies with hearers, return lives forty years (0177).
+- Question about road asked, no accepted (0178).
+- Fifth walker Corrie Vane, one day to ferry (0179).
