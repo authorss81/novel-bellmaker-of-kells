@@ -36,10 +36,6 @@ Salkeld looked at him for longer than four seconds.
 
 “**That is a better question than the one you asked me on the ninety-eighth and I am not going to tell you that, because you did not ask me to and because I am not going to be a man who improves a stranger's mood at a counter. Sit down or do not sit down. **Yes.**”
 
----
-
-## And he said it, and then he said the other half of it, and the other half is two documents instead of one.
-
 “**Any person may read the record of any matter in that room, at any hour it is open, and the record is a public document and it belongs to the court and not to anybody in it, and the person who swore it does not own it and neither does the district.**”
 
 “**And the file.**”

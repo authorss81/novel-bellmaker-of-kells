@@ -42,11 +42,7 @@ He stopped.
 
 “**That is not nothing,**” Tarrant said. “**That is a great deal to ask a man who writes a book for a district. Most of what comes down those four flights to this counter is a number and a man who wants the number.**”
 
----
-
-## And then the book, and it took as long as it takes to find a line in a book of about nine hundred.
-
-He did not open the wall. He turned the book.
+He did not open the wall. He turned the book, and it took him as long as it takes to find a line in a book of about nine hundred.
 
 That is the thing, and Tomas Vale wrote it out flat afterwards and it is the finding of the hundred and seventh: **the most guarded room he has ever stood in, in this kingdom, keeps the one book in it that is open, and the wall behind the man is shut because a wall can be shut and a book cannot, and both of those are correct, and there is no clause anywhere that requires either one to be different.**
 
@@ -57,12 +53,9 @@ That is the thing, and Tomas Vale wrote it out flat afterwards and it is the fin
 “**Nobody is looking at it because it is a book of objects, and there are about nine hundred of them a year, and the man who could use this book is a man with an instruction in his hand, and there has not been a man with an instruction in his hand in this room for about four days.**”
 
 He turned a page. He turned another. He ran a finger down a column the way a man does who has read the same nine hundred lines nine hundred times and could find a thing in it with his eyes shut and does not enjoy the party.
-
 “**There. Twenty-two back, and it is the only one of about nine hundred that says what you have just said to me.**”
 
----
-
-## And the line is this, and there are five things in it and four of them are printed:
+**And the line is this.**
 
 > *4, 1 8 2 — **Netherby** — the eleventh — **coupling***
 

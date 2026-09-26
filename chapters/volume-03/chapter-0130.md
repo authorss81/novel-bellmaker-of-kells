@@ -30,9 +30,7 @@ Hale put his pen down. It is about four years and a lamp and a tray and he had n
 
 “**Nobody can stop it and nobody is going to try and there is not one person in this kingdom who is wicked. **You have been looking for eleven days for a man in a room and there is not one, and there is not going to be one, and the thing that is going to happen to your four sentences is going to happen in the correct form, out of the correct column, by nobody in particular, and you will not be able to find anybody to be angry with and that is not a comfort and it is not a defeat. It is a rule.**”
 
----
-
-## And he went down to the arch at the foot of the top terrace and asked a man at a counter, because a counter takes papers and not people and a man behind one is the only kind of man in this city who will tell a stranger the ordinary way of a thing.
+**And he went down to the arch at the foot of the top terrace and asked a man at a counter, because a counter takes papers and not people and a man behind one is the only kind of man in this city who will tell a stranger the ordinary way of a thing.**
 
 Perrin Lowe did not look up.
 
@@ -50,9 +48,7 @@ Tomas Vale put both hands flat on the counter.
 
 “**That is a district's business and it is the correct arrangement and you are asking me for a thing because you want to be able to do something about it, and you cannot, and I am not going to be the man who gives you the address of a thing I cannot stop.**”
 
----
-
-## And so he went and stood in a market of about nine hundred people on the middle terrace at about the sixth hour and there was a board on a public wall with about two hundred people in front of it.
+**And so he went and stood in a market of about nine hundred people on the middle terrace at about the sixth hour, and there was a board on a public wall with about two hundred people in front of it.**
 
 **About two hundred people, and not a crowd. Two hundred at a board is an ordinary morning in a market of about nine hundred, and nobody was shouting, and there was no bell, and a man at a pitch four hundred yards off was selling something and about nine children were in it.**
 
@@ -66,9 +62,7 @@ She did two other sheets first. She did them the way a woman does four hundred s
 
 The only people who had read it before this evening were the men in the room with the lamp, and they had read it because they had copied it. **About two hundred people read it tonight, in about nine minutes, while a woman with a tray of pins and a hammer worked along a board.**
 
----
-
-## And then the man who told him the price was nine feet off, selling something, in a market, on his own pitch, and Tomas Vale stood four feet off him and let him.
+**And then the man who told him the price was nine feet off, selling something, in a market, on his own pitch, and Tomas Vale stood four feet off him and let him.**
 
 **Ord Marren had nine rows in that market and had held them nine years and he had a book of his own and no office, and on the hundred and fifth, eleven days ago, in the ordinary voice, in a market, without pointing, he told a stranger what it costs to be named — about somebody else — and Tomas Vale stood four feet off him and said nothing and did not thank him and did not correct him and was not going to tell him.**
 
@@ -78,9 +72,7 @@ He was selling. He had been selling. He did not look up.
 
 **And Tomas Vale stood four feet off him and watched him sell for about nine minutes and did not say one word, and then he went and stood nine feet further off, which is a thing he learned from a woman nine feet off his left shoulder and has never once done on purpose until this minute.**
 
----
-
-## And here is the whole of what he found out about the price, and he found it out for nothing, in a market, standing up, on the hundred and sixteenth day, and the man who taught it to him does not know he taught it and is not going to be told.
+**And here is the whole of what he found out about the price, and he found it out for nothing, in a market, standing up, on the hundred and sixteenth day, and the man who taught it to him does not know he taught it and is not going to be told.**
 
 *About two hundred people read it, and the reading is the cheap part, and it costs the district about fourpence.*
 

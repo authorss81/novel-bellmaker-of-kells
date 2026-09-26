@@ -10,9 +10,7 @@ So it was one question and it was the cheapest question in this kingdom, and it 
 
 **Is this form the same form.**
 
----
-
-## And it took about four seconds, and Hale did not put his pen down, and that is how he answered it.
+**And it took about four seconds, and Hale did not put his pen down, and that is how he answered it.**
 
 “**The same form.**”
 
@@ -40,9 +38,7 @@ Hale put his pen down then.
 
 “**Then you know more about that tray than the district does. **They send me nine hundred a year and they do not send me a word about any of them, and the four words in that box are what the district says the matter is for, and there are four words in that box nine hundred times a year, and if the four words are wrong then nine hundred people a year have been sent out of this room on a wrong ground and there is nobody in this building who could tell you that, including me, and I have thought about it more than once and I have not done anything about it, because there is nothing to do.**”
 
----
-
-## And Tomas Vale did not ask what the fourth box was for, because he had already worked it out from nine feet, and because the most important part of all of it cannot be asked anything.
+**And Tomas Vale did not ask what the fourth box was for, because he had already worked it out from nine feet, and because the most important part of all of it cannot be asked anything.**
 
 That is a sentence he wrote in his own book on the ninety-ninth, about a wire, at about the seventh hour, with solder in his hand, and it is the truest thing he has written in a hundred and twelve days and it has cost him four counties.
 
@@ -70,9 +66,7 @@ Hale looked at him for a moment longer than he had looked at him on any of the t
 
 “**You said it in your face, and I am not going to pretend I did not see it, and I am also not going to help you, and I want that written down as two different things, because they are.**”
 
----
-
-## And he did not make a scene, and he did not put it in a market, and it is the fourth time in a hundred and twelve days he has had something in his hands that four hundred people could have watched him use.
+**And he did not make a scene, and he did not put it in a market, and it is the fourth time in a hundred and twelve days he has had something in his hands that four hundred people could have watched him use.**
 
 He went and stood in front of the board with the nine hundred lines on it, the same board, the same four boards, and he read the fifth column from end to end again, and it is empty on every line, and this time he was looking at it as the twin of a box nine feet off a tray.
 
@@ -86,9 +80,7 @@ And he did not join the third one, and the third one was the oldest one he has, 
 
 **Two empties in a day he can join. Three empties in three counties he cannot, and he wrote that down on the ninetieth in about four minutes in a square and it is the correct refusal and he is not going to improve it in a month.**
 
----
-
-## And then the thing that is the finding of the hundred and twelfth day, and it took him about four minutes, and it is not a moral and it is not a law.
+**And then the thing that is the finding of the hundred and twelfth day, and it took him about four minutes, and it is not a moral and it is not a law.**
 
 He stood in the middle of that room at about the fifth hour with about nine people in it and he looked at the rail and the board and the tray and the window, and he worked out who in that room could have seen the empty fourth box on the hundred and tenth.
 

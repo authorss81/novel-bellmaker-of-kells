@@ -34,9 +34,7 @@ He read it twice.
 
 The first time he read it for what it said. The second time he read it for what it cost, and it cost four lines, and four of the eight lines on that sheet are about a brother.
 
----
-
-## And he found out where she is by not asking, and the difficulty is the whole of it.
+**And he found out where she is by not asking, and the difficulty is the whole of it.**
 
 **He did not have to ask whether she was in this city. She put it in a public place in her own hand, in her own name, so that a man with a barrow would find it whether or not he was looking.**
 
@@ -46,9 +44,7 @@ Six years of not writing. One note in a highland town that never bore her signat
 
 **And a sheet on a board on the top terrace of a capital with her name at the foot of it, and four lines in the middle of it that are about him, and no address, and no hour, and nothing to answer.**
 
----
-
-## And the four lines are the cost, and he is the only person in this city who will ever know what they cost, and nobody is going to tell him.
+**And the four lines are the cost, and he is the only person in this city who will ever know what they cost, and nobody is going to tell him.**
 
 Read them again:
 

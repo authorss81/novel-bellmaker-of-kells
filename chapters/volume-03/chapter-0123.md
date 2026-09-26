@@ -25,20 +25,13 @@ He read the four boards from the top, all the way down, at the rate of about a b
 And about two hours in he understood the thing the clerk had told him, about two hours after it would have been any use.
 
 **A man who goes over a board from the top for four hours is conspicuous. A man who goes over it from the bottom up, once, having a reason and a number, and stops, is a man who has found what he came for and is going home. And the only way to be inconspicuous for two hours in a public room is to be doing something you would be doing anyway. Which is reading. And he is conspicuously good at reading, and there is no way round that, and he went at it anyway because there is nothing else to do with four hours.**
-
----
-
-## The columns are the same five, and the fifth is empty, and it is empty for the reason it is empty four streets and four flights up.
-
 > *number — district — day — the thing — and then nothing*
 
 He read that fifth column on all four boards from end to end, at the rate he read the store's list, and it took him about forty minutes of the four hours, and it is empty on every line, and the reason it is empty is the reason it is empty in a store, and he can say the reason in one sentence and it is the sentence a man says about a man who will not fill it in.
 
 **It is the same virtue. A man who keeps a list for a district will not write down a word he cannot read back to somebody who stands in front of him and asks. One of those men is four streets and four flights up this minute and the other one is in a room with no district of its own and a board screwed to a wall, and neither of them has ever heard of the other, and the column is empty in both, and there is nothing whatever at the middle.**
 
----
-
-## And then the second thing, and it is the thing he will come back for in two days, and he counted it twice.
+**And then the second thing, and it is the thing he will come back for in two days.**
 
 **The third column is the day. And the day is written on every line of all four boards except about nine.**
 
@@ -62,9 +55,7 @@ The four boards are ruled in five columns and the fifth is empty, and there is n
 
 And the thing that is different about this room and about that counter four streets and four flights up is four inches long and there is no villain in either of them, and it is the difference between an office that files and a court that publishes, and it is not in favour of either one.
 
----
-
-## And he found it at about the seventh hour, on the third board, and he did not write it down.
+**And he found it on the third board at about the seventh hour, and he did not write it down.**
 
 > *4, 1 8 2 — **Netherby** — the eleventh — **coupling***
 

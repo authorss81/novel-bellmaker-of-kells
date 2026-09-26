@@ -10,9 +10,7 @@ He had known for two days that he wanted to ask her something.
 
 So he sat on the step and he did the thing he has done every day for a hundred and thirteen days, which is nothing, on purpose, and he has written down that he did it, once.
 
----
-
-## And then she said it, and he did not ask her for any part of it, and she was not talking about him.
+**And then she said it, and he did not ask her for any part of it, and she was not talking about him.**
 
 She was talking about the rope.
 
@@ -34,9 +32,7 @@ She put the rope back up on the frame where it hangs, exactly where it was.
 
 “**It moves about four in ten and it costs me the being in it every time, and I have made my peace with that and I am not going to talk about my own peace with a man on a step.**”
 
----
-
-## And then she gave him the other two, and she gave them at ten feet, unasked, in the ordinary voice, and she was looking at the water.
+**And then she gave him the other two, and she gave them at ten feet, unasked, in the ordinary voice, and she was looking at the water.**
 
 “**A thing said out loud in a market is heard by the people standing there. **That is all it is. It cannot be produced afterwards by anybody, not by you, not by a clerk, not by a man in a room four counties off with a form. And it dies. Not quickly. It dies with the people, one at a time, over about nine years, and the day the last of them is gone there is nowhere in this kingdom anybody can go and find out that it was said.**”
 
@@ -48,9 +44,7 @@ He did not say anything.
 
 “**I have known that for eleven years and I had it the other way round and you worked it out in a market on the hundred and second in front of about nine hundred people and you did not know you had.**”
 
----
-
-## And he said the third one himself, out loud, once, and she did not help him and it took him about nine minutes.
+**And he said the third one himself, out loud, once, and she did not help him and it took him about nine minutes.**
 
 “**There is a third one.**”
 
@@ -80,9 +74,7 @@ He stopped there.
 >
 > *So the third thing is the one I have no instrument for. **A thing in metal, a thing on paper, a thing in the air at ten feet.** Three, and I have two of them and one of the two is the court's, and the one that is mine is in a head, and a head is not a trade and it is not a thing anybody has ever asked anybody for and I have got one and I am not going to be able to make it into anything at all.*
 
----
-
-## And he did not put a question on the slate, and the count is eight, and a thing that is not done is not a thing that has been done.
+**And he did not put a question on the slate, and the count is eight, and a thing that is not done is not a thing that has been done.**
 
 He had it under his arm the whole morning. The price side of it was on the other face and it was the other way up, and it had been the other way up since a slate in a yard in a highland town, and there were two lines in the fourth column and neither of them had improved.
 

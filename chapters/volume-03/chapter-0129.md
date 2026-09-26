@@ -4,9 +4,7 @@ It was the fourth hour of the hundred and fifteenth day and Tomas Vale went up f
 
 **He had stood in this room on the ninety-eighth and had not gone through the door, and the reason he had written down that day was that he had nothing true of his own to say, and that reason had been true, and he had also written down a second reason and the second reason was the one that had stopped him.**
 
----
-
-## And the sentence took him about an hour and a half to get to and it is four sentences long, and it is about him, and it is the first thing he has put in a document that is about himself.
+**And the sentence took him about an hour and a half to get to and it is four sentences long, and it is about him, and it is the first thing he has put in a document that is about himself.**
 
 He wrote it out on a step at the foot of the top stair on the night of the hundred and fourteenth, after he had written the day down and put the book away, and then he crossed out about half of it, and what is left is this:
 
@@ -20,9 +18,7 @@ That is the whole of it. Four sentences, about ninety words, and not one word in
 
 **A column has no family in it. A column can be said out loud in a market in about four hundred people's hearing and every one of them will say it the same way tomorrow, because there is nobody in it to be frightened and nobody in it to be angry.**
 
----
-
-## And it cost fourpence and it took about nine seconds and nobody asked him for a reason.
+**And it cost fourpence and it took about nine seconds and nobody asked him for a reason.**
 
 Coll Salkeld had a pen behind his ear and there was no queue, and Tomas Vale stood at the end of the rail and said it out loud, in his own voice, about himself, in a public room, and the clerk entered it against the day and the hour.
 
@@ -46,9 +42,7 @@ He noticed it. He noticed it in about four seconds and then he went and stood ab
 >
 > *And this one is about me and it took nine seconds and it cost fourpence and it says nothing in it that I did not know on the hundredth day of this month, and there is a man in a city of about nine thousand people who can now say that I said so, in my own name, in a document, in a public room, and it is on a wall for forty years, **and I cannot get it down, and there is no form anywhere in this kingdom by which a man who has sworn a true thing in open court can be made to have not sworn it, and there is no clerk who can do it, and one man has looked and looking is what he does.**
 
----
-
-## And he did not thank the clerk, and he did not improve it, and he did not stay at the rail, and he counted the room instead, which is what counting is for, and about nine people were in it.
+**And he did not thank the clerk, and he did not improve it, and he did not stay at the rail, and he counted the room instead, which is what counting is for, and about nine people were in it.**
 
 He was not the only one. There were about nine people in the room at the fourth hour and he counted, standing nine feet off, without meaning to, because counting is what he does with a room.
 

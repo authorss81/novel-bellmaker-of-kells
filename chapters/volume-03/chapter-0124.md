@@ -21,11 +21,6 @@ He has read four hundred words standing up before, on the hundred and fifth, in 
 That is the form, and the form is four boxes, and three of them are filled in.
 
 **One is the matter. One is the person. One is the day. And the fourth is a space with nothing in it, and it is the fourth box, and it is the box on every form in this kingdom that says why.**
-
----
-
-## And he read the rest of it, and here is the whole of the four hundred words:
-
 > *The person named was told in this room what she was charged with, and was asked, on four separate days, whether she wished to answer, and on the fourth occasion she said that she would answer once and not again, and the court allowed it.*
 >
 > *Her answer is set out at the end of this record in her own words, as she gave them. Nothing has been entered in this record that was not said in this room.*
@@ -48,9 +43,7 @@ There were about nine forms in it. Hale was on the top one and the other eight w
 
 He did not ask to see them. He did not lean over Hale's hand. He read nine heads of forms at nine feet and he did it in about as long as it takes to count nine things.
 
----
-
-## And then he went outside, and he did not open the last fold, and neither of those is a decision he is proud of and both of them are on the page.
+**And then he went outside, and he did not open the last fold, and he is not proud of either of those and both of them are on the page.**
 
 The bundle was tied at the middle with a string. Inside the string, at the back, folded once in a sheet that is a different paper from the rest, there was something that was not part of the four hundred words.
 
@@ -75,10 +68,6 @@ Not in the form. Not in the four boxes. Not in the paragraph about the goods not
 **And the box where it would be said is empty. And on nine forms in a tray nine feet off it is not.**
 
 He stood in the street and he was aware — for about nine minutes and possibly for the rest of the day — that he had been handed a document about his own mother, and it did not tell him one thing about her, and that this was not a matter of a court keeping a file, because a file is the district's and he is the man and he has known that for two days.
-
----
-
-## And he did not ask who she was, of anybody, and he did not say her name aloud in that room, and here is why, and it is four inches long.
 
 There were about nine people in that room and corridor over the day: the clerk, a man sweeping, two men who came in at about the fifth hour and stood at the far end of the rail for about four minutes and left, a woman with a tray of her own, a man who asked Hale for something in a low voice and got it.
 

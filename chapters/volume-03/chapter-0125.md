@@ -27,10 +27,7 @@ He said the last part without any weight on it at all.
 “**No. And I am not going to pretend you wanted to, because everybody wants to, and wanting it is not a thing I am going to write down for you.**”
 
 **And Tomas Vale stood at the rail with nothing in his hands, which is a sentence that has been true for a hundred and eleven days, and undid the string on a bundle of about forty sheets, and read the four hundred words again because he is a man who compares, and then went to the back, and opened the fold.**
-
----
-
-## And the sheet inside the fold is a different paper from the rest, and it is eleven lines long, and it is in her words and not in her hand.
+**And the sheet inside the fold is a different paper from the rest, and it is eleven lines long, and it is in her words and not in her hand.**
 
 > *I will answer once. I told the court I would and I am doing it and I am not going to be asked again in this room.*
 >
@@ -62,9 +59,7 @@ It stops in the middle of a subject. It stops the way a record stops, which is t
 
 And the record of the matter, in four hundred words in the office's own hand above it, says that nothing has been entered that was not said in this room, and that the court has not found that she did or did not do the thing charged, and that the matter is closed.
 
----
-
-## And this is the finding of the hundred and eleventh day, and it is four inches long, and he stood up and worked it out in about nine minutes with his hands on the rail.
+**And this is the finding of the hundred and eleventh day, and it is four inches long, and he stood up and worked it out in about nine minutes with his hands on the rail.**
 
 **A duty is a thing a person accepts. A conviction is a thing a person suffers. They are not the same shape and they are not the same size and one of them fits in a person's mouth and the other one is done to a person in a room they are not in.**
 
@@ -96,9 +91,7 @@ He does not know whose hand it is and he has not got a way of finding out and th
 >
 > *And the copy is the reason the thing has stopped being hers. Not because anybody lied. **Because a copy of an answer is an answer that has left the person who gave it, and once it has left, it is nobody's, and it is a thing in a file about a matter in a district, and it says what she did and it does not say who she was, and that is not a thing anybody did to her. It is what a copy is.**
 
----
-
-## And he did not ask. Not of Hale, not of the man who swept the corridor, not of the woman with a tray, and not of himself, out loud, in a public room, in a city of about nine thousand people.
+**And he did not ask.** Not of Hale, not of the man who swept the corridor, not of the woman with a tray, and not of himself, out loud, in a public room, in a city of about nine thousand people.
 
 And he wrote down that he did not, at about the seventh hour, on the low wall at the end of the four steps, and the reason is four inches long and it is not cowardice and it is not care:
 
