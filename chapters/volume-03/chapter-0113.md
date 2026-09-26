@@ -28,7 +28,7 @@ Holt said that in the ordinary way, at about the fifth hour, with his hand on a 
 
 He moved nine tons.
 
-**Four hours, on boards, with a barrow that was not his and a sack that was not his and a hundred and eleven trips, and by the sixth hour his hands had stopped being hands and become the two ends of a thing, and there is no craft in this novel that is worth more than that and no man in it who has ever earned a place by it more cheaply.**
+**Four hours, on boards, with a barrow that was not his and a sack that was not his and a hundred and eleven trips, and by the sixth hour his hands had stopped being hands and become the two ends of a thing, and there is no craft in this trade that is worth more than that and no man in it who has ever earned a place by it more cheaply.**
 
 He did not ask about the wire. He asked about the cut.
 
@@ -90,11 +90,11 @@ And a man at a counter four streets and four flights up has a book with a column
 
 ---
 
-**And he was wrong on the ninety-seventh, and he wrote that down, and it is the only time in this batch that he has gone back and crossed out a thing he wrote in his own hand with no pressure on him at all.**
+**And he was wrong on the ninety-seventh, and he wrote that down, and it is the only time in a hundred and seven days that he has gone back and crossed out a thing he wrote in his own hand with no pressure on him at all.**
 
 > *On the ninety-seventh I wrote down **a bell is a man standing next to it**, out of a wharfman's mouth, and I wrote down that I did not believe it. I was wrong to disbelieve it, and I have got the reason now, and the reason is a wire, and the reason a man does not mend the wire is that the mend would be a fault and the fault would be a book and the book would be a question with his name at the bottom of it.*
 
-**A man who mends his own wire makes a thing that has to be answered for. A man whose wire is cut by a district and joined by a district has made nothing, and has answered for nothing, and is owed the whole of it back, and is standing on a loft at about the seventh hour of the ninety-ninth day of the month waiting nine days for it and it is the most correct decision anybody has made in four counties in this volume and he is not going to be thanked for it by me because he did not do it for me.**
+**A man who mends his own wire makes a thing that has to be answered for. A man whose wire is cut by a district and joined by a district has made nothing, and has answered for nothing, and is owed the whole of it back, and is standing on a loft at about the seventh hour of the ninety-ninth day of the month waiting nine days for it and it is the most correct decision anybody has made in four counties and a city and he is not going to be thanked for it by me because he did not do it for me.**
 
 **That is the seed, and it came in a wharfman's mouth and not out of a book, and it is a sentence about a delay and about a lighter and about a cart on a road, and I am not going to make it into anything else. It is nine days old and I cannot use it. I do not even know yet what it is for.**
 
@@ -118,7 +118,7 @@ He wrote the last entry of the ninety-ninth at about the ninth hour of the eveni
 >
 > *And I was wrong on the ninety-seventh. **A bell is a man standing next to it.** I wrote that down out of a wharfman's mouth and wrote down that I did not believe it, and I was wrong to disbelieve it, and I have got the reason now and the reason is a wire, and I have gone back over nine days of my own book and put a line under that sentence in my own hand with nobody asking me to.*
 >
-> *Third column, ruled apart, and I am merging nothing: **he is waiting nine days, on a lighter he has booked, on nine tons on a floor, for a repair he asked for and could do himself in an hour, and it is the most correct decision anybody has made in four counties in this volume, and he is not going to be thanked for it by me, because he did not do it for me and would not want it.** And I moved nine tons for him and I was not thanked and I did not ask, and that is the correct arrangement and I want it in the book because in a month I am going to want to be thanked for something and I will not have earned it.*
+> *Third column, ruled apart, and I am merging nothing: **he is waiting nine days, on a lighter he has booked, on nine tons on a floor, for a repair he asked for and could do himself in an hour, and it is the most correct decision anybody has made in four counties and a city, and he is not going to be thanked for it by me, because he did not do it for me and would not want it.** And I moved nine tons for him and I was not thanked and I did not ask, and that is the correct arrangement and I want it in the book because in a month I am going to want to be thanked for something and I will not have earned it.*
 >
 > *And I did not go and read the foreman's list, and I wrote down that I did not, and the reason is a wire list and a barrow and a road and about thirty joins and nothing on any of it that I did not get off a loft floor in four hours.*
 >
