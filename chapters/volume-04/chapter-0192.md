@@ -10,7 +10,7 @@ It was the fourth hour of the hundred and seventy-eighth day and Isa Trevail was
 
 "How much of it is the water."
 
-"About a foot and a half, and the good ground here is about a foot above the river, so that is a step and a foot of room, and I have got about an hour." She hooked two baskets onto the yoke. "And I am going to say a thing once and not again this week. Four days of pay owed me by a man at the upper landing, and he is not a bad man, he has had a bad month with the stone, and I have never once said so out loud to And if the water is over those steps I will be in his yard an hour later asking for it with my boots full of this town's water, and I have not decided whether I am going to do that."
+"About a foot and a half, and the good ground here is about a foot above the river, so that is a step and a foot of room, and I have got about an hour." She hooked two baskets onto the yoke. "And I am going to say a thing once and not again this week. Four days of pay owed me by a man at the upper landing, and he is not a bad man, he has had a bad month with the stone, and I have never once said so out loud to anybody. And if the water is over those steps I will be in his yard an hour later asking for it with my boots full of this town's water, and I have not decided whether I am going to do that."
 
 She went up the yoke. Tomas took the other end of the bar without being asked, and they went up nine foot of bank in one go and set the baskets down, and she counted them off on her fingers and did not say the number out loud.
 

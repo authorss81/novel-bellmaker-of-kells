@@ -40,7 +40,7 @@ Crome took his time. He walked nine paces to the door and stood in it with his h
 
 ---
 
-At about the sixth hour there were forty people on the top of the steps, and the water was coming over the grass two hundred yards down, coming the way a thing comes when it is not in a hurry.
+At about the sixth hour there were forty people on the top of the steps, and the water was on the grass two hundred yards down, coming off it the way a thing comes off when it is not in a hurry.
 
 Tomas Vale said the words, in the order he always said them, to forty people on a bank in the open. About nine said the four words back to him and the rest listened and said nothing, and four at the back started to go up the bank while he was still in the middle of the fourth one.
 
@@ -56,7 +56,7 @@ He did not finish it. The five words he had said about the low corner of a yard 
 
 ---
 
-At about the seventh hour the water came over the bank, and on the day after it went out Tomas Vale walked the low quarter and did the only accounting available to a man with no standing, which is to look.
+At about the seventh hour the water was down off the grass and in the rooms where it had been the night before, and Tomas Vale walked the low quarter and did the only accounting available to a man with no standing, which is to look.
 
 Nine houses of the front row were wet. Nine had been wet the day before. A house at the fourth door had the words in it, said twice, once by a carter at the top of the steps on the day before yesterday and once by him at the fourth hour on the day before that, and it was under a foot and a half and the woman in it was on the second floor with a neighbour's dog and a neighbour who had gone up the steps at the seventh hour and not come back for her.
 
@@ -66,13 +66,13 @@ A house at the sixth door had been warned, by a woman over a wall about a foot h
 
 He could account for which of the two hundred and forty people were wet. He could not account for why, and neither could the man with the satchel, and both said so in the same words about a quarter of an hour apart, and neither thanked the other and neither blamed the other, and they were the only two people in Hallowmere with any idea at all and they were not on the same side of a question.
 
-At about the ninth hour of the evening he was on the flat with the barrow behind him and the four bolts made fast, and the water had stopped going up two hours before, and the plain carrier in its sack was against the cradle where it had been since the fifty-second. There were two hundred yards of open bank between here and the top of a flight of steps, and a thing four foot long would have done that whole quarter in nine seconds, and the second clause of a receipt in five clauses, all five standing, is the reason he cannot pay for anything with the barrow. There is no clause in it that lets a man get a bell out of a sack and stand on a bank for an evening, and he was not going to, and he wrote that down in the ordinary way and not as a noble thing.
+At about the ninth hour of the evening he was on the flat with the barrow behind him and the four bolts made fast, and the water had stopped coming down two hours before, and the plain carrier in its sack was against the cradle where it had been since the fifty-second. There were two hundred yards of open bank between here and the top of a flight of steps, and a thing four foot long would have done that whole quarter in nine seconds, and the second clause of a receipt in five clauses, all five standing, is the reason he cannot pay for anything with the barrow. There is no clause in it that lets a man get a bell out of a sack and stand on a bank for an evening, and he was not going to, and he wrote that down in the ordinary way and not as a noble thing.
 
 He wrote the sentence down as far as it went, in his own hand in his own book, and the last two words on the page are *they should*, and then a line, and under the line the word *stopped*, and under that: *Out loud, in front of about forty people, and he was right, and I would have been stopped by him or by a man in a coat with no satchel at all. Five words with no end on them are not an order. I was not allowed to say the rest and I am not going to write it down, because a sentence in a book is a sentence somebody can read in forty years and act on, and I did not have the standing to make it true then and I have not got it now.*
 
-> *The hundred and eighty-third, at about the ninth hour of the evening. A stone store, one door at the wrong end, a pencil figure in a margin, four boxes and an empty day box, a bank, , nine saying the four words back, a satchel, a sill, a second floor, a neighbour's dog, a chair by a fire, four inches, a sack, a cradle, nine seconds, four bolts.*
+> *The hundred and eighty-third, at about the ninth hour of the evening. A stone store, one door at the wrong end, a pencil figure in a margin, four boxes and an empty day box, a bank, nine saying the four words back, a satchel, a sill, a second floor, a neighbour's dog, a chair by a fire, four inches, a sack, a cradle, nine seconds, four bolts.*
 >
-> *Second column. **Nine counted in a district's book in the margin in pencil, which is not a thing I am supposed to do, and the clerk has been told and said nothing, which is a thing he is not supposed to do either.** A man may say a number about a river on a bank in this county and there is nowhere to put it in anyway. **A district's sheet with my name at the top of it, four boxes, and the box for the day left empty, which I have not stopped looking at since the fourth hour. A day is the end of a thing when it is on it, and this has none, and so it has no end that anybody in this county can name, including the man who wrote it. It is worse than a hearing and I am telling him so from the man who is filing it, and filing it is the whole of what I am.**
+> *Second column. **Nine counted in a district's book in the margin in pencil, which is not a thing I am supposed to do, and the clerk has been told and said nothing, which is a thing he is not supposed to do either.** A man may say a number about a river on a bank in this county and there is nowhere to put it in anyway.*
 >
 > *Second column, the sheet. **A district's sheet with my name at the top of it and four boxes, and the box for the day left empty, which is a thing I have not stopped looking at since the fourth hour.** A day is the end of a thing when it is on it. This has none, so it has no end that anybody in this county can name, including the man who wrote it. It is worse than a hearing, and I am telling him so from the man who is filing it, and filing it is the whole of what I am.
 >

@@ -10,15 +10,15 @@ Tomas Vale stood nine feet off the long side of the table with his barrow in a y
 
 He put a finger two inches in from the left edge and ran it down the sheet to nine inches from the bottom and did not cross anything.
 
-"A mould frame has an outside and an inside, and everything in a frame is about the frame and nothing in it is about the thing until it is out of the frame and cooled. I have been looking at that sheet for a hundred and forty days as a drawing of a road, and it is not one." He weighted a corner that was lifting. "**That is a frame. That rectangle is not a hole in a road. That rectangle is a bay in a frame that nothing was run into, and it is in the same place in the frame because it is the same frame, and I do not know what was not run into it and I am not going to guess and I would like to be asked in about nine years.**"
+"A mould frame has an outside and an inside, and everything in a frame is about the frame and nothing in it is about the thing until it is out of the frame and cooled. I have been looking at that sheet for a hundred and forty days as a drawing of a road, and it is not one." He weighted a corner that was lifting. "**That is a frame. That rectangle is not a hole in a road. That rectangle is a bay in a frame that nothing was run into, and it is in the same place in the frame because it is the same frame, and I do not know what was not run into it and I am not going to guess at it, and I have said that out loud in a room with nine benches' people in it and not one of you has asked me.**"
 
-Nobody asked him then and nobody asked him in nine years and the bay is not explained and is not going to be.
+Nobody asked him, and the bay is not explained, and there is no form in this kingdom on which a man in that room could have asked him and written down afterwards that he had.
 
 ---
 
 At about the fifth hour Perry Nunn came round the table, because Merrit Sallow had said *Perry, there is a figure at the top of that column and I want to know whether you have got it anywhere*, and Nunn was a bench clerk of eleven years who had never filled a fourth column and was not starting on a paper he did not write, and it was Sallow who had asked and not Tomas Vale, and Tomas was nine feet off the table and did not open his mouth.
 
-"I have got it," Nunn said, and put the rate book down and did not open it, which is a thing about him. "In the corner of a reach book, , and it is the sheet's own number. I did not join the two and I am not joining them now. Joining the two is not a thing anybody does."
+"I have got it," Nunn said, and put the rate book down and did not open it, which is a thing about him. "In the corner of a reach book, and it is the sheet's own number. I did not join the two and I am not joining them now. Joining the two is not a thing anybody does."
 
 "I have asked you to do one thing."
 
@@ -44,7 +44,7 @@ The room did not make a noise. Nine benches' people looked at a sheet of paper.
 
 At about the seventh hour the thing the nine benches do with a gate came up, because nine men were in the room and somebody said the word *command*, and it took about a minute and a half, and Tomas Vale had heard a version of it on a coping four days before and heard it again here and neither time did anybody raise their voice.
 
-Two benches would share the mending; that was not in question, they had shared a sill, a rope and a week. What was in question was a man over it, and the answer was a fact about a habit and not about a principle: a gate nobody owns gets mended, and a gate a man owns does not, and those are the same gate in about nine years, and every gate on this river has gone two hundred years with nobody standing over it, and a man in charge wants to be asked, and the asking goes in a book, and a thing about a gate in a book stops.
+Two benches would share the mending; that was not in question, they had shared a sill, a rope and a week. What was in question was a man over it, and the answer was a fact about a habit and not about a principle: a gate nobody owns gets mended, and a gate a man owns does not, and that is a habit and not a law, and every gate on this river has gone two hundred years with nobody standing over it, and a man in charge wants to be asked, and the asking goes in a book, and a thing about a gate in a book stops.
 
 Tomas asked the same question at two benches on purpose, and wrote both answers on one line in his own book with a bar between them, and carried neither to the other man.
 
@@ -52,7 +52,7 @@ The man from the second bench said, "The bench that mends it pays out of the rat
 
 The man from the sixth bench said, "Whoever is on the reach that week takes it round, and in four years nobody will know and the sill will still be up."
 
-Both are true. The difference between them is the whole of what a central command is, and he had written two numbers on that line four days ago and would write two more in nine years and would still not carry one to the other, and he is not the clerk of it, he keeps no terms, and nobody in that room knows he asked anybody at all.
+Both are true. The difference between them is the whole of what a central command is, and he had written two numbers on that line four days ago and would write two more at the next bench he stood in and would still not carry one to the other, and he is not the clerk of it, he keeps no terms, and nobody in that room knows he asked anybody at all.
 
 Cobb Arley was at the back of the room. He lives on the water, nine benches turn up and nobody counts who turns up, and four hundred yards above him on a bank there are four doors, and he had said nothing for about an hour.
 
@@ -62,7 +62,7 @@ At about the ninth hour of the evening the room had emptied and the bench-room t
 
 > *The hundred and eighty-fifth, at about the ninth hour of the evening. A bench room, a stove, a long table, nine benches, thirty people, eleven iron weights, a sheet, a frame, a bay two hands together, a reach book, a figure in a corner, keeper, return, rate, crew, nine miles, four hundred and forty carts, two bars on one line, four doors, four hundred yards, four bolts.*
 >
-> *Second column. **Four tables in a hundred and forty days, four men looking, and not one of them can read a run. I could not see where it stops and I told him why and I am not changing my mind today. I can see the frame.** A mould frame is a frame, and everything in one is about the frame and nothing in it is about the thing until the thing is out of the frame and cooled. **A man who makes a thing out of a drawing does not see a drawing stop, because his whole trade is a place where the marks stop. The rectangle is a bay that nothing was run into, and it is in the same place in every copy because it is the same frame, and I do not know what, and I would like to be asked in about nine years.** Nobody asked him then or in nine years.
+> *Second column. **Four tables in a hundred and forty days, four men looking, and not one of them can read a run. I could not see where it stops and I told him why and I am not changing my mind today. I can see the frame.** A mould frame is a frame, and everything in one is about the frame and nothing in it is about the thing until the thing is out of the frame and cooled. **A man who makes a thing out of a drawing does not see a drawing stop, because his whole trade is a place where the marks stop. The rectangle is a bay that nothing was run into, and it is in the same place in every copy because it is the same frame, and I do not know what, and I have said that out loud in that room and not one of them asked me.**
 >
 > *Second column, what a clerk said. **The sheet is a return and not a road, and the difference is the number in the corner of it: a road has a scale on it and no number, and a return has a number because a return is a thing that was filled in and filed and wants finding again.** So the panels are not places, they are answers. A keeper in a panel is a person somebody is answerable for. Halfway down there is a rate and nothing else. In the bottom third there is a crew and a figure of mouths and nothing else at all. **The panels with nothing in them have no keeper in them, and the ones that are gone are gone from every copy in the same bay in the same frame, and he has never asked, because a bench is not a district.** A weighmaster: **dense at the top with keepers and returns and a box for a reason with a line under it and nothing printed over it, and then thinner, and then rate and crew, and then crew and a figure of mouths, and then nothing.**
 >

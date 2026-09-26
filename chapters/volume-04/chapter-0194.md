@@ -4,7 +4,7 @@ It was the fourth hour of the hundred and eightieth day and Retha Vask was stand
 
 There were nine posts down the length of that yard and she touched all nine, and Tomas Vale came in at the top end with a barrow and stopped, because a woman with a rope round her neck going along a wall touching things is a woman doing a count and there is no way to help with a count without becoming part of it.
 
-""You are not going to be able to help," she said, without turning round, at the fifth post. "Nine posts and about forty of us, and everything anybody in here owns is against one of those two walls or it is not here, and if a thing is not in the yard then the person who owns it is standing in front of me telling me about it, and that is the system."
+"You are not going to be able to help," she said, without turning round, at the fifth post. "Nine posts and about forty of us, and everything anybody in here owns is against one of those two walls or it is not here, and if a thing is not in the yard then the person who owns it is standing in front of me telling me about it, and that is the system."
 
 "How many are standing in front of you telling you about it."
 
@@ -34,7 +34,7 @@ Ned Adley was at the mouth of the passage with a hod over his shoulder and had n
 
 "The yard behind these steps," Tomas said. "About forty people. Is anybody going to try to get them out today."
 
-"Somebody will," Ned said. "Not me and not from this end. There is a way out of that yard at the far end over a plank and into a boat-shed, the plank two foot under, and the door in that shed a man has to get through backwards. I know that because I have carried stone into that yard and been told to carry it back out the same way, and I asked why and was not told. I am not going to stand at the top of that passage and send a woman of forty through two foot of moving water into a shed I have never been inside of."
+"Somebody will," Ned said. "Not me and not from this end. There is a way out of that yard at the far end over a plank and into a boat-shed, the plank two foot under, and the door in that shed a man has to get through backwards. I know that because I have carried stone into that yard and been told to carry it back out the same way, and I asked why and was not told. I am not going to stand at the top of that passage and send a woman of forty people through two foot of moving water into a shed I have never been inside of."
 
 ---
 
