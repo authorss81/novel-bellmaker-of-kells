@@ -8,17 +8,17 @@ So she did the other thing, which is the one thing she has, and she stood at a q
 
 ---
 
-**Because that is what a town does with a week, and it is not what anybody expects, and it is not a refusal and it is not a cart.**
+Because that is what a town does with a week, and it is not what anybody expects, and it is not a refusal and it is not a cart.
 
 It is a queue.
 
 Two women in a line at a fish pitch said a name to each other, flatly, in the ordinary voice, in about eleven seconds, and the woman in front turned round, and then said it back to her, and about nine people heard it, and then a third woman at the back of the line said it to nobody at all, in the ordinary way, the way you say a thing you have said before.
 
-**And a man at a pitch of nothing in particular said his neighbour's name to his neighbour and the neighbour said it back, and a woman with a barrow of onions said a name to a man she did not know and the man said it back to her before she had got to the end of the sentence, because he had heard a woman say it at a well and he had said it himself and he knew what it was.**
+And a man at a pitch of nothing in particular said his neighbour's name to his neighbour and the neighbour said it back, and a woman with a barrow of onions said a name to a man she did not know and the man said it back to her before she had got to the end of the sentence, because he had heard a woman say it at a well and he had said it himself and he knew what it was.
 
 Not the names. The *act.*
 
-**A claim said twice in a market is a thing a market does now, and it started at ten feet on the seventieth from a woman with a slate, and nobody voted on it and nobody said it out loud as a thing anybody had decided, and by the eighty-fourth it is the ordinary way a queue works in this town, and about a hundred people did it yesterday, and none of them knew they were doing anything at all.**
+A claim said twice in a market is a thing a market does now, and it started at ten feet on the seventieth from a woman with a slate, and nobody voted on it and nobody said it out loud as a thing anybody had decided, and by the eighty-fourth it is the ordinary way a queue works in this town, and about a hundred people did it yesterday, and none of them knew they were doing anything at all.
 
 That is what the road found. She has been on a road for eleven years looking for a place and a road does not go to a place, and on the eighty-fourth the road found a queue, and **a queue is not a place and cannot be looked up and cannot be sent a rider and has no name on any map in this kingdom, and I have spent eleven years learning to go to places.**
 
@@ -62,17 +62,17 @@ And he turned back to his cloth, and that is the whole of the one question, and 
 
 ---
 
-**And about nine people in this town know that their names are on a piece of slate, and she knows two of them, and this is how she knows and it took her until about the sixth hour of the morning to see it.**
+And about nine people in this town know that their names are on a piece of slate, and she knows two of them, and this is how she knows and it took her until about the sixth hour of the morning to see it.
 
 It is not that anybody has said so. A town of two thousand is a small thing and nine is a number a town can hold, and what she has seen since the seventh hour of the morning is **two women in this market who said a sentence and then said, in the ordinary way, as an aside, *and I have said that before, and I have said it here twice now*** — which is the ordinary way a person tells you they have already been written down, and neither of the two of them knew that they were telling her anything at all.
 
 **Nine is not a large number. Nine is a number a market can hold and a town cannot forget and a clerk's hall cannot even see.** He wrote nine names on a slate on the seventy-sixth because he could not stop, and he wrote it down again at the eleventh hour of that evening with the hour against it, and he went on to a market the next morning and put a bell on a block.
 
-**And about nine hundred people heard a bell on the seventy-seventh and I have been in nine of them this morning, and none of the nine has a cart coming and none of the nine has a man at the door, and two of the nine are standing in a market saying that they have already been said.**
+And about nine hundred people heard a bell on the seventy-seventh and I have been in nine of them this morning, and none of the nine has a cart coming and none of the nine has a man at the door, and two of the nine are standing in a market saying that they have already been said.
 
 ---
 
-**And at about the seventh hour she was in the east lane, at the end of it, at a gable with a lean-to, and the door was shut and she did not knock, and then the door opened, and it was Bess Marrow, and Bess Marrow said the thing that is the finding of the eighty-fourth before anybody had said one word.**
+And at about the seventh hour she was in the east lane, at the end of it, at a gable with a lean-to, and the door was shut and she did not knock, and then the door opened, and it was Bess Marrow, and Bess Marrow said the thing that is the finding of the eighty-fourth before anybody had said one word.
 
 “**You have not come back to this door.**”
 
@@ -96,9 +96,11 @@ They stood about two feet apart in a doorway for about four minutes and a half a
 
 “**I am going to tell you the two things and then I am going to shut this door, and the first is that the thing I have been afraid of for nine years is a cart, and there has not been a cart, and I have not got a reason and I am not going to be given one and I am not going to ask.**
 
-“**And the second is that the market saying it back is worth more to this house than the fire, and I am not going to say why, and I have not got a number for it and I am not going to make one up, and I have watched about nine hundred people in that square over seven days and I have counted the things that have changed and I have counted about four.**
+“**And the second is that the market saying it back is worth more to this house than the fire, and I am not going to say why, and I have not got a number for it and I am not going to make one up, and I have watched the nine hundred in that square over seven days and I have counted the things that have changed and I have counted about four.**
 
-“**Four. One, a queue says a name back. Two, a man with a barrow put a clerk's name in a square and about nine hundred people heard it and the clerk is right and everybody in this town now knows that a clerk can be named. Three, about eleven men who work with their hands met in a room over a saddler's shop on the eighty-third and about a hundred people have heard that they met. And four, and this is the one I have not got round: **nobody has been told what to do.**””
+“**Four. One, a queue says a name back. Two, a man with a barrow put a clerk's name in a square and nine hundred people heard it and the clerk is right and everybody in this town now knows that a clerk can be named. Three, about eleven men who work with their hands met in a room over a saddler's shop on the eighty-third and about a hundred people have heard that they met. And four, and this is the one I have not got round:**”
+
+“**nobody has been told what to do.**”
 
 “That is the fourth thing.”
 

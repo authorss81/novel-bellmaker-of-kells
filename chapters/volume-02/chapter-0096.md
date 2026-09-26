@@ -20,11 +20,11 @@ He did not ask the woman who lets them.
 
 That is on the page and it is the first thing he wrote down about the eighty-second and he wrote it before he did anything else, because he had asked that woman to put a thing in a box on the seventy-first and she had done it and asked for nothing and had told him twice for nothing what she keeps, and there is no version of the eighty-second in which he asks her again about a table she has already described to him out of her own mouth.
 
-**And there is one more thing and it is the reason, and it is the whole of six weeks: a person may be asked and may refuse, and he has been refused six times since the thirty-fourth and not one of the six cost her anything, and the next one is not his to spend on a woman who has never once asked him for anything and who keeps about nine hundred names in four years and has never been asked what her book is for.**
+And there is one more thing and it is the reason, and it is the whole of six weeks: a person may be asked and may refuse, and he has been refused six times since the thirty-fourth and not one of the six cost her anything, and the next one is not his to spend on a woman who has never once asked him for anything and who keeps about nine hundred names in four years and has never been asked what her book is for.
 
 So he went and found out who owned the house, and the man who owned the house was a dyer, and he was in a vat room at the back of it and he was not a servant and he was not an officer and he had no office and he was not on any list that Tomas Vale had ever seen.
 
-**And he had a key to his own upper rooms, and about four years of a room over his own vat room that he could not let.**
+And he had a key to his own upper rooms, and about four years of a room over his own vat room that he could not let.
 
 ---
 
@@ -44,11 +44,11 @@ He said that last part himself, in about nine seconds, before Tomas Vale had got
 
 He thought about it for about four minutes on a step by the vat room, and the thinking is on the page because it is the only part of the eighty-second that was difficult.
 
-**What he wanted was a sheet out of a book that was not his, in a room that was not his, in a building that was not the Crown's, from a set of papers belonging to an office that had shut on the morning of the sixty-seventh and would not open again until the spring.**
+What he wanted was a sheet out of a book that was not his, in a room that was not his, in a building that was not the Crown's, from a set of papers belonging to an office that had shut on the morning of the sixty-seventh and would not open again until the spring.
 
 And there was no law against it, and no form against it, and no clause of a receipt that touched it, and no notice on any wall that said it could not be done.
 
-**And there was also no way whatever to show that a man had not done it, which is the whole of why he could do it and also the whole of why he could not afterwards put it in a book and have anybody believe him.**
+And there was also no way whatever to show that a man had not done it, which is the whole of why he could do it and also the whole of why he could not afterwards put it in a book and have anybody believe him.
 
 He went back and asked the dyer one question, and it was his own chore and it was about nine seconds long.
 
@@ -82,7 +82,7 @@ That is the whole of it and it took about a minute and a half and he never put i
 
 ---
 
-**And the witness wrote the hour down, in her own hand, on a sheet of her own, and she was asked to do it by a man with no standing, and she could have refused, and he had about nine seconds to hear whether she was going to.**
+And the witness wrote the hour down, in her own hand, on a sheet of her own, and she was asked to do it by a man with no standing, and she could have refused, and he had about nine seconds to hear whether she was going to.
 
 The woman who lets rooms had come out at about the seventh hour because a man was in her passage and there is a rule about that in a house with rooms in it, and she stood at the bottom of the stair and she did not come up.
 
@@ -120,7 +120,7 @@ He had that on the forty-second day of the month, in a district office in anothe
 
 The numbers on the fragment were in a sequence. Two of the nine were the same number and had two different days against them. One was struck through in a hand that was not the ruling hand, and the striking had a day, and there was nothing against the striking.
 
-**And that is the whole of it. It does not say where a name goes. It does not say a name at all. It says a reference goes, and a reference going somewhere is not a person, and I have known that for forty days and I have never once seen it printed nine times in a row by somebody who was not paid to print it.**
+And that is the whole of it. It does not say where a name goes. It does not say a name at all. It says a reference goes, and a reference going somewhere is not a person, and I have known that for forty days and I have never once seen it printed nine times in a row by somebody who was not paid to print it.
 
 He wrote that down and then wrote under it, immediately, in the same hand, because he knew what he was about to do:
 
@@ -148,6 +148,8 @@ He wrote the last entry of the eighty-second at about the ninth hour of the even
 >
 > *And the two of them, and I am writing this flat because it is the whole of what the day was: **a man took nine lines out of a room in his own house that was not his, and said so before anybody asked him and said what it was for and it was not for me. A woman with a book of about nine hundred names wrote the hour down in her own hand and kept the sheet and would not give it to me and I did not ask for it and did not try. I tried to thank them both and I was refused twice in about four seconds and I am not going back to that stair and neither of them is owed a visit and there is no column for either of them and no clerk can enter it and there is no form on which I could do anything for them at all.***
 >
-> *And the finding, and it is the finding of six weeks and it is four inches long: **this is the first time in six weeks that I have got a thing that I did not have to be right about.** I did not persuade a man with a barrow; I said a thing out loud on a bottom step and a man in a vat room had a grievance of his own, which was about thirty-six pounds and four years, and a woman who keeps nine hundred names had a grievance of her own about not being asked, and neither of them owed me a thing and both of them were owed something and I was the man who was standing in the passage. **I have spent six weeks finding out that I have no standing and I have not once found out what a man with no standing is for, and it turns out he is for standing in a passage while two people do a thing for their own reasons, and then getting out of the way.***
+> *And the finding, and it is the finding of six weeks and it is four inches long: **this is the first time in six weeks that I have got a thing that I did not have to be right about.** I did not persuade a man with a barrow; I said a thing out loud on a bottom step and a man in a vat room had a grievance of his own, which was about thirty-six pounds and four years, and a woman who keeps nine hundred names had a grievance of her own about not being asked, and neither of them owed me a thing and both of them were owed something and I was the man who was standing in the passage.
+>
+> ***I have spent six weeks finding out that I have no standing and I have not once found out what a man with no standing is for, and it turns out he is for standing in a passage while two people do a thing for their own reasons, and then getting out of the way.***
 >
 > ***All five clauses stand and none of them was touched today and I did not use any of them. Nothing was rung. The frame is in this yard with four bolts made fast in it and no clapper in it. The bell is in a sack in this yard and it has been rung once in a market in this town and it is not certified for anything and there is nothing in it, and I have not touched it since the seventy-seventh and I do not know where it went and I am not going to find out.***

@@ -73,7 +73,7 @@ What he gains is **civic and relational**, and it is not a gift: he learns what 
 - **Chapters 61–70 (Batch 0002) — Four counties, one hand.** The route map with its sections cut out of every public copy; the smithy on the far side of the county line and the first bell Tomas has ever rung that he did not make; a household that has been moved out of a house because of what one of its members is registered as; and **Marten Cope's office used properly for the first time**, in person, with an address. **Pell Rill's name arrives on a document in this batch and the man arrives at its end.**
 - **Chapters 71–80 (Batch 0003) — Miremarket and the Answer Rolls. The midpoint reversal.** They reach Miremarket and find the rolls: clerks record one household member's signature as a response for an entire household, and the district can certify anything inside a column and cannot certify the column. Rill is encountered as a courteous, competent auditor who can produce a better answer than the truth in about nine minutes. The reversal: **the ward's whole argument — that an answer is a person and may be withdrawn — is true and is useless here, because the roll does not need anybody's answer, it needs one signature and a stamp.** What was a theft of consent in Kells is a bookkeeping practice here, and it is defended by people who are not lying. Ends with the first household in Miremarket that will say no on the record, and it costs them.
 - **Chapters 81–90 (Batch 0004) — The Unpaid Names are a list.** The names on the rolls begin to be read as duties, and families are bound to them; a child is moved; Tamsin's reason for being on the road becomes a name on a roll in a town four counties away; the truth begins to cost somebody other than Tomas. **Tomas learns what a person can do with a slate, a road and a witness**, and it is not enough, and it is not a stage. Mara's trail is confirmed and refuses to answer. Ends with a merchant's house on a roll and an inheritance that cannot be claimed while the roll stands.
-- **Chapters 91–100 (Batch 0005) — The apology bell and the confiscation. Climax and resolution.** **Tomas rings a bell he did not make, whose entire claim is his own fault, in a market in Miremarket, in front of the people who are owed an answer — and a local official's part in a disappearance comes out of the room, in the open, because he cannot produce a document and then says something into the record.** The truth opens inheritance claims and a merchant revolt. The Crown confiscates the room they were keeping the copies in and the bench they were lent, **and the evidence that would have protected the victims goes with them.** Tomas and Tamsin recover a fragment of the name ledger and prove the Silent Muster is one clause of a larger Renewal operation. The Bellwrights' Measure splits. **No coronation, no cure, no trial won, no Crown office defeated.**
+- **Chapters 91–100 (Batch 0005) — The apology bell and the confiscation. Climax and resolution.** **Tomas rings a bell he did not make, whose entire claim is his own fault, in a market in Miremarket, in front of the people who are owed an answer — and a local official's part in a disappearance comes out of the room, in the open, because he cannot produce a document and then says something into the record.** The truth opens inheritance claims and a merchant revolt. The Crown confiscates the room they were keeping the copies in and the bench they were lent, **and the evidence that would have protected the victims goes with them.** Tomas and Tamsin recover a fragment of the name ledger **and prove the Silent Muster is one clause of a larger Renewal operation — NOT DELIVERED, carried to Volume 03; see the close note at the end of this file.** The Bellwrights' Measure splits. **No coronation, no cure, no trial won, no Crown office defeated.**
 
 ## Midpoint reversal
 
@@ -89,7 +89,7 @@ By Chapter 100:
 
 - **The local promise is answered.** What an answer is made of, and who has been signing, is known and is on the public record in Miremarket: a signature is one person's, a household is many, and a roll that carries the first as the second is a document about the clerk and not about the house.
 - **A fragment of the name ledger is recovered** — not the ledger, a fragment, by a person who had no legal right to it and a witness who wrote the hour down.
-- **The Silent Muster is proved to be one clause of a larger Renewal operation**, and proved by a document and a date, not by a bell.
+- **The Silent Muster is proved to be one clause of a larger Renewal operation**, and proved by a document and a date, not by a bell. **NOT PAID. See *Volume 02 close — two required payoffs that were not delivered* at the end of this file. Carried to Volume 03.**
 - **Tomas is not newly powerful.** He has rung one bell he did not make and has no stage, no sense, and no way of knowing where a warning landed. He is a man with a bar on his own bell, a receipt with a fifth clause, and a road.
 - **Tamsin's hearing is permanent and she is not rescued out of anything.** She carries, she refuses, she is refused, and she is not treated as exposed.
 - **The Bellwrights' Measure splits** between licensed central control and independent craft, and Tomas does not get to settle it.
@@ -101,7 +101,7 @@ By Chapter 100:
 - **Tomas and Nell Fenn:** she is in Kells and he is on the road, and the volume's best civic act is something she can do without him. She is sixteen and she gets better at it.
 - **Tomas and Oren Pike:** a correspondence with a man in a chair in a real building, and the volume's proof that an alliance is not a leash.
 - **Tomas and Iven Sore:** the guild splits and Tomas is on the wrong side of the split in a way that costs him something he wants.
-- **Tomas and Mara:** her trail is confirmed, and she does not answer, and he does not go into an office to make her.
+- **Tomas and Mara:** her trail is confirmed, and she does not answer, and he does not go into an office to make her. **NOT PAID. She does not appear in any chapter of Volume 02. See the close note at the end of this file. Carried to Volume 03.**
 
 ## New question for the next volume
 
@@ -117,3 +117,30 @@ By Chapter 100:
 ## Final chapter image
 
 A road after the confiscation, in the rain, with a barrow and a frame in a cradle that still cannot be rung, and a handbell in a bag belonging to somebody else. **The two questions from Kells are answered and a third one is on the page in its place, and it is not a better one.** A woman who has been deaf since the fourth of the month reads Tomas's shoulder from behind him, because she has been doing it for eleven years, and says the one sentence that closes the volume, and it is not a promise and it is not a refusal: it is a question, asked by the person who has the right to ask it, and the man answers it in four words and does not improve it in the morning.
+
+**Delivered in Chapter 100, beat for beat, and not improved.**
+
+---
+
+## Batch 0005 card as written, and what it cost
+
+*(recorded at the volume close, 2026-09-26. The plot is unchanged. This records two required payoffs that the written chapters did not deliver, so that the next volume inherits them as obligations instead of losing them.)*
+
+### Volume 02 close — two required payoffs that were not delivered
+
+**Volume 02 is complete at Chapter 100 and the ending above is the ending that was written. Two items this outline required were not delivered, and both are recorded here as UNPAID rather than quietly struck, because the alternative is a state layer that claims a payoff the chapters do not contain — the specific failure this project has produced most often.**
+
+**1. Mara Vale does not appear in any chapter of Volume 02.** She appears in Volume 01 in Chapters 1, 4 and 8 only. This outline required her at `:23` (premise — her trail visible and unreliable), `:32` and `:104` (relationship — mutual abandonment unresolved, she will not answer a letter, her trail confirmed and refusing to answer), `:68` (mystery item 7), and `:75` (the Batch 0004 card). `bible/characters.md:120` also places *Tomas gives Mara a copy of a ledger and accepts that she may publish what he would prefer hidden* in Volume 02. **Batch 0003 dropped her, Batch 0004 dropped her, and Batch 0005 inherited the gap; each recorded its own shortfall in its own summary and the thread was allowed to fall.**
+
+**2. The Silent Muster is not proved anywhere in Volume 02.** The Concrete Resolution above and the Batch 0005 card at `:76` both require it proved by Chapter 100 to be one clause of a larger Renewal operation, **by a document and a date and not by a bell.** The words *muster* and *Renewal* appear in no chapter from 91 to 100, and the substance is absent from the whole volume. The Batch 0005 prompt forbade only the *phrase* being spoken aloud; nothing carried the substance, and that distinction went unexamined until the volume closed.
+
+**Neither is a new plot element and neither introduces anything.** Both are established in `bible/`, `outline/series.md` and `outline/ending.md`, and **Mara is load-bearing in `outline/ending.md` for Volumes 9 and 11** — she reconciles enough to work with Tomas, refuses to enter the Bellwrights' Measure, keeps the record that proves the old warning, and makes sure the reforms include the right to remove her own name from a public role.
+
+**Nothing in the written prose has to be undone to place them.** The relationship is *unstarted*, not damaged: Volume 02 never said anything about Mara that a Volume 03 appearance has to retract. The Silent Muster is *unproved*, not contradicted.
+
+**These are therefore Volume 03's first two obligations, in this order:**
+
+1. **Mara's trail becomes visible and is confirmed to be hers and refuses to answer, and he does not go into an office to make her.** Her Volume 03 appearance must not resolve the family mystery and must not become a rescue.
+2. **The Silent Muster is proved, by a document and a date and not by a bell, to be one clause of a larger Renewal operation** — a clause, not a plot, and not a new final enemy.
+
+**A Volume 03 plan that does not place both of these has repeated the failure, and the next volume-close audit should check for them by name rather than by scanning for the word.**

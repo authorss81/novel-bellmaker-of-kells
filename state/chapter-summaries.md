@@ -1,5 +1,13 @@
 # Chapter Summaries
 
+**ARCHIVE TIER. This file is not in any batch prompt's read list and a batch writer should not load it.**
+
+**It is 400 KB of one-entry-per-chapter prose, roughly 950 bytes a chapter, and it is the largest artifact in the repository. It is retained because it is a genuine per-chapter index and because rewriting 100 entries is a job of its own, but the load set for a batch is five files and this is not one of them:** `state/current.md`, `state/continuity.md`, `state/character-state.md`, `state/open-threads.md`, `state/volume-index.md`. See `state/volume-index.md` for the table.
+
+**For the detail on any batch, read that batch's summary — one file, not ten — and resolve it through the batch map in `state/volume-index.md` rather than by arithmetic on a filename.** The immediate state of every object and person is in `state/current.md` and `state/character-state.md`, not here. Nothing in this file is a governing figure: where an entry here disagrees with `state/current.md` about a count, an hour, a custody state or a name, **`state/current.md` is the live reading and this entry is a record of how it got there.**
+
+**Compacted 2026-09-26.** The four required-read state files were reduced from about 490 KB to about 130 KB in the same pass, which was the blocking cause of two dropped Volume 02 payoffs. This file was left long deliberately rather than half-rewritten: a lossy truncation of 100 entries would destroy information, and the load problem here is solved by the header above. **If it is ever compacted, compress Volumes 01 and 02 batches into per-batch arc blocks and keep one short line per chapter for the live volume — do not truncate lines.**
+
 ## Chapter 0001 — The Bell Without a Clapper
 
 Tomas receives a waist-high fixed Crown survey carrier at the Vale Bellhouse before first light and discovers that its survey clapper is missing. The carrier rings without being struck; Tomas measures the warp twice and distrusts the agreement because his hand was steady twelve years ago while something that should have been loud went quiet. He clears his own flood bell out of the casting room to make space, soaks a paid job to keep the carrier documented, and sends the customer a delay notice. He documents a child-sized wax handprint, a near-cut coupling with a thin jumper, and a note attributed to Mara saying not to call it an answer. Surveyor Pever certifies the damage, says the order came out of the survey store rather than from him, and leaves. Tomas locks the carrier in the casting room, preserves the marks, and leaves with a route fragment and a warning that outlasted anything the cut coupling could account for.

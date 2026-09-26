@@ -52,7 +52,7 @@ They got out of the town on the road down from it at about the fifth hour, and t
 
 ---
 
-**He wrote the two questions down at about the seventh hour, under a hedge, on a page, because a day-book gets wet and this is a thing a man does in his business and not a thing a man does in a feeling.**
+He wrote the two questions down at about the seventh hour, under a hedge, on a page, because a day-book gets wet and this is a thing a man does in his business and not a thing a man does in a feeling.
 
 They were the two he had written at the end of the month before last, in a room in another county, with the hours, and he had carried them fifty-four days and put them into four buildings.
 
@@ -78,7 +78,7 @@ He did not ring anything.
 
 The Crown survey carrier is in its reinforced padded cradle on a barrow on a road with four retaining bolts made fast in it and no clapper in it, and the receipt forbids any person to furnish one, and **it cannot be rung and I did not furnish one and I have not gone near it and I am not going to.**
 
-The certified plain carrier is in a sack against that cradle, and it has no wax in it and no dressed groove in it and nothing on it but a caster's mark and a day, and **I have rung it twice myself, once on a sill in a town four counties behind this one on the fifty-second and once in a market square in a town four days behind this one on the seventy-seventh, and I have never learned where either of them went, I have never once in my life learned it, I wrote that in this book on the sixty-second and I have not learned it since and I do not now, and nobody in that square was told where it went and nobody was told by me and I am not going to be told it as a favour and I am not going to go back and look.**
+The certified plain carrier is in a sack against that cradle, and it has no wax in it and no dressed groove in it and nothing on it but a caster's mark and a day, and **I have rung it twice myself, once on a sill in a town four counties behind this one on the fifty-second and once in a market square in this town on the seventy-seventh, and I have never learned where either of them went, I have never once in my life learned it, I wrote that in this book on the sixty-second and I have not learned it since and I do not now, and nobody in that square was told where it went and nobody was told by me and I am not going to be told it as a favour and I am not going to go back and look.**
 
 And he did not ring a bell he has made, **and the reason is not a rule. The only bell I have made is in a sealed yard in a county whose bar I do not argue, it has been barred since the twenty-sixth from any public place in that county, and I did not go near that yard in six weeks and I am not going to, and a bell I made is not in this bag.**
 
@@ -86,11 +86,11 @@ And he did not ring a bell he has made, **and the reason is not a rule. The only
 
 He did not write a fourth column entry, and he has written down why, and it is the last thing in the book except the hour.
 
-**A fourth column is a thing nobody could answer. I have had two in my life. The first was about a paper and a building and it cost me nothing and it taught me everything. The second was about nine people in a market and it is in this book with the hour against it, and about nine people in that town are not safe because a careful man wrote them down, and I wrote down at the eleventh hour of the evening of the seventy-sixth that I knew and that I was going to do it anyway. So I know what the fourth column is and what it costs and I have had it twice, and I am not going to fill it in again in this county, and I am not going to fill it in on a road either, and a man who has worked out what a column is is not obliged to go on having one.**
+A fourth column is a thing nobody could answer. I have had two in my life. The first was about a paper and a building and it cost me nothing and it taught me everything. The second was about nine people in a market and it is in this book with the hour against it, and about nine people in that town are not safe because a careful man wrote them down, and I wrote down at the eleventh hour of the evening of the seventy-sixth that I knew and that I was going to do it anyway. So I know what the fourth column is and what it costs and I have had it twice, and I am not going to fill it in again in this county, and I am not going to fill it in on a road either, and a man who has worked out what a column is is not obliged to go on having one.
 
 ---
 
-**And here is the whole of what he has got, and he wrote it out flat at about the ninth hour, in the rain, on a page, and it is the last page of the book and it is a list and it is not a form.**
+And here is the whole of what he has got, and he wrote it out flat at about the ninth hour, in the rain, on a page, and it is the last page of the book and it is a list and it is not a form.
 
 > *A list of about nine names that cannot be certified at all, in four counties, that cannot be unrolled, made in about nine minutes a year by about eleven thousand people who are not clerks, and there is no form for a list and there never has been.*
 >
@@ -120,7 +120,7 @@ And then the last of it, on the last page, and it is the only thing in six weeks
 
 ---
 
-**And then the last page of the book was finished, and the last page of the day was not, and it was about the ninth hour, on a road down off the water in the rain, and she was a step behind him and about ten feet off his left shoulder, because ten feet is not near enough to be part of a thing and it is near enough to write down what it is, and she has been reading his left shoulder from behind him for eleven years and she does it with her chin and not her eyes.**
+And then the last page of the book was finished, and the last page of the day was not, and it was about the ninth hour, on a road down off the water in the rain, and she was a step behind him and about ten feet off his left shoulder, because ten feet is not near enough to be part of a thing and it is near enough to write down what it is, and she has been reading his left shoulder from behind him for eleven years and she does it with her chin and not her eyes.
 
 He shut the book and put it inside his coat, on top of the page of his own hand that carries a household of five's sentence and that is not his and that he may not give to anybody and that he did not give to a form on the eighty-first and that is the only reason he still has it.
 
@@ -140,4 +140,10 @@ And that was the whole of the last of it, and it was not a promise and it was no
 
 “**Nobody has told me.**”
 
-And she said nothing at all, because that is her side of it, and it was the answer, and he did not add a fifth word, and the barrow went down the road with a frame in a cradle in it and a bell in a bag against the cradle, and the four bolts were made fast at every place the frame had been set down, and there was no clapper in it, and a receipt in five clauses was in a coat under a book, and a man who had rung a bell he did not make once in a market and had been told he was right, and had not been told where it went, walked on down a road in the rain with a woman ten feet off his left shoulder and a list that cannot be unrolled and four columns and a slate and a witness and a fragment and thirteen documents, and about eleven hundred people behind him in a town of about two thousand who had been told nothing at all about what to decide, and a market that had a chore in it, and a building with a set of rolls on a shelf in it and a clerk in it who had altered nothing, and a house at the end of a lane with a book in a drawer that was not going to be asked about, and a woman at a gate in a yard who had said no on the seventy-second in the ordinary way and was owed nothing and was owed nothing by anybody here, and about forty-four thousand names in four counties, and a boy of eight, and a road.
+And she said nothing at all, because that is her side of it, and it was the answer, and he did not add a fifth word, and the barrow went down the road with a frame in a cradle in it and a bell in a bag against the cradle, and the four bolts were made fast at every place the frame had been set down, and there was no clapper in it, and a receipt in five clauses was in a coat under a book,
+
+and a man who had rung a bell he did not make once in a market and had been told he was right, and had not been told where it went, walked on down a road in the rain with a woman ten feet off his left shoulder and a list that cannot be unrolled and four columns and a slate and a witness and a fragment and thirteen documents,
+
+and about eleven hundred people behind him in a town of about two thousand who had been told nothing at all about what to decide, and a market that had a chore in it, and a building with a set of rolls on a shelf in it and a clerk in it who had altered nothing, and a house at the end of a lane with a book in a drawer that was not going to be asked about,
+
+and a woman at a gate in a yard who had said no on the seventy-second in the ordinary way and was owed nothing and was owed nothing by anybody here, and about forty-four thousand names in four counties, and a boy of eight, and a road.

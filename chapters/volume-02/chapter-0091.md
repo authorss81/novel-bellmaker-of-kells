@@ -94,7 +94,7 @@ At the top of the hour, in a market of about nine hundred people, at a block on 
 
 Then he said nothing for about four minutes.
 
-**And he did not improve the four minutes afterwards,** which is the second time in a month and the first one was twenty-four days ago in about nine hundred people, and he has not written that down anywhere and is not going to.
+**And he did not improve the four minutes afterwards,** which is the second time in a month and the first one was twenty-four days ago in this square, and he has not written that down anywhere and is not going to.
 
 ---
 
@@ -102,11 +102,13 @@ Then he said nothing for about four minutes.
 
 That is the finding and it is in the day-book in the flat hand and he wrote it four times before the one that stands and struck out three of them.
 
-A bell's whole business, the only thing it has ever been for in this kingdom, is to carry one bounded claim that a living person has accepted responsibility for to a place where nobody who rang it has ever stood. That is what a road is. That is the whole of what eleven years of a woman with a slate are for. A man makes a bell so that a thing can go further than a voice, and the going is the point, and the bell is only the mouth.
+He got a stub of chalk out of his coat and drew a line on the cobbles where the sound had stopped, because he could not leave it where his own ears gave out.
+
+A bell's whole business is to carry one bounded claim that a living person has taken responsibility for to a place where nobody who rang it has ever stood. That is what a road is, and it is the whole of what eleven years of a woman with a slate are for. A man makes a bell so that a thing can go further than a voice, and the going is the point, and the bell is only the mouth. He had known that since he was fourteen. He had never once had it stop in front of him.
 
 **He put a claim in a bell in a market square and the claim went to the end of the market street and stopped there.**
 
-Not that it faded. Not that it thinned. It stopped, at the place where the crowd stopped, the way a voice stops. The row of booths down the far side of the square heard nothing at all, and the lane to the landing heard nothing at all, and the smith's yard four streets off heard nothing at all, and about nine hundred people were standing in that square and about two hundred of them heard a note and four sentences, and the rest of them heard a man talking.
+Not that it faded. Not that it thinned. It stopped, at the place where the crowd stopped, the way a voice stops. The row of booths down the far side of the square heard nothing at all, and the lane to the landing heard nothing at all, and the smith's yard four streets off heard nothing at all, and the nine hundred of them were standing in that square and about two hundred of them heard a note and four sentences, and the rest of them heard a man talking.
 
 **And he does not know whether that is the metal, or the claim, or the crowd, and he did not find out, and he is not going to find out in this county.**
 
@@ -120,7 +122,7 @@ She had come to the square with the slate under her arm and the four columns dra
 
 “**No. And that is mine and I am not going to explain it and you are not going to ask me, and if you ask me I am going to say that a queue is a place and a slate is a column and a column is a stamp, and I have watched a man work that out in about four days and I have not got a better sentence than that and I am not going to look for one.**”
 
-He took it and did not look at it, and it is blank on both sides, and that is the only blank slate in this business.
+He took it and did not look at it. It is blank on both sides, which is the only blank slate in this business.
 
 ---
 
@@ -134,7 +136,11 @@ The market keeper found him at about the seventh hour, at the trough, and he did
 
 “Why.”
 
-“**Because a clerk can be named. That is the whole of it. It has not happened in this town in my lifetime and I have been in this square thirty years and I have watched four things happen in it and none of them was a stranger with a bell naming a man who did his job.**” He put his hands in his pockets. “**There is a notice on that wall nine feet inside that door and it means what it says, which is that anybody may ask a clerk about the work. It has been on that wall since before I could read and about four men in this kingdom have ever put a boot through it. And there are about nine hundred people in this town who have been told a clerk's name this morning, and about four of them will come and ask, and two of the four will be people with a grievance and one of the two will be right, and that clerk will have to stand there and answer them in his own name, and that is the notice working. I am not going to stop defending that notice because it is inconvenient.**”
+“**Because a clerk can be named. That is the whole of it. It has not happened in this town in my lifetime and I have been in this square thirty years and I have watched four things happen in it and none of them was a stranger with a bell naming a man who did his job.**” He put his hands in his pockets, and then took one out again to point at the door under the notice without going near it.
+
+“**There is a notice on that wall nine feet inside that door and it means what it says, which is that anybody may ask a clerk about the work. It has been on that wall since before I could read and about four men in this kingdom have ever put a boot through it.**”
+
+“**And there are about nine hundred people in this town who have been told a clerk's name this morning, and about four of them will come and ask, and two of the four will be people with a grievance and one of the two will be right, and that clerk will have to stand there and answer them in his own name, and that is the notice working. I am not going to stop defending that notice because it is inconvenient.**”
 
 “Yes,” said Tomas Vale.
 
@@ -160,10 +166,10 @@ He wrote the last entry of the seventy-seventh at about the ninth hour of the ev
 >
 > *Third column, ruled apart, the hours flat against them, and I am merging nothing: **four people did the rest and every one of them was right, and I said so out loud, and one of the four has a name and a house and a child and he is going to be named in this town four times a day for about four days, and I did that on purpose and I am not going to be told it was worth it.**
 >
-> *And the bell. **It did not do what a bell does.** A bell carries one claim to a place where the ringer has never stood, and that is the whole of a bell, and the whole of a road is that it goes. I put a claim in it in a market square and the claim went to the end of the market street and stopped, the way a voice stops, and the booths at the far side heard nothing and the lane to the landing heard nothing and the smith's yard four streets off heard nothing, and about nine hundred people were standing in that square and about two hundred of them heard a note.*
+> *And the bell. **It did not do what a bell does.** I have that three times in this book now and I am not going to make it four by writing it out again, and the second column is empty and it is going to stay empty, and it is not going to be improved in the morning.*
 >
-> *I do not know whether that is the metal, or the claim, or the crowd. **I have never learned where a warning lands. I have never once in my life learned it, I said so in this book on the sixty-second, I have not learned it in this town and I am not going to learn it, and I am not going to be told it by anybody as a favour.** Nobody in that square knows what they heard and neither do I, and that is a thing that happened and not a thing that is coming.*
+> *I have never learned where a warning lands. I have never once in my life learned it, I said so in this book on the sixty-second, I have not learned it in this town and I am not going to learn it, and I am not going to be told it by anybody as a favour. **Nobody in that square knows what they heard and neither do I, and that is a thing that happened and not a thing that is coming.**
 >
-> *Nothing else was rung. The frame is four streets off with four bolts made fast in it and no clapper and a receipt in five clauses and all five of them stand. The bell was in a sack on the floor of a room over a draper's shop for about four hours this morning and it is in a sack now, and I have not written to Rowan Ketch and I am not going to, and the reason is that I would have got a document.*
+> *Nothing else was rung. **I have not written to Rowan Ketch and I am not going to, and the reason is that I would have got a document.** That is the whole of what there is to put under the hours on a day when a bell went to the end of a market street and stopped there.*
 >
 > *And there is a woman who was ten feet off with a slate and did not write one word on it, and she has not asked me for anything, and I am not going to ask her about it, and I am not going to thank her and she is not going to let me.*

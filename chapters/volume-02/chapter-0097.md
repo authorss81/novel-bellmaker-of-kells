@@ -4,11 +4,13 @@ The room over the saddler's shop in this town had been let for the afternoon to 
 
 Tomas Vale got in because a bellmaker is a person with business in that room, and that was the whole of his right and it took about nine seconds at the bottom of the stair and the saddler did not argue it and one of the eleven looked at his boots and one of them looked at his hands and nobody looked at his face.
 
-**And Tamsin Rook was not in it, and she had asked for a day with a square in it before she says anything in a room, and there is no square in that room and there is a market of about nine hundred people a mile off and a bell, and she said no in one word at the door and gave a reason and he did not ask again and the cost was his.**
+And Tamsin Rook was not in it, and she had asked for a day with a square in it before she says anything in a room, and there is no square in that room and there is a market of about nine hundred people a mile off and a bell, and she said no in one word at the door and gave a reason and he did not ask again and the cost was his.
 
 That was the eighth time he had put a question on a slate for her and it is on the page with the hour against it, and here it is whole:
 
-“**No. I have said my piece in this town a good many times in front of nine people and every one of the times was in a market with a price in it, and I have never once said a word in a room where the men can answer back, and I am not going to start in one that is about a bell when there are about nine hundred people and a bell and a whole week behind me and a market square on the other side of the county. **If I say anything in there it is the day I stop being a woman with a slate and start being the woman who was at the bell, and I have been the second for eleven years and I have never been the first.**”
+“**No. I have said my piece in this town a good many times in front of nine people and every one of the times was in a market with a price in it, and I have never once said a word in a room where the men can answer back, and I am not going to start in one that is about a bell when there are about nine hundred people and a bell and a whole week behind me and a market square on the other side of the county.**”
+
+“**If I say anything in there it is the day I stop being a woman with a slate and start being the woman who was at the bell, and I have been the second for eleven years and I have never been the first.**”
 
 “Then it stands.”
 
@@ -32,7 +34,7 @@ And the wheelwright said, “**That is the first sensible thing anybody has said
 
 ---
 
-**And then the room split, and it did not split on the bar, and it did not split on a licence, and Tomas Vale had put both halves of the split in his own coat for six weeks without ever having them next to each other.**
+And then the room split, and it did not split on the bar, and it did not split on a licence, and Tomas Vale had put both halves of the split in his own coat for six weeks without ever having them next to each other.
 
 It split at about the seventh hour, over a bell that a miller wanted, and it split because one man asked whether a bell could be proved and another man asked whether a bell that cannot be traced was a danger, and those two questions have been the same question in two trades for about four hundred years and nobody had ever put them in a room together.
 
@@ -46,7 +48,7 @@ It split at about the seventh hour, over a bell that a miller wanted, and it spl
 
 ---
 
-**And Rowan Ketch was in the room, and had been in it for about two hours, and Tomas Vale had not known that until the seventh hour, and a master of the Bellwrights' Measure is not a thing a room of independent trades puts in the middle of a floor, and he had been sitting at the back with his hands behind his back reading a slate upside down.**
+And Rowan Ketch was in the room, and had been in it for about two hours, and Tomas Vale had not known that until the seventh hour, and a master of the Bellwrights' Measure is not a thing a room of independent trades puts in the middle of a floor, and he had been sitting at the back with his hands behind his back reading a slate upside down.
 
 He said the thing about them and it took about nine seconds and it is the finding of the eighty-third and it is the finding of the whole business:
 
@@ -58,11 +60,15 @@ He said the thing about them and it took about nine seconds and it is the findin
 
 The room was quiet for about four seconds and then the miller said, “**Well, which of the two is the Measure for.**”
 
-“**That is the split, and it is not a split anybody wanted and it is not about the bar and it is not about a licence, and it is two trades inside one word.**” Ketch put his hands down. “**A licensed central control says a bell that cannot be traced is a danger to the public, and it is right, and it has to be, and if it says anything else then it is not protecting anybody. An independent craft says a bell that can be proved is a danger to the man who proved it, and it is right, and it has to be, and if it says anything else then it is not craft, it is a trade union with a bell in it. And both of those are correct and they cannot both be the rule, and there is no room in this kingdom where both of them can be said, and there never has been one, and the Measure is one of them and has been one of them since before I was in it, and the other one has been in about four counties of workshops saying the same thing to each other since before the Measure had a name.**”
+“**That is the split, and it is not a split anybody wanted and it is not about the bar and it is not about a licence, and it is two trades inside one word.**” Ketch put his hands down flat on the table, one on either side of the bell, and left them there.
+
+“**A licensed central control says a bell that cannot be traced is a danger to the public, and it is right, and it has to be, and if it says anything else then it is not protecting anybody. An independent craft says a bell that can be proved is a danger to the man who proved it, and it is right, and it has to be, and if it says anything else then it is not craft, it is a trade union with a bell in it.**”
+
+“**And both of those are correct and they cannot both be the rule, and there is no room in this kingdom where both of them can be said, and there never has been one, and the Measure is one of them and has been one of them since before I was in it, and the other one has been in about four counties of workshops saying the same thing to each other since before the Measure had a name.**”
 
 ---
 
-**And then, because the room was in that state and because a man in it had a bell in a sack in a yard behind a draper's shop, somebody asked him what he had.**
+And then, because the room was in that state and because a man in it had a bell in a sack in a yard behind a draper's shop, somebody asked him what he had.
 
 He said the truth, and it took him about nine seconds, and he did not build anything first, and it is the thing that cost him and it is the only thing in the eighty-third that cost him.
 
@@ -92,13 +98,19 @@ He wrote the last entry of the eighty-third at about the ninth hour of the eveni
 
 > *The eighty-third. A room over a saddler's shop with about eleven men in it and a master of the Measure at the back, and I asked one question and it was the wrong one and it was answered in about nine seconds, and then the room split, and it did not split on the bar and it did not split on a licence.*
 >
-> ***The Bellwrights' Measure is two trades inside one word and it always has been, and a licensed central control says a bell that cannot be traced is a danger to the public and is right and has to be, and independent craft says a bell that can be proved is a danger to the man who proved it and is right and has to be, and they cannot both be the rule, and there is no room in this kingdom where both can be said, and the Measure is one of them and the other one has been in about four counties of workshops saying the same thing to each other for longer than the Measure has had a name.*** And a master of the Measure has said both halves, in one room, on one afternoon, in his own hand, twice, and did not see them, and I learned both of them off the same man in a room over a saddler's shop in a town four counties behind this one and did not see them either.
+> ***The Bellwrights' Measure is two trades inside one word and it always has been, and a licensed central control says a bell that cannot be traced is a danger to the public and is right and has to be, and independent craft says a bell that can be proved is a danger to the man who proved it and is right and has to be.***
+>
+> ***And they cannot both be the rule, and there is no room in this kingdom where both can be said, and the Measure is one of them and the other one has been in about four counties of workshops saying the same thing to each other for longer than the Measure has had a name.***
+>
+> *And a master of the Measure has said both halves, in one room, on one afternoon, in his own hand, twice, and did not see them, and I learned both of them off the same man in a room over a saddler's shop in a town four counties behind this one and did not see them either.
 >
 > *And what it cost, and it is the only thing that cost me today, and I put it in the third column because it is a thing a man said to me in a room and not a thing I found out: **a certificate of metal and a note and nothing else. I have carried it in a coat for twenty-one days as though it were a passport. It is not a passport. A certificate is for the day somebody asks where the bell came from and it is worth that and not one halfpenny more, and I knew what it said the whole time, and knowing what a thing says and carrying it as though it said something else is the whole of what I have been doing for six weeks.***
 >
 > *Third column, ruled apart, the hours flat against them, and I am merging nothing: **the split is not about me and I am not the injured party and nobody in that room was a villain and nobody in it was rude to me and two of them told each other for an hour why they cannot both be right, which is the most useful hour I have had in four counties.***
 >
-> *And the part I cannot argue: **my bar is the correct side of a correct argument. It is a bar in a county and it binds that county and it does not reach this one, and that is not a grievance against the Measure, it is a fact about a county, and the man who lifted it for me would be a man who had lifted a county for me. And I cannot argue the other side either, because the other side is that a bell which cannot be proved is a hazard to the public, and I have been in this trade for eleven years and I have never had a licence to argue anything about a bell in any county, and the man who wanted to use this room to get a better answer for himself was wrong and was told so in nine seconds by a wheelwright and it was the correct answer and I am not going to write anything else about it.**
+> *And the part I cannot argue: **my bar is the correct side of a correct argument. It is a bar in a county and it binds that county and it does not reach this one, and that is not a grievance against the Measure, it is a fact about a county, and the man who lifted it for me would be a man who had lifted a county for me.**
+>
+> *And I cannot argue the other side either, because the other side is that a bell which cannot be proved is a hazard to the public, and I have been in this trade for eleven years and I have never had a licence to argue anything about a bell in any county, and the man who wanted to use this room to get a better answer for himself was wrong and was told so in nine seconds by a wheelwright and it was the correct answer and I am not going to write anything else about it.*
 >
 > *I did not ask her to be in that room twice and I asked her once and she said no and gave me the reason and I did not ask again. **That is the eighth time I have put a question on a slate for her. Five of the eight worked and three of them cost me, and not one of the eight has cost her anything, and I am not going to be grateful to her for the eighth because she would not want me to be.***
 >

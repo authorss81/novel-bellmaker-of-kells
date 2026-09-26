@@ -18,7 +18,7 @@ That is the whole of the eighty-fifth up to about the seventh hour and it is the
 
 **A finding is a document. I have made four records in six weeks about persons who did not ask me for one, and one of them cost a household the front of a row of nine pitches, and the man who cost it is right, and the man who made it is me.** A woman on a landing in this county told me on the sixty-fifth that she would put her name to a practice and that stopping a practice was worth the rest of this month and every month after it and was not worth the ninth hour of the evening of the sixty-ninth, and she told me why I did not ask her for it, and I did not ask her, and I have not gone round to the other end of it in three weeks and I am not going to start on the eighty-fifth because I have run out of things to do.
 
-**And a man who has run out of things to do asks an office for a piece of paper, and a piece of paper is the only thing he can be certain of, and I wrote that in this book on the seventy-seventh at about the ninth hour of the evening and I have not improved it since.**
+And a man who has run out of things to do asks an office for a piece of paper, and a piece of paper is the only thing he can be certain of, and I wrote that in this book on the seventy-seventh at about the ninth hour of the evening and I have not improved it since.
 
 ---
 
@@ -74,7 +74,11 @@ Bryn Pethick did not move.
 
 Nobody said anything for about nine seconds.
 
-“**And the reason I am not asking for it is not the fifth clause of a receipt I signed in another county. She is not a household. **I am stopping myself, and I wrote that down on the seventy-eighth and I have not improved it, and the whole of it is five words: she did not ask me.** I have made four records in six weeks about persons who did not ask me for one, and one of them cost a household the front of a row of nine pitches, and the man who made that record was me and nobody has forgiven anybody and nobody has apologised to anybody. **And I am not going to go into a building in this town and ask for a woman's answer to a question she was asked in a room in another county, on the fortieth, by a man who has carried it nowhere and shown it to nobody and asked for it nowhere, and I am not going to do it for her and I am not going to do it to her, and if she ever wants to know whether it arrived she will have to ask somebody who is not me.**”
+“**And the reason I am not asking for it is not the fifth clause of a receipt I signed in another county. She is not a household. I am stopping myself, and I wrote that down on the seventy-eighth and I have not improved it, and the whole of it is five words: she did not ask me.**”
+
+“I have made four records in six weeks about persons who did not ask me for one, and one of them cost a household the front of a row of nine pitches, and the man who made that record was me and nobody has forgiven anybody and nobody has apologised to anybody.”
+
+“**And I am not going to go into a building in this town and ask for a woman's answer to a question she was asked in a room in another county, on the fortieth, by a man who has carried it nowhere and shown it to nobody and asked for it nowhere, and I am not going to do it for her and I am not going to do it to her, and if she ever wants to know whether it arrived she will have to ask somebody who is not me.**”
 
 ---
 

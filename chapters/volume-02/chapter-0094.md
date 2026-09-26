@@ -14,7 +14,7 @@ She had worked this out on the boat, three days before the fifty-eighth, and it 
 
 She had done it once in this town, on the seventieth, at a pitch of needles and thread, and about nine people heard it, and she has written since that it is not the same act as a woman saying her neighbour's name in a line. She had said that in a lane and it was the truth and it is on the page and she has not improved it.
 
-**And on the eightieth she did it four times, and the fourth one was to a merchant, and it is the first time in eleven years she has done it to somebody who is owed money.**
+And on the eightieth she did it four times, and the fourth one was to a merchant, and it is the first time in eleven years she has done it to somebody who is owed money.
 
 ---
 
@@ -40,7 +40,7 @@ He had said, to a woman with a slate, that a mark in a column is not the trouble
 
 She said it back to him in a lane, at ten feet, in the ordinary voice, and about four people heard it, and he did not turn round, because he had heard it before, in a front room, and this time it had been said twice and the second one was in a lane in the open.
 
-**That is the difference and she did not know it was a difference until it happened and she has written it down and not improved it: the first time a person says a thing, they have said it to a woman with a slate. The second time they have said it in a lane in the open, and a lane in the open is not a woman with a slate, and a thing that has been said in a lane in the open is a thing that happened.**
+That is the difference and she did not know it was a difference until it happened and she has written it down and not improved it: the first time a person says a thing, they have said it to a woman with a slate. The second time they have said it in a lane in the open, and a lane in the open is not a woman with a slate, and a thing that has been said in a lane in the open is a thing that happened.
 
 ---
 
@@ -68,7 +68,7 @@ And what he had said, on the seventy-fifth, in a counting house, in his own name
 
 *that a claim cannot be shown, and a claim that cannot be shown cannot be paid, and that is not a hardship, and that the mark in the column is not what is ruining him, and that what is ruining him is that the line has been open four years, and that the line being open is four men not putting a hand down, and that a chore is a thing a man does for himself in his own yard on his own day.*
 
-**And he is owed about ninety pounds and about forty and about eleven and four and about six by four families in a town of about two thousand, and he is going to lose a yard in the spring, and he said all of that in one sitting and would not say it again.**
+And he is owed about ninety pounds and about forty and about eleven and four and about six by four families in a town of about two thousand, and he is going to lose a yard in the spring, and he said all of that in one sitting and would not say it again.
 
 She said it back to him at the gate, at ten feet, in the ordinary voice, with about nine people in a yard who work for him.
 

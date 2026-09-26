@@ -26,7 +26,7 @@ Nobody in that yard was persuaded by anybody from outside it. Tomas Vale was at 
 
 **A chore is a thing you do for yourself, in your own yard, with your own hands, on your own day.** And the reason four men could not do it for four years is not that it is difficult and not that the practice is obscure and not that there is no column for it, and it is not that nobody told them, because a merchant in this town said it out loud in a counting house on the seventy-fifth, in his own name, and asked for it to be written down that he refused six households with it, and it is in a book in a coat four streets from this yard.
 
-**It is that a firm is not us and never has been, and a thing done for a firm is not a chore, it is a favour, and nobody in a firm owes favours to itself on any day of the week.**
+It is that a firm is not us and never has been, and a thing done for a firm is not a chore, it is a favour, and nobody in a firm owes favours to itself on any day of the week.
 
 And the hand went down.
 
@@ -74,7 +74,7 @@ He wrote it down and did not read it out.
 
 ---
 
-**And about nine hundred people in this town cannot be paid and are not owed anything and are not going to be owed anything, and Marden Vey said that out loud in the room after Ruth Dall had gone and said it himself and did not have it said for him.**
+And about nine hundred people in this town cannot be paid and are not owed anything and are not going to be owed anything, and Marden Vey said that out loud in the room after Ruth Dall had gone and said it himself and did not have it said for him.
 
 “**There are about nine hundred people in this town who could each remember a thing Ivor Salter said to them at a gate. He was dead a good many years before he died. A gate is where people say the true things and I have said some.**”
 
@@ -88,7 +88,7 @@ He wrote it down and did not read it out.
 
 ---
 
-**Ruth Dall was standing at the gate when Tomas Vale came out of the yard, and she had not asked him for anything, and he had not asked her for anything, and he had a barrow he could not park anywhere and a slate he had not used, and he had watched nine seconds of a man do a chore for himself and could not have stopped any part of it.**
+Ruth Dall was standing at the gate when Tomas Vale came out of the yard, and she had not asked him for anything, and he had not asked her for anything, and he had a barrow he could not park anywhere and a slate he had not used, and he had watched nine seconds of a man do a chore for himself and could not have stopped any part of it.
 
 He wrote it at about the ninth hour of the evening, on the step of the draper's, in the flat hand, and it took him three attempts.
 

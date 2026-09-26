@@ -34,7 +34,7 @@ He read it standing up, and it was about four inches of writing, and it said tha
 
 And the signature at the foot was **Pell Rill's**, and Tomas Vale had read the hand of that name twice in four counties and on a sheet of his own, and the hand had not changed.
 
-“**I do not know him,**” said the officer. “I have his name on a form. That is the whole of what I have got and it is enough, and I have got four more of these before the ninth hour and two of them are in this town.**”
+“**I do not know him,**” said the officer. “**I have his name on a form. That is the whole of what I have got and it is enough, and I have got four more of these before the ninth hour and two of them are in this town.**”
 
 “That is the auditor's own return. I have a sheet in his own hand that he gave me himself, with the hour on it, in a room over a haberdasher's shop, four days' road up here.”
 
@@ -64,7 +64,7 @@ That is the whole of the list and it took him about two minutes and there were f
 
 He did not build a case. He did not denounce anything. He did not say a word.
 
-**He asked for one thing, and the thing he asked for was the only question available to him, and it took him about nine seconds to get it out and it is in this book exactly as he said it.**
+He asked for one thing, and the thing he asked for was the only question available to him, and it took him about nine seconds to get it out and it is in this book exactly as he said it.
 
 “**Who is the room in the form.**”
 
@@ -150,9 +150,17 @@ He wrote the last entry of the eighty-first at about the eighth hour of the even
 >
 > ***The thing I have been building for six weeks had no owner and no claim and could be taken by a man with a form in about two hours, and the law that took it is a clause of a receipt I asked a clerk to add to in another county, and I asked for it because I was right, and it has cost me a room and a bench and five sheets, and I want both halves of that in the same sentence and I am not going to separate them.***
 >
-> *And the harder half, and I have been putting it off since about the seventh hour: **the right I have felt about this room for six weeks was not a right. It was a habit.** I have been carrying things for six weeks. I carried a sentence for thirty-three days and it was never a door. I carried nine names in a coat and they were a list. And I have been carrying a room over a draper's shop as though a room over a draper's shop were mine in any sense a man can hold, and it was not mine, and it was let to a man fourpence an hour and a shilling for the fire, and a bench was lent to a man by a shop, and the five sheets were copies of sheets another building holds, and **a habit of carrying is not a thing anybody can defend. A right is a thing you can put in a form. I have not got one and I did not know that was what I had been doing instead, and I have found out about four hours after a man with a form read it out to me in a room I was going to be out of in two days.***
+> *And the harder half, and I have been putting it off since about the seventh hour: **the right I have felt about this room for six weeks was not a right. It was a habit.** I have been carrying things for six weeks.
 >
-> *And the thing that was on my side, and I am going to write it flat and I am not going to enjoy it: **there was no room in the form.** There is a shop at the foot and a man in one line and five numbers and a signature, and the reason there is no room in it is the fifth clause of my own receipt, and the reason there is no household in it is the same, and a form cannot enter a claim against a man who has no standing to hold a claim, and so a piece of paper came into this room this morning and could do exactly one thing to me, which was read me. **That is the first time in six weeks that a paper has been on my side and it is on my side because it is empty, and I am not going to be told it was a comfort and I am not going to take it as one and I am going to remember it because I am afraid I will need it.***
+> *I carried a sentence for thirty-three days and it was never a door. I carried nine names in a coat and they were a list.
+>
+> *And I have been carrying a room over a draper's shop as though a room over a draper's shop were mine in any sense a man can hold, and it was not mine, and it was let to a man fourpence an hour and a shilling for the fire, and a bench was lent to a man by a shop, and the five sheets were copies of sheets another building holds, and **a habit of carrying is not a thing anybody can defend.
+>
+> *A right is a thing you can put in a form. I have not got one and I did not know that was what I had been doing instead, and I have found out about four hours after a man with a form read it out to me in a room I was going to be out of in two days.***
+>
+> *And the thing that was on my side, and I am going to write it flat and I am not going to enjoy it: **there was no room in the form.** There is a shop at the foot and a man in one line and five numbers and a signature, and the reason there is no room in it is the fifth clause of my own receipt, and the reason there is no household in it is the same, and a form cannot enter a claim against a man who has no standing to hold a claim.
+>
+> *And so a piece of paper came into this room this morning and could do exactly one thing to me, which was read me. **That is the first time in six weeks that a paper has been on my side and it is on my side because it is empty, and I am not going to be told it was a comfort and I am not going to take it as one and I am going to remember it because I am afraid I will need it.***
 >
 > *Third column, ruled apart, the hours flat against them, and I am merging nothing: **a clerk in a hall read a clause of my receipt out loud in a street at about the sixth hour because it was the answer to a question I had asked, and said that it had taken the room off me and that neither of us had to do anything, and he was right, and he said out loud that the same clause was the reason five sheets went out of that room and that neither of us knows it and he has been in that building twenty-two years and has never once thought about who copies what.***
 >
