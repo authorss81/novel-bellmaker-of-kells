@@ -100,7 +100,7 @@ He shut the drawer.
 
 The word in the fourth column on that line was *coupling*, and he had guessed it right, and he had been carrying the guessing since the first week, and it had got him a word in a column and nothing else on earth.
 
-**And the word was *coupling*, and the coupling is the thing that is cut nearly through in a frame he has never been inside, and so either the man who fitted that jumper in another county put a word about a piece of metal into a district's book, or he put in a word that means the whole job. And there is no column in nine hundred lines that says which, and there is not one person in this kingdom who could tell me, and one of them is behind this counter and has told me twice in nine years that he is not going to try.**
+**And the word was *coupling*, and the coupling is the thing that is cut nearly through in a frame he has never been inside, and so either the man who fitted that jumper in another county put a word about a piece of metal into a district's book, or he put in a word that means the whole job. And there is no column in nine hundred lines that says which, and there is not one person in this kingdom who could tell me, and one of them is behind this counter and has now told me twice that he is not going to try, and he was right both times.**
 
 “**You are going to ask me what that word is for.**”
 
@@ -108,7 +108,7 @@ The word in the fourth column on that line was *coupling*, and he had guessed it
 
 “**You have not, and I have watched you not ask it for about two minutes, and I want you to know that I noticed, and I am going to say one thing and then I am going to write, and then we are both going to pretend this morning was about a shelf.**
 
-“**The reason I am not going to help you is that it is the fourth time in nine years and I have said no three times and the answer is the same every time, and the answer is not mine. **You want a man in a book to put a word in a column that says what a thing is for, and I have not been told what the column is for, and if you make me put something in it then in four years there will be a man at this counter reading it and it will be in my hand, and he will be asked what I meant by it, and I will be in this room, and I will not be able to stand in front of him and say I put it there, because I will not have known.**”
+“**The reason I am not going to help you is that this is the third time you have come up these four flights and I have said no twice, and the answer is the same every time, and the answer is not mine. **You want a man in a book to put a word in a column that says what a thing is for, and I have not been told what the column is for, and if you make me put something in it then in four years there will be a man at this counter reading it and it will be in my hand, and he will be asked what I meant by it, and I will be in this room, and I will not be able to stand in front of him and say I put it there, because I will not have known.**”
 
 He wrote a figure in a column.
 
@@ -122,7 +122,7 @@ He went down. He was on the step at the foot of the stair at about the seventh h
 
 > *The hundred and seventh. **The store is a room, a counter, a book, a man, a shelf and an instruction, and I have now been in it three times and the only one of the six that has ever done anything in front of me is the book.***
 >
-> *I went up at the fourth hour with nothing in my hands and I asked for the shelf and I was refused in one sentence by a man who was not going to shorten it the second time, and he is right: a wall can be shut and a book cannot, and both of those are correct and I have never once been able to make them both correct at the same time and neither can he, and he has said so out loud in nine years and I have it in a book now and he does not know that either.*
+> *I went up at the fourth hour with nothing in my hands and I asked for the shelf and I was refused in one sentence by a man who was not going to shorten it the second time, and he is right: a wall can be shut and a book cannot, and there is no clause anywhere that requires either one to be different, **and I have had that in my head for a week and I have not once been able to put it down without making it smaller, and he has said it out loud in nine years and I have it in a book now and he does not know that either.*
 >
 > *Second column, and what I got. **One line, and it is four one eight two, and the district on it is Netherby and the day is the eleventh and the word is coupling. That is all.** And a man told me in one sentence that a number is a place a thing is filed at, and that a district's courts keep their matters by the number and not by anybody's name, and he put his pen in the drawer afterwards like a man closing a door he is not being paid for. **A reference going somewhere is not a person, and that is a smaller thing than anything I have been carrying, and it is the way into the next four days, and it cost me nothing at all.**
 >

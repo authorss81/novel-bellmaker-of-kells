@@ -38,7 +38,7 @@ He read that fifth column on all four boards from end to end, at the rate he rea
 
 ---
 
-## And then the second thing, and it is the seed of the two days after this one, and he counted it twice.
+## And then the second thing, and it is the thing he will come back for in two days, and he counted it twice.
 
 **The third column is the day. And the day is written on every line of all four boards except about nine.**
 

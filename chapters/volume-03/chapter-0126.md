@@ -18,7 +18,7 @@ So it was one question and it was the cheapest question in this kingdom, and it 
 
 “**You have not looked at the sheet I mean.**”
 
-“**There is one form in this room and there have been about four hundred thousand of them and there is one plate in a printer's room two streets off that cuts all of them, and the man who cuts it has been cutting it since before I came and has never once been asked whether it is the right shape.**”
+“**There is one form in this room and there is one shape of it, and there is one plate in a printer's room two streets off that cuts every one of them, and the man who cuts it has been cutting it since before I came and has never once been asked whether it is the right shape.**”
 
 He wrote a figure in a column.
 

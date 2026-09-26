@@ -46,7 +46,7 @@ She put the rope back up on the frame where it hangs, exactly where it was.
 
 He did not say anything.
 
-“**I have known that for eleven years and I had it the other way round and you worked it out in a market on the hundred and second in front of about nine people and you did not know you had.**”
+“**I have known that for eleven years and I had it the other way round and you worked it out in a market on the hundred and second in front of about nine hundred people and you did not know you had.**”
 
 ---
 
@@ -92,7 +92,7 @@ He had it under his arm the whole morning. The price side of it was on the other
 
 ---
 
-**And he wrote on the step, at about the seventh hour, the thing the chapter has to have on the page, and he wrote it in his own book and not in hers, and there is not one line of it in her hand anywhere in eleven weeks.**
+**And he wrote on the step, at about the seventh hour, the one thing he had not written down, and a man has to write down the things he does not do or he will do them in a month and call them new, and he wrote it in his own book and not in hers, and there is not one line of it in her hand anywhere in eleven weeks.**
 
 > *Nobody in this city has asked her for a reason at any hour in a hundred and thirteen days. Not a woman at a pitch, not a man in a corridor, not a clerk with a lamp, not me. **I have not asked her about her ear once since we left Kells and I am not going to write one word about it again.**
 >

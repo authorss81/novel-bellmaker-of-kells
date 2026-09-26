@@ -38,7 +38,7 @@ Salkeld looked at him for longer than four seconds.
 
 ---
 
-## And he said it, and then he said the other half of it, and the other half is the batch's engine.
+## And he said it, and then he said the other half of it, and the other half is two documents instead of one.
 
 “**Any person may read the record of any matter in that room, at any hour it is open, and the record is a public document and it belongs to the court and not to anybody in it, and the person who swore it does not own it and neither does the district.**”
 
@@ -60,7 +60,7 @@ Then he said the thing about the absence, and it came out of the man in the ordi
 
 “**You have said that to me.**”
 
-“**I said it to a man in this room nine days ago and I have not thought about it since and you have come back and asked me the same question with a better sentence on the front of it, and I have given you the same answer, and that is the whole of what has happened in this hall in nine days.**”
+“**I said it to a man in this room ten days ago and I have not thought about it since and you have come back and asked me the same question with a better sentence on the front of it, and I have given you the same answer, and that is the whole of what has happened in this hall in ten days.**”
 
 ---
 

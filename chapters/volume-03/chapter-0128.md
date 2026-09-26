@@ -18,7 +18,9 @@ He stood in front of it and read it, and it took him about two minutes, and it i
 >
 > *And this, and I am putting it in writing because I have worked out that I am not able to do it in words: **There is a man walking in this city with a barrow and a coat of papers and no standing in any district in it, and there is a notice up with a name at the third line of it, and the notice is not mine and I cannot get it down.** I can do one thing about a thing I cannot get down and this is the one thing I can do.*
 >
-> *He is not to be stopped about me. He is not to be asked about me. He has not been asked about me and if he says that his name is on nothing then that is the end of it and nobody is to follow him and nobody is to write about him.*
+> *He is not to be stopped about me. He is not to be asked about me.*
+>
+> *He has not been asked about me and if he says that his name is on nothing then that is the end of it and nobody is to follow him and nobody is to write about him.*
 >
 > *I have not asked him whether I might put him in here. **He can take down that I did not ask.**
 >
@@ -30,7 +32,7 @@ He stood in front of it and read it, and it took him about two minutes, and it i
 
 He read it twice.
 
-The first time he read it for what it said. The second time he read it for what it cost, and it cost four lines, and four of the five lines on that sheet are about a brother.
+The first time he read it for what it said. The second time he read it for what it cost, and it cost four lines, and four of the eight lines on that sheet are about a brother.
 
 ---
 
@@ -90,7 +92,7 @@ Two days in a week, a man with a barrow goes up four flights. There is no other 
 
 **And he stood in front of that board for about half an hour in the middle of the day while about two hundred people walked past it, and not one of them stopped, and that is the finding of the hundred and fourteenth day and it is the plainest thing he has learned in nineteen days.**
 
-**About two hundred people a day walk past a board on the top terrace of Sennet. They walk past nine Crown sheets and a handbill about a horse and a sheet of paper with four drawing-pins in it, and they walk past a leaf pinned at an angle that has been up since the ninety-first in a town two days' road back, and none of them stops, and the reason none of them stops is that a board is a thing you read while you are walking.**
+**About two hundred people a day walk past a board on the top terrace of Sennet. They walk past nine Crown sheets and a handbill about a horse and a sheet of paper with four drawing-pins in it, and none of them stops. Two days' road back, in a market, there is a board with a leaf pinned at an angle under a drawing-pin that has been up since the ninety-first, and nobody stops at that one either, and the reason is the same one in both towns, and the reason is that a board is a thing you read while you are walking.**
 
 **A board has no reason-box on it. A board is the only surface in this kingdom that a person can say a true thing on and owe nobody a why, and about two hundred people a day go past mine, and every one of them is a person who could have read it and did not read it, and that is not because of the Office and it is not because of her and it is not because of me.**
 
@@ -108,7 +110,7 @@ Two days in a week, a man with a barrow goes up four flights. There is no other 
 >
 > *And the thing I have not been able to put down. **She has done the thing I do every day of my life and she has done it better and earlier and she has not been thanked for it once that I know of, and I have never once in six years thought of her as a person who does that, because I have been thinking of her as a thing I lost.** A thing I lost is not a person who publishes a standing instruction in her own name on a public board. **I have been talking to a version of a woman made out of a day-book, and the day-book is mine, and the woman on the board has got four lines in her own hand and the day-book has got none.**
 >
-> *And I am not going. **The third of the three reasons, and the worst one: a man who goes and asks so that he can say he did not go is doing the thing for himself.** There is a sheet in this city that says a man with a barrow is not to be asked about her, and there is nothing on it to answer, and if I go and look then I can write in this book that I did not write, **and that would be the fourth entry about me and I did not make the first three and I am not going to make the fourth.** I have not written. I have not taken it off the board, and that is the third time, and it is one decision and I have not found a new name for it.
+> *And I am not going. **The third of the three reasons, and the worst one, and I wrote it out flat on the ninety-first and it is the sentence I have now put in this book twice and I am not going to put it in a third time: a man who goes and asks so that he can afterwards say he did not go is doing the thing for himself.** The sheet is on a board and there is nothing on it to answer, and if I go and look for where she sleeps then the only new thing in this book is about me, **and that would be the fourth entry about me and I did not make the first three and I am not going to make the fourth.** I have not written. I have not taken it off the board, and both of those are the same decision and I have been trying since the fourth hour to find a new name for it and there is not one.
 >
 > *Nobody has been taken off a board in this business and nothing has been taken off any board since the ninety-first, when there was a leaf pinned at an angle under a drawing-pin in a market two days' road back. **And nothing is resolved, and nobody is rescued, and she is not a thing I have been given, and she is not a thing I can call on, and I have not been thanked and I have not thanked anybody.**
 >

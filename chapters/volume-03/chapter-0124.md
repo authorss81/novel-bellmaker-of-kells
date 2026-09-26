@@ -2,7 +2,7 @@
 
 He went back down the corridor at the fourth hour of the hundred and tenth day and Hale had the door open and did not look up, and the lamp was lit, and on the desk beside the lamp there was a tray with about nine folded forms in it and Hale was working on the top one.
 
-**And Tomas Vale stood in front of a rail nine feet long with four or five volumes on it and a bundle of about forty sheets tied at the middle with a string, and he found four one eight two on a slip tucked into the string, and he took the bundle down, and he undid the string, and it was the record of one matter of the district of Netherby, and it is about four hundred words.**
+**And Tomas Vale stood in front of a rail nine feet long with four or five volumes on it and a bundle of about forty sheets tied at the middle with a string, and he found four one eight two on a slip tucked into the string, and he took the bundle down and undid the string. It was the record of one matter of the district of Netherby, and it is about four hundred words.**
 
 He read it standing up.
 
@@ -88,7 +88,7 @@ He wrote that down at about the seventh hour, on the low wall at the end of the 
 
 ---
 
-**And the other thing he did not do, and it is the fourth clause, and it is the reason he could not say one word about who she was to the one man in that room who would have let him.**
+**And the other thing he did not do, and it is the fifth clause, and it is the reason he could not say one word about who she was to the one man in that room who would have let him.**
 
 The fifth clause of his own receipt, in his own hand, in a watch house, in a county he has left, on the fifth hour of the morning of the thirty-third:
 

@@ -38,7 +38,7 @@ Perrin Lowe did not look up.
 
 “**I have not got a paper.**”
 
-“**You have not got a paper and you have had one thing off a wall in this city that you swore to in a room three streets off, and I have known about that since yesterday, because a sheet came past my counter on a cart at about the sixth hour with about nine others on it and I do not open other people's post, and one of them had a district's head on it and a name at the top of it, and I did not stop the cart.**”
+“**You have not got a paper and you have had one thing off a wall in this city that you swore to in a room three streets off, and I have known about that since the sixth hour this morning, because a sheet came past my counter on a cart with about nine others on it and I do not open other people's post, and one of them had a district's head on it and a name at the top of it, and I did not stop the cart.**”
 
 Tomas Vale put both hands flat on the counter.
 
@@ -64,7 +64,7 @@ He stood at the edge and he did not go in.
 
 She did two other sheets first. She did them the way a woman does four hundred small jobs, which is without looking at any of them, and then she came to his and she read the top of it to get the place right — **which is a thing a person does with a nail and a hammer and a sheet, and it is not reading it, it is finding the top** — and then she put two nails in at the top corners about four inches apart, and she did not hammer the second one straight and she straightened it with her thumb, and then she went on down the board.
 
-About four hundred people had read it yesterday. He does not know that and is not going to be told. **About two hundred people read it today, in about nine minutes, while a woman with a tray of pins and a hammer worked along a board.**
+The only people who had read it before this evening were the men in the room with the lamp, and they had read it because they had copied it. **About two hundred people read it tonight, in about nine minutes, while a woman with a tray of pins and a hammer worked along a board.**
 
 ---
 
@@ -128,7 +128,7 @@ He wrote the last entry of the hundred and sixteenth, and filled the first, seco
 >
 > *Which office is it. **It is a rule.** A sworn answer is an answer, an answer is a thing about a person, and a district is required to send an answer round, and the rule was written by somebody who had a reason, and that person is not available, does not need to be, and is not a person I could be angry with if I had the name. **It is a rule and it moves nothing and it has taken the only sentence anybody had ever said about me and put it where two hundred people can read it and about nine of them will carry it to four towns, and it is a rule, and nobody in this kingdom is wicked, and I am not going to be a man who says the second sentence is a victory or the first one is a defeat, because they are both inventory and I have not got anything else.**
 >
-> *And a notice that has not been nailed up yet. **A sheet went past a counter at the arch at about the sixth hour on a cart with about nine others on it and one of them had my name at the top of it, and the woman with the tray of pins got to it this evening and put two nails in about four inches apart, and there are about four hundred more of them in this district and there is no form for a list and there never has been, and I have found that out four days too late and there is nothing whatever in this kingdom I can do about one sheet of paper.**
+> *And a notice that has not been nailed up yet. **A sheet went past a counter at the arch at about the sixth hour on a cart with about nine others on it and one of them had my name at the top of it, and the woman with the tray of pins got to it this evening and put two nails in about four inches apart, and a district makes about eleven thousand lines a year and there is no form for a list and there never has been, and I found that out about an hour after the sheet went past the counter, which is to say I found out that I could not stop it, and there is nothing whatever in this kingdom I can do about one sheet of paper.**
 >
 > ***I have proved an edit. I have a duty my mother accepted and no sentence at all about what became of her, and it is a duty and not a conviction, and the difference between the two is a four-inch box at the end of a form, and a man with a lamp said *it is the same form* in about four seconds and went back to his tray.** I have no stage. I have no sense. I have got a plain bell I have not rung in thirty-nine days and eleven lines nobody may copy and a woman ten feet off my left shoulder and about two hundred people reading a column.*
 >

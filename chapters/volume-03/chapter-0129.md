@@ -8,7 +8,7 @@ It was the fourth hour of the hundred and fifteenth day and Tomas Vale went up f
 
 ## And the sentence took him about an hour and a half to get to and it is four sentences long, and it is about him, and it is the first thing he has put in a document that is about himself.
 
-He wrote it out on a step at the foot of the top stair on the hundred and fourteenth at about the ninth hour of the evening and then he crossed out about half of it, and what is left is this:
+He wrote it out on a step at the foot of the top stair on the night of the hundred and fourteenth, after he had written the day down and put the book away, and then he crossed out about half of it, and what is left is this:
 
 > *I am the keeper of a paper or instrument of a kind used to repeat an answer, being of the kinds entered in the store list of the district. I have been in a store and read the list. **The list does not say what any of the ninety words in it is for.** And a column headed what the thing is for is empty from end to end, and I know a man who will not fill it in and I do not blame him for it.*
 
@@ -48,7 +48,7 @@ He noticed it. He noticed it in about four seconds and then he went and stood ab
 
 ---
 
-## And he did not thank the clerk, and he did not improve it, and he went and stood about nine feet off the rail and said nothing to anybody, which is what about four hundred people a year do in that room.
+## And he did not thank the clerk, and he did not improve it, and he did not stay at the rail, and he counted the room instead, which is what counting is for, and about nine people were in it.
 
 He was not the only one. There were about nine people in the room at the fourth hour and he counted, standing nine feet off, without meaning to, because counting is what he does with a room.
 
