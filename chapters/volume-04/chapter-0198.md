@@ -1,0 +1,67 @@
+# Chapter 0198 — Merrit Sallow Weighed Broken Brick Against Eleven Foundry Weights
+
+It was the fourth hour of the hundred and eighty-fourth day and Merrit Sallow was weighing a barrow of broken brick at the top of the steps, and a barrow of broken brick is the heaviest thing a man ever tips into a beam, and he had the pan about a hand's width down and his hand under it waiting for it to stop moving, and Tomas Vale came up the steps behind the barrow and stopped short of the stones.
+
+"You are standing in my light," Sallow said, which is what a man with a beam says, and it is true of every beam on this water.
+
+"I am standing on your steps."
+
+"You are standing in my light and there is a difference." He got the pan to sit and took his hand away. "That is a hundred and ninety-one, and it is a hundred and eighty-eight if the near stone is not the one I think it is, and the near stone is the one I think it is and I do not want to hear about the other one. That is brick out of a front room in the low quarter, and it is not going back in the bank."
+
+"How do you know that before you have weighed nine more."
+
+"Because I have weighed brick out of the low quarter before and it never goes back in, and the reason it never goes back in is that it is four in ten sand and four in ten lime and the lime was laid in a wall that was built in a hurry by a man who was not a man who builds walls." He wrote a figure on the corner of his own board with a chalk and put the chalk in his pocket. "And the bench has got a hundred and forty barrows of it coming up out of that quarter this week, and every one of them is somebody's day, and there are eleven benches on this reach and every one of them will put their share of a rate on it, and the rate is the price of a cart and the cart is going over nine miles whether the load on it is a load or a barrow of broken brick."
+
+He picked up a hundred-and-ten weight and put it on the near pan and it went down like a hand, which is what a hundred and ten does on a beam made by nine men over two hundred years.
+
+---
+
+They worked the top of the steps for three hours and not one moment of it was anything but two men and a barrow and a beam, and neither of them said the thing out loud at any point of it.
+
+"Thirty-eight barrows so far," Sallow said at about the fifth hour. "And a hundred and two left, and the fourth bench has its own hundred and forty and the sixth about ninety, and there is a man in the seventh bench who would be doing this if we let him, and we will not let him, and I want you to understand that I know I am not letting him and that I do not know how I know it."
+
+"You have not told him."
+
+"I have not told him and I am not going to, and he will come on the day and he will see a man from the third bench at a beam and he will do the other side, and if I ask him why he did it he will say because the barrow was in the way, and that will be true, and I will have got a man for nothing on nine miles of river." He put a weight on and took it off. "Now. What have you come up here to weigh. You have had four days in this town and I have watched you stand at the top of my steps and count my barrows without asking me one question about the rate, and a man who does not ask about the rate in four days is either a fool or he has got a thing he wants more than the rate."
+
+"The cost of it," Tomas said. "I have got a shipment in the river, a quarter of a town that was not warned, a week of somebody else's labour, a hearing that is not a hearing, and a sentence I was not allowed to finish, and I have got no way of adding them up, and the second clause of a receipt in five clauses is the reason I cannot put any of them in a beam. I want to know what a barrow weighs when the thing in it is a week of somebody else's work."
+
+Sallow put the chalk down and looked at him for longer than he had looked at him all morning.
+
+"Then you have come to the right trade and the wrong question, and I am going to give you the wrong answer anyway because you have carried four days for nothing." He put a hundred-and-ten on the far pan and forty on the near. "A barrow of brick is a hundred and ninety-one, and that is a weight, and it is the only number in this that anybody can do anything with. Everything else you have said is a number of something that has already happened, and a number of something that has already happened cannot be weighed, because you cannot put a week on a pan, and the only way anybody in this kingdom weighs a thing like that is by what it does to a rate. **Here is what your week has done to my rate: nothing. The rate is per cart and set by weight and it has not moved in four years, and your week has not moved it and will not move it, and that is the honest answer and you did not want it.**"
+
+"Then what moved it."
+
+"The upper sill, four years ago, and the rate went up and every man on nine miles paid it and nobody could tell you what for. And again after that, and again after that, and I have asked twice in six years and got an answer about carts both times." He lifted the pan off its pivot and set it down. "I have not got a good answer and I have got a thing I do about it, and the thing I do is that when the rate goes up I go and stand in a place where a man who has just been charged for it can find me, and that is a habit and not a system, and I have never once written it down, and if I wrote it down it would be a bench matter and a bench matter has a column and a column has an owner and a thing with an owner stops."
+
+At about the sixth hour a man came up the steps with a crowbar and pulled a notice off a stake, and neither of them said anything about it while he was doing it, and then Sallow said, "That is a notice that the bank would be cut on the turn of the year, and it has been on that stake since the frost, and the water has cut the bank instead, and the man has taken it down because it is done, and there is not one thing in this county that has been stopped by that notice coming off that stake."
+
+"You did not ask him who told him to take it down."
+
+"He did not tell me and I did not ask, and I have thought about asking, and the reason I have not is that if I am told then the bank was cut by a man and not by a river, and I have a rate to set in a fortnight and a reach to live on." He put the beam away from the wind. "I am a man who keeps a book that does not add up and I have known that for nine years and never said it out loud to anybody including my own clerk, and I have said it to you in three sentences and I do not know why, and I am not going to examine it while you are standing in my light."
+
+At about the seventh hour they had forty-one barrows of the hundred and forty and the light was going and Sallow put the chalk in his pocket and said the thing about the second pair of gates, which was the only thing he said all day that was not about a number.
+
+"The dressed sill is still half in and the lime is out of the top joint on the upstream side and the water had that gate for two hours, and the stone is true and has to come up and go back down with fresh lime, and it is going to be about nine days, and the nine days are off the top of a rate that the ninth bench was going to spend on a relief bank in your low quarter, and the ninth bench knew that on the day, and nobody told them not to do it and nobody thanked them, and I have been on that coping twice in four days for a thing that is now nine days late because two hundred and forty people needed a bank cut that a man with a barrow had not told them to want."
+
+"Nobody thanked the ninth bench."
+
+"Nobody thanked the ninth bench and the ninth bench will not mention it, and in four years when that sill fails there will be no name at the top of the bill and the bench that mended it will pay again, and the rate will go up by a good deal more than the first time, because a bench that has mended the same gate twice knows what it cost." He looked down the reach. "You have a quarter of a town that is wet and a yard of forty people that is not and it cost a week of nine benches and a shipment and a hearing, and you are asking me to put it on a beam. I cannot put it on a beam. What I can tell you is what the nine days are worth, and the nine days are about a rate that will be set in a fortnight by nine men who will not agree, and one of those men is me and I have already said that I know I am not letting the seventh bench in and I do not know how I know it, and that is the whole of my trade and I have not got a second thing to offer you."
+
+At about the ninth hour of the evening he was on a flat above the water with the barrow behind him and the four bolts made fast, and the water had gone down about a foot in a day and a half and was still going, and nine houses of a front row were wet and two hundred and twenty-nine people were dry, and a man at a beam had told him that the rate had not moved in four years and that the whole of what he had carried up those steps was a number of things that had already happened and cannot be put on a pan.
+
+> *The hundred and eighty-fourth, at about the ninth hour of the evening. A beam, a hood, a hundred and ten, a hundred and ninety-one, forty-one barrows of a hundred and forty, a crowbar, a notice off a stake, a dressed sill half in, a rate per cart, four bolts.*
+>
+> *Second column. **A hundred and ninety-one, and a hundred and eighty-eight if the near stone is not the one I think it is.** Brick out of a low quarter front room, four in ten sand and four in ten lime, and the lime was laid in a hurry by a man who was not a man who builds walls, and it does not go back in the bank. **A hundred and forty barrows of it this week, every one of them somebody's day, and eleven benches will put a share of a rate on it, and a rate is set by weight of cart and is the same money whichever load is on the cart, and that is the whole of what is wrong with it.**
+>
+> *Second column, what he said. **The seventh bench would be doing this and he is not letting it and cannot say how he knows that, and the reason he would give if I asked is a barrow, and the reason would be true, and that is how he would have a man for nothing on nine miles of river.** Then: a man who does not ask about the rate in four days is a fool or he wants something more than the rate. I said the cost of it. **You cannot put a week on a pan. The only way a thing like that is weighed in this kingdom is by what it does to a rate, and what my week has done to my rate is nothing, and it is per cart and set by weight and it has not moved in four years.**
+>
+> *Third column, ruled apart. **The rate went up for the upper sill four years ago and again after that, and I have asked twice in six years and been told about carts both times.** What he does when it goes up is go and stand where a man who has just been charged for it can find him, and that is a habit and not a system, and he has never written it down, and if he wrote it down it would be a bench matter, and a bench matter wants a column, and a column wants an owner, and a thing with an owner stops. **A notice came off a stake on a crowbar, put up since the frost saying the bank would be cut on the turn of the year, and the water cut it instead, and a man took it down because it was done, and nothing in this county was stopped by that.** He did not ask who told the man to take it down, and the reason is that if he is told then the bank was cut by a man and not by a river. **A book that does not add up, nine years, never said out loud to anybody.**
+>
+> *Third column, the nine days. **A dressed sill is still half in on the second pair of gates with the lime out of the top joint on the upstream side, and it is about nine days to do it again, and those nine days are off the top of a rate the ninth bench was going to spend on a relief bank in the low quarter, and nobody told them not to and nobody thanked them.** In four years the bill will have no name at the top of it and the bench that mended it will pay a second time, and more. **He cannot put any of it on a beam and told me so, and was neither kind nor cruel.**
+>
+> *All five clauses stand. **Nothing rung, by me or by her, and nothing bound, and nothing counted into iron, and no stage, and no perception attempted and none had, and the warrant stands, and a fitting is not called anything it is not.** Four bolts made fast, and **the frame has not been in a building since the thirty-third, a hundred and fifty-one days, and a beam under a hood on a set of steps is not a building and there is no bench in it that could be struck.** The carrier in the sack, **not rung, a hundred and seven days from the seventy-seventh.** My own bell is in a sealed yard in Kells and the bar is on the bell and not on the licence, and it does not travel. **Her bell is in her bag and nobody asked her for a reason at any hour today, including me.**
+>
+> *The register is thirteen. **I have produced nothing and asked for nothing and been given nothing and taken nothing, and nobody was thanked today, and a notice came off a stake because it was done, and that is not a defeat of anything and nobody is going to write it down anywhere.** I was on this road with her forty-eight days and did not ask her what it was for.
+>
+> *Which office is it. **A hundred and ninety-one, a hundred and ten, a hundred and forty, and a rate that has not moved in four years.**
