@@ -21,7 +21,7 @@
 
 ## The volume's third kind of bell
 
-**A bell that is rung by somebody else's stroke is neither a keeper's bell nor a plain bell, and this kingdom has no name for it on a form.** The batch establishes the description and does not coin a term in prose. Its three facts: a person does not have to be near it; the person who decides when it rings is not the person who reads the sheet; **and the sound arrives a day before the man with the book, so that by the time a household knows what it is, it has already been.**
+**A bell that is rung by somebody else's stroke is neither a keeper's bell nor a plain bell, and this kingdom has no name for it on a form.** The batch establishes the description and does not coin a term in prose. Its three facts: a person does not have to be near it; the person who decides when it rings is not the person who reads the sheet; **and the sound arrives before the man with the book, so that by the time a household knows what it is, it has already been. **The first sheet he reads under a bell is dated four days forward of the ringing, and no man in the book has ever recorded how far ahead the bell goes.****
 
 ## The two inherited obligations, and the order they are paid in
 
@@ -100,7 +100,7 @@
 
 - **POV:** Tamsin Rook. **Location/time:** the same market town, Day 92, from the fourth hour into the evening, closing on a stone by the water with her boots off.
 - **Goal:** find out what her eleven years of road work looks like on the other side of a form.
-- **Resistance:** **a man in that market fills in a form with a box for the name of the person who repeated a thing, and about four hundred people a year fill that box in, and none of them are wicked, and the form is cheaper than a witness and a witness can refuse.** And the leash is used a ninth time, it costs him, and she refuses and gives a reason, and the reason is about her **method** and is the first such reason in eleven years.
+- **Resistance:** **a man in that market fills in a form with a box for the name of the person who repeated a thing, and about four hundred people a year fill that box in, and none of them are wicked, and the form is cheaper than a witness and a witness can refuse.** And the leash is **not** used a ninth time, and the non-use costs him anyway, and she refuses and gives a reason, and the reason is about her **method** and is the first such reason in eleven years.
 - **Turn:** **she rings her own handbell once, in a market, on her own terms, and it is not for him and it does not help him.** It is for a man who is writing down who repeated what, and it is four inches long and it is the loudest thing in that square for about nine seconds, and it reveals to about nine hundred people that the woman with the slate is the woman they saw say things back, permanently, in a town with a district store in it.
 - **Information:** **a box is cheaper than a witness and a witness can refuse, and that is the whole of why a form wins, and the same sentence is the one a clerk in Miremarket said in nine seconds about a document and he was right and she has been carrying the other half of it for eleven years without knowing it.**
 - **Emotional change:** she finds out that the thing she has been proudest of — that a thing said twice in a market cannot be got back — **is a thing a form can count, and being countable is worse than being lost**, and she says so, and nobody disagrees with her.

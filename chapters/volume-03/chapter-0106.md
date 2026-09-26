@@ -62,7 +62,7 @@ It is a handbell no wider than her palm across the crown, and the crown has been
 
 She rang it once.
 
-**And then she said one thing, at ten feet, in the ordinary voice, to a man about nine feet off who had a slip of paper in his coat and had been standing there for a quarter of an hour.**
+**And then she said one thing, at ten feet, in the ordinary voice, to a man nine feet off who had a slip of paper in his coat and had been standing there for a quarter of an hour.**
 
 “**You have got a box for the person who repeats a thing and I am the person who repeats things, and I have been doing it on eleven years of road, and there are about four hundred of these a year and you are one of the people who fills them in, and I am telling you that in a market and not to a clerk, and I would like it noticed that I chose a market, and I would like it noticed that a market is where I am known and a counter is where I am not.**”
 
@@ -72,13 +72,13 @@ Nobody said anything for about four seconds, and then about nine hundred people 
 
 They looked at her.
 
-**And that is the whole cost of the ninety-second and it took about nine seconds and she paid it deliberately and she has written down that she paid it on purpose and that she would do it again in about a minute and a half if she had to do it again, and she is not going to be told about it by anybody, including him, and he did not try.**
+**And that is the whole cost of the ninety-second and it took nine seconds and she paid it deliberately and she has written down that she paid it on purpose and that she would do it again in about a minute and a half if she had to do it again, and she is not going to be told about it by anybody, including him, and he did not try.**
 
 It is not a cart and it is not a hiding and it is not a rescue. It is a woman with a slate in a market of about nine hundred people in a town with a Crown store eleven miles off, and about nine hundred people now know that there is one of her and can describe her, and about forty of them will say it in a different town inside a year, and there is no form in this kingdom on which a person may be charged with being a woman with a slate.
 
 ---
 
-He came over at about the seventh hour, and he had been about nine feet off her left shoulder for about a quarter of an hour, and what he said was:
+He came over at about the seventh hour, and he had been nine feet off her left shoulder for about a quarter of an hour, and what he said was:
 
 “**You did not tell me.**”
 
@@ -86,15 +86,15 @@ He came over at about the seventh hour, and he had been about nine feet off her 
 
 “**Why not.**”
 
-“**Because you would have said it would be a good idea and you would have been right and it would have been on the page before the second stroke, and I have had one of those in six weeks and I have watched what it cost, and I am not having it twice and not from you and not about me.**”
+“**Because you would have said it would be a good idea and you would have been right and it would have been on the page before the second stroke, and I have had one of those in eight weeks and I have watched what it cost, and I am not having it twice and not from you and not about me.**”
 
-He did not argue with that and he did not improve it and he wrote it down, and the reason he wrote it down is the reason he has written down every refusal in six weeks, and she read it upside down from behind him about four seconds later and did not say anything about it.
+He did not argue with that and he did not improve it and he wrote it down, and the reason he wrote it down is the reason he has written down every refusal in eight weeks, and she read it upside down from behind him about four seconds later and did not say anything about it.
 
 Then he said: “**I am not going to thank you for it.**”
 
 “**Good. And I am not going to be thanked and I am not going to explain it and I am not going to let it be a thing that was for anybody else. If anybody asks me in Sennet why I rang a bell in a market, the answer is that there was a man with a box and I did not want to be in it. That is the whole reason and it took me about four seconds to get it and I had it before the second stroke.**”
 
-She wrote the last entry of the ninety-second at about the ninth hour of the evening, on a stone by the water with her boots off, in her own hand, with the hours, and she filled the first and second columns and left the third and the fourth, and the fourth has two lines in it now and she has not improved either of them and is not going to.
+She wrote the last entry of the ninety-second at about the ninth hour of the evening, on a stone by the water with her boots off, in her own hand, with the hours, and she filled the first, second and third columns and left the fourth, and the fourth has two lines in it now and she has not improved either of them and is not going to.
 
 > *The ninety-second. **A box is cheaper than a witness and a witness can refuse.** Six fields on a slip, and four of them can be filled in by anybody in the room, and the fifth is *the words as they were spoken*, and the fourth is *the person who repeated them*, and it is the only one of the six that wants a name, and I have spent eleven years being the fourth one and I did not know there was a form.*
 >
@@ -102,7 +102,7 @@ She wrote the last entry of the ninety-second at about the ninth hour of the eve
 >
 > *And that is not the finding. The finding is the fourth field. **A form can count a thing that a person did. It cannot make anybody do it, and it cannot stop it, and it cannot be wrong, and it is cheaper.** And that is why the form wins, and it wins in every kingdom there has ever been, and it wins against me every time, and I have been beating people at markets for eleven years with an instrument that costs more and lasts less and I have been calling that a victory because I have not been in a room.*
 >
-> *Third column, ruled apart, and I am merging nothing: **I rang a bell.** Mine, in her bag, in a market of about nine hundred people, once, and it is a handbell and it is not certified for anything and it is the only thing I own that I have ever made any use of, and I rang it in front of nine hundred people on my own account and about nine of them will describe me in four counties inside a year. **And nobody has asked me why and nobody is going to, and the man standing nine feet off my left shoulder did not ask me why, and he wrote down that he was not going to thank me, and that is the nearest anybody has come in four counties and it is not close enough and it is not going to get closer.**
+> *Third column, ruled apart, and I am merging nothing: **I rang a bell.** Mine, in her bag, in a market of about nine hundred people, once, and it is a handbell and it is not certified for anything and it is the only thing I own that I have ever made any use of, and I rang it in front of nine hundred people on my own account and nine of them will describe me in four counties inside a year. **And nobody has asked me why and nobody is going to, and the man standing nine feet off my left shoulder did not ask me why, and he wrote down that he was not going to thank me, and that is the nearest anybody has come in four counties and it is not close enough and it is not going to get closer.**
 >
 > *And nobody has asked me about my ear in ninety-two days. I have written that down twice now in this book and I am not going to write it a third time.*
 >

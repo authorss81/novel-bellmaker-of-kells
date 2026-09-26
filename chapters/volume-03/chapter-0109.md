@@ -10,7 +10,7 @@ He came into Sennet on the ninety-fifth day of the month at about the fourth hou
 
 He had a hearing in about eight days and no paper to produce, and on the ninety-fifth day of the month at about the sixth hour he went up the middle terrace to the foot of the top and found the counter, and it is the last finding of these four days that is not about a bell, and it is the finding of the whole of the ninety-fifth.
 
-The counter is under an arch at the foot of a stair. It is about nine feet long. There are three clerks behind it and about four people in front of it and it is open from the fourth hour to the sixth and after that it is shut and there is a barred shutter and a man on the inside of the shutter.
+The counter is under an arch at the foot of a stair. It is nine feet long. There are three clerks behind it and about four people in front of it and it is open from the fourth hour to the sixth and after that it is shut and there is a barred shutter and a man on the inside of the shutter.
 
 There is a notice on the wall. **Any person may bring a paper to this counter and ask what it is.**
 
@@ -18,7 +18,7 @@ There is a notice on the wall. **Any person may bring a paper to this counter an
 
 ---
 
-The man at the end of the counter was called **Perrin Lowe** and Tomas Vale got to him at about the sixth hour with about four people behind him, and he said the thing he had come to say, in a room with four other people in it, at the end of eleven weeks of four counties, and it is the seventh time he has said it and it is a question and not a sentence.
+The man at the end of the counter was called **Perrin Lowe** and Tomas Vale got to him at about the sixth hour with about four people behind him, and he said the thing he had come to say, in a room with four other people in it, at the end of nine weeks of four counties, and it is the seventh time he has said it and it is a question and not a sentence.
 
 “**What is the document.**”
 
@@ -38,7 +38,7 @@ He said it in about nine seconds, and he said it in the ordinary way, and Tomas 
 
 He put one hand flat on the counter, the way a clerk does.
 
-“**The first is what I said. It is a record of what a person said. It is on this side of the counter and it is kept in a building and any person may bring it here and ask what it is and I will tell them in about nine seconds, and I have never in about nine years been asked one question I could not answer, and I am not going to start.**”
+“**The first is what I said. It is a record of what a person said. It is on this side of the counter and it is kept in a building and any person may bring it here and ask what it is and I will tell them in about nine seconds, and I have never in nine years been asked one question I could not answer, and I am not going to start.**”
 
 “**And the second kind is not kept in this building. It is not my business. It is not in this arch and it is not in the stair behind me and I have not been upstairs and I am not going to be.**”
 
@@ -48,7 +48,7 @@ He took his hand off the counter.
 
 ---
 
-Nobody said anything for about four seconds and about nine feet behind Tomas Vale a woman said, “**Say that again.**”
+Nobody said anything for about four seconds and nine feet behind Tomas Vale a woman said, “**Say that again.**”
 
 And Perrin Lowe said it again, in the same words, because a clerk at a counter says a thing again when a person asks him to, and he did not improve it and he did not add anything.
 
@@ -72,13 +72,13 @@ He put a hand into the front of his coat and brought out a printed slip and set 
 
 “Why is it not enough for me to have asked.”
 
-“**Because you have not got a document.**” He said it without any weight at all, in the way a man says a thing he has said a thousand times. “**There are two kinds of paper and I have told you the difference between them and you have heard the difference and you have not done anything with it, and here is what you have to understand in about nine seconds, and I am going to say it once and I am not going to say it again this month. A person may bring a paper to this counter and ask what it is. **A person may not bring a question to this counter. There is no box on the form for a question. There is a box for a person and a box for a district and a box for a thing and a box for a reason, and the box for a reason has to be filled in by a person with a standing in a district, and you have not got one, and I have not got one, and the man in my county who came down this road four days ago has one and did not use it and told me so off his own mouth in a market.**”
+“**Because you have not got a document.**” He said it without any weight at all, in the way a man says a thing he has said a thousand times. “**There are two kinds of paper and I have told you the difference between them and you have heard the difference and you have not done anything with it, and here is what you have to understand in nine seconds, and I am going to say it once and I am not going to say it again this month. A person may bring a paper to this counter and ask what it is. **A person may not bring a question to this counter. There is no box on the form for a question. There is a box for a person and a box for a district and a box for a thing and a box for a reason, and the box for a reason has to be filled in by a person with a standing in a district, and you have not got one, and I have not got one, and the man in my county who came down this road four days ago has one and did not use it and told me so off his own mouth in a market.**”
 
 ---
 
 Then he said the last of it, and he said it at about the seventh hour with the shutter half down and about four people still in the arch, and Tomas Vale wrote it down verbatim because it is the sentence the ninety-fifth ends on and it is not a sentence anybody would have thought of.
 
-“**I have been behind this counter about nine years and about four thousand people a year bring a paper to it and ask me what it is, and I have answered every one of them in about nine seconds and not one of them has ever asked me for the second kind, and I have thought about that for about two years and I have got one answer and I am not sure of it.**”
+“**I have been behind this counter about nine years and about four thousand people a year bring a paper to it and ask me what it is, and I have answered every one of them in nine seconds and not one of them has ever asked me for the second kind, and I have thought about that for about two years and I have got one answer and I am not sure of it.**”
 
 “What is it.”
 
@@ -88,22 +88,22 @@ He came round the end of the counter and shut the shutter, which is a thing a cl
 
 ---
 
-He wrote the last entry of the ninety-fifth at about the ninth hour of the evening on a step at the foot of the top terrace in a city of about nine thousand people, with the frame four feet off him and the four bolts made fast, and he filled the first and second columns and left the third and the fourth as they were.
+He wrote the last entry of the ninety-fifth at about the ninth hour of the evening on a step at the foot of the top terrace in a city of about nine thousand people, with the frame four feet off him and the four bolts made fast, and he filled the first, second and third columns and left the fourth as it was.
 
 > *The ninety-fifth. **Two kinds of paper.**
 >
 > *I have carried one sentence for fifty-six days. Four clerks in four counties and an auditor in a room over a haberdasher's shop have given it to me and every one of them was right. **A document is a record of the answer given, entered against the line, in the order in which the answers were given, and it is not a household's answer and it is not a person's answer and it is not a copy of either, and the office obtains an answer from a person and the entry is made by the office.**
 >
-> *And a clerk at a counter at the foot of the top terrace in Sennet gave me that, in about nine seconds, and then gave me the rest of it, unasked, because four people behind me had brought papers and it was the sixth hour and a clerk does not waste a queue:*
+> *And a clerk at a counter at the foot of the top terrace in Sennet gave me that, in nine seconds, and then gave me the rest of it, unasked, because four people behind me had brought papers and it was the sixth hour and a clerk does not waste a queue:*
 >
 > ***And the second kind is not kept in that building. The second kind is a thing that says it for you. It is a fitting, or an instrument, or a box with a handle. It is issued out of a store against a district instruction with a number at the top of it, and when it is fitted the answer is made for you, and the answer it makes is in your own voice and it is not a lie.***
 >
-> *I have been carrying a door for fifty-six days and it has a second leaf, and I did not know, and **a sentence that is true and incomplete is worse to carry than a wrong one, because a wrong one can be thrown out.** That is the whole of what the ninety-fifth is and I am not going to improve it. The clerk said the first half in nine seconds and he has given it to about four thousand people a year for nine years and he said the second half in about nine seconds as well and **he has never been asked for it, and I have been eleven weeks in four counties with a barrow and a bell in a bag and I was not the first person to be frightened of it and I was not the only one who could not write a form about it, and I have been walking about in this kingdom for eleven weeks as though I had a thing nobody else had.**
+> *I have been carrying a door for fifty-six days and it has a second leaf, and I did not know, and **a sentence that is true and incomplete is worse to carry than a wrong one, because a wrong one can be thrown out.** That is the whole of what the ninety-fifth is and I am not going to improve it. The clerk said the first half in nine seconds and he has given it to about four thousand people a year for nine years and he said the second half in nine seconds as well and **he has never been asked for it, and I have been nine weeks in four counties with a barrow and a bell in a bag and I was not the first person to be frightened of it and I was not the only one who could not write a form about it, and I have been walking about in this kingdom for nine weeks as though I had a thing nobody else had.**
 >
-> *Second column, and the part that is on the page because it was said out loud to four people in an arch: **there is no box on the form for a question. There is a box for a person, a box for a district, a box for a thing and a box for a reason. The box for a reason has to be filled in by a person with a standing in a district.** I have not got one. A clerk in that arch has not got one. A man in my county who came down the road four days ago has one and did not use it and gave me his name in a market so that I would not have to go and get it out of a building. **And I have spent eleven weeks finding out that the thing I could not do was ask, and I have got here, and the thing I cannot do is fill in a box that says why I am asking, and it is the same inability wearing a different hat, and I am not going to pretend to anybody that it is progress.**
+> *Second column, and the part that is on the page because it was said out loud to four people in an arch: **there is no box on the form for a question. There is a box for a person, a box for a district, a box for a thing and a box for a reason. The box for a reason has to be filled in by a person with a standing in a district.** I have not got one. A clerk in that arch has not got one. A man in my county who came down the road four days ago has one and did not use it and gave me his name in a market so that I would not have to go and get it out of a building. **And I have spent nine weeks finding out that the thing I could not do was ask, and I have got here, and the thing I cannot do is fill in a box that says why I am asking, and it is the same inability wearing a different hat, and I am not going to pretend to anybody that it is progress.**
 >
-> *Third column, ruled apart, and the day, and the two things in it that are worth a page each: **a town of about nine hundred bells and not one of them sounding, and every one of them waiting for an hour and a man and a reason that is written down in a room.** I have never stood in a place where bells did not sound and were not broken and it took me about four seconds on a wharf to see it and I have not got over it. And a clerk with about nine years in an arch who says that about four thousand people a year bring him a paper and not one of them has ever asked him for the second kind, **and that they are all frightened of it and that being frightened of it is the correct thing to be, and that nobody has ever said so out loud and that is why nobody has ever been able to write a form about it.** He is right and he is not a door and he did not want anything and I am not going to be told he did it for me.
+> *Third column, ruled apart, and the day, and the two things in it that are worth a page each: **a town of about nine hundred bells and not one of them sounding, and every one of them waiting for an hour and a man and a reason that is written down in a room.** I have never stood in a place where bells did not sound and were not broken and it took me about four seconds on a wharf to see it and I have not got over it. And a clerk with nine years in an arch who says that about four thousand people a year bring him a paper and not one of them has ever asked him for the second kind, **and that they are all frightened of it and that being frightened of it is the correct thing to be, and that nobody has ever said so out loud and that is why nobody has ever been able to write a form about it.** He is right and he is not a door and he did not want anything and I am not going to be told he did it for me.
 >
-> *Which office is it. **The Quiet Office. It is four streets and four flights up and it is a store, and the store has a counter and a book and a man and a shelf, and the man has not got a plan.** I have been eleven weeks looking for a room with a plan in it and there is a counter and a number, and I have a printed slip with a district and a store's number and a form, **and the form is the one thing in this kingdom I cannot fill in for myself, and I have spent fifty-six days learning that the answer to a question must be written down by a person in a building, and I have got to the building and the sentence is: there is no box for a question.**
+> *Which office is it. **The Quiet Office. It is four streets and four flights up and it is a store, and the store has a counter and a book and a man and a shelf, and the man has not got a plan.** I have been nine weeks looking for a room with a plan in it and there is a counter and a number, and I have a printed slip with a district and a store's number and a form, **and the form is the one thing in this kingdom I cannot fill in for myself, and I have spent fifty-six days learning that the answer to a question must be written down by a person in a building, and I have got to the building and the sentence is: there is no box for a question.**
 >
 > *All five clauses stand. Nothing was rung. Four bolts and the frame has been in no building since the thirty-third, and it stood in an arch in a city of about nine thousand people this afternoon and that is a street and not a building and I am writing the difference down on purpose. The bell in the sack untouched since the seventy-seventh. My own bell is in a sealed yard in Kells and I am not going to it. **Thirteen documents, and a printed slip that is the Office's and not mine, and a form in my coat that I cannot fill in and have not tried to fill in and am not going to fill in, and I want it written down that carrying an unfilled form is not the same as a plan and I know that.***

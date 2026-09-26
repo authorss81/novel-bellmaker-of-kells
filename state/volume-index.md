@@ -33,7 +33,7 @@ Read these five. Everything else in `state/` is history and should be opened onl
 | 0008 | 02 | `workspace/volume-02/batch-0003/` | 71–80 | 56–66 | `state/batch-0008-summary.md` | spent |
 | 0009 | 02 | `workspace/volume-02/batch-0004/` | 81–90 | 67–76 | `state/batch-0009-summary.md` | spent |
 | 0010 | 02 | `workspace/volume-02/batch-0005/` | 91–100 | 77–86 | `state/batch-0010-summary.md` | spent |
-| 0011 | 03 | `workspace/volume-03/batch-0001/` | 101–110 | 87–96 | `state/batch-0011-summary.md` | spent |
+| 0011 | 03 | **no phase directory — see the note below** | 101–110 | 87–96 | `state/batch-0011-summary.md` | spent |
 | 0012 | 03 | `workspace/volume-03/batch-0002/` | 111–120 | 97–106 | — | **next** |
 
 **The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five; Volume 03 has five.
@@ -48,5 +48,6 @@ Read these five. Everything else in `state/` is history and should be opened onl
 
 ## Known gaps in the planning layer
 
-- **`outline/volume-03.md` NOW EXISTS** and was written before the first Volume 03 chapter, after the Volume 02 close, because `state/current.md` and this file both named the absence as a real gap. `outline/batches/volume-03-batch-0001.md` holds the ten chapter cards. **The volume runs to Chapter 150 and closes there.**
+- **THERE IS NO `workspace/volume-03/batch-0001/` DIRECTORY AND THERE NEVER WAS ONE.** Batch 0011's ten cards are `outline/batches/volume-03-batch-0001.md` and the prose is `chapters/volume-03/chapter-0101.md` to `chapter-0110.md`. Earlier drafts of this table and of `state/current.md` pointed at a phase prompt directory that was never created, and that dead path has been removed rather than left for a later writer to open. **Every other row in the table is a real phase directory with a tracked `PROMPT.md` and a `.done` marker; this one is the exception and is now marked as the exception in the row itself.**
+- **`outline/volume-03.md` EXISTS** and was written before the first Volume 03 chapter, after the Volume 02 close, because `state/current.md` and this file both named the absence as a real gap. `outline/batches/volume-03-batch-0001.md` holds the ten chapter cards. **The volume runs to Chapter 150 and closes there.**
 - **The two Volume 02 payoffs are BOTH PAID**, in Volume 03 Batch 0001, in the required order: **Mara Vale's trail in Chapter 0105** and **the Silent Muster proved by a document and a date in Chapter 0107.** The record of what was paid and of what each payment deliberately did not do is `state/continuity.md` §11. `outline/volume-02.md` and `state/continuity.md` still carry the deferral note as history; **§11 of the continuity file is the live statement and it says PAID.**

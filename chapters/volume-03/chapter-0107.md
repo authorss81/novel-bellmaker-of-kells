@@ -2,9 +2,9 @@
 
 He had been carrying the thing he wanted for ninety-two days and on the ninety-third day of the month he found out that what he was going to get was a number and a date and one line of eleven, and that is the whole of the ninety-third and almost all of it is in the second column.
 
-The market town on the maintained road where he had been on the ninety-first had about nine hundred people in it, and there was a bigger one four days further on with about two thousand, and on Day 93 he put the barrow against a wall in the square of the bigger one at about the fourth hour and worked out that he had about nine seconds of courage left in the week and that he had better spend it in a market with people in it.
+The market town on the maintained road where he had been on the ninety-first had about nine hundred people in it, and there was a bigger one two days further on with about two thousand, and on Day 93 he put the barrow against a wall in the square of the bigger one at about the fourth hour and worked out that he had about nine seconds of courage left in the week and that he had better spend it in a market with people in it.
 
-**Because that is the thing a man in a coat with no standing has, and it is the only thing he has, and he has been throwing it away for six weeks by asking questions at counters.**
+**Because that is the thing a man in a coat with no standing has, and it is the only thing he has, And he has been throwing it away for nine weeks by asking questions at counters.**
 
 ---
 
@@ -24,7 +24,7 @@ He had been ninety-two days old with the number seven and he had never once had 
 
 **So he went and got the document.**
 
-Not out of a room. Off a table, in the open, in a market, at about the fifth hour, and about four hundred people watched a stranger with a barrow lay three sheets on a trestle that two women had left over from a pitch of needles, and he asked them for the trestle and paid for it and said out loud what it was about, which is the part a man with no standing is actually for and which he has been refusing to do for six weeks.
+Not out of a room. Off a table, in the open, in a market, at about the fifth hour, and about four hundred people watched a stranger with a barrow lay three sheets on a trestle that two women had left over from a pitch of needles, and he asked them for the trestle and paid for it and said out loud what it was about, Which is the part a man with no standing is actually for, and which he has been refusing to do for nine weeks.
 
 He put out:
 
@@ -42,7 +42,7 @@ And about four hundred people in a market watched.
 
 **And he got it wrong.**
 
-He put the two district forms in the order they were dated, and he said the order meant the second county was told afterwards, and he said it with his hand on the older one, and a man in the market who had been standing at about nine feet came forward and said:
+He put the two district forms in the order they were dated, and he said the order meant the second county was told afterwards, and he said it with his hand on the older one, and a man in the market who had been standing nine feet off came forward and said:
 
 “**You have got that the wrong way round and I am going to say so in front of about four hundred people and you are not going to like it.**”
 
@@ -64,11 +64,11 @@ He had a satchel and a printed slip and he was an officer of a county and Tomas 
 
 Nobody took the sheets. That is the finding of the ninety-third and it took about eleven minutes and it is on the page because it is the opposite of what he expected.
 
-**They did not take the sheets. Four hundred people stood round a trestle in a market and read them and about nine of them put a hand on a line — not a copy, a hand, on the table, on the paper, the way a man puts his hand on his own line in his own yard on his own day — and about four hundred of them said no out loud in about nine minutes, and a woman at a pitch of butter said *I have not got a bell* and a man at a pitch of nothing said *I have not got anything either, take it off me*.**
+**They did not take the sheets. Four hundred people stood round a trestle in a market and read them and nine of them put a hand on a line — not a copy, a hand, on the table, on the paper, the way a man puts his hand on his own line in his own yard on his own day — and about four hundred of them said no out loud in nine minutes, and a woman at a pitch of butter said *I have not got a bell* and a man at a pitch of nothing said *I have not got anything either, take it off me*.**
 
 **And nobody said yes, and nobody signed, and about nine people said the same true sentence that Tamsin Rook had said at a landing in another county, and he wrote it down in the third column, and the sentence is: *that is the district's business and it is not ours.***
 
-And then about four hundred people in a market looked at each other, and that is the part that is on the page and that he did not expect and is still thinking about on Day 100: **about two hundred of them did not go home and wait. About nine of them went and got sheets — old sheets, any sheets, a laundry list, a basket of nails — and stood about nine feet off the trestle and said their own names and their own business, out loud, in front of each other, in the ordinary voice, about two hundred times, in about half an hour.**
+And then about four hundred people in a market looked at each other, and that is the part that is on the page and that he did not expect and is still thinking about on Day 100: **about two hundred of them did not go home and wait. About nine of them went and got sheets — old sheets, any sheets, a laundry list, a basket of nails — and stood nine feet off the trestle and said their own names and their own business, out loud, in front of each other, in the ordinary voice, about two hundred times, in about half an hour.**
 
 **And he wrote down the time and he did not improve it and he did not write down a single one of them anywhere else.**
 
@@ -96,23 +96,23 @@ He read it out at about the seventh hour, standing at the end of the trestle, in
 >
 > *And a third, in a third county, in a hand about a year younger, doing the same thing, referring to clause seven by number, and **that one is dated a year after the notice was pinned up in my ward, and about a week after my bell rang.***
 >
-> ***There is a document and there is a date. That is the whole of what I have got in ninety-three days about the thing that took a child out of a round in a low ward in a town I have not been able to stand in for six weeks. I have wanted a man. I have wanted to walk into a room and have a person tell me that they did it to a child. There is no man and there is no room. There is a printed instruction with a number at the head of it, and a district and a date, and a clause about children who are on no roll, and eleven clauses in all, and about nine of them are about as bad and I cannot read them and I am not going to pretend to.***
+> ***There is a document and there is a date. That is the whole of what I have got in ninety-three days about the thing that took a child out of a round in a low ward in a town I have not been able to stand in for nine weeks. I have wanted a man. I have wanted to walk into a room and have a person tell me that they did it to a child. There is no man and there is no room. There is a printed instruction with a number at the head of it, and a district and a date, and a clause about children who are on no roll, and eleven clauses in all, nine of them as bad, and I cannot read them and I am not going to pretend to.***
 >
-> *And I am going to say the last of it plainly, because there are about four hundred people here and about nine of them will say it tomorrow and I would like it to have been said by me first: **a document is a thing I can be right about, and being right about it is the thing I have spent six weeks learning to stop wanting.** I have been right about a document eleven times. It has not once done anything.*
+> *And I am going to say the last of it plainly, because there are about four hundred people here and nine of them will say it tomorrow and I would like it to have been said by me first: **a document is a thing I can be right about, and being right about it is the thing I have spent nine weeks learning to stop wanting.** I have been right about a document eleven times. It has not once done anything.*
 
 ---
 
-He wrote the last entry of the ninety-third at about the ninth hour of the evening, at the edge of a market of about two thousand people, with the frame four feet off him and the bolts made fast, and he filled the first and third columns and left the second and the fourth as they were.
+He wrote the last entry of the ninety-third at about the ninth hour of the evening, at the edge of a market of about two thousand people, with the frame four feet off him and the bolts made fast, and he filled the first, second and third columns and left the fourth as it was.
 
 > *The ninety-third. **A document and a date, and it is a clause, and there is no man.***
 >
-> ***Standing instruction of the district, in the matter of the coming Renewal*** — that is the heading, and it is Crown paper, and it is dated, and it carries a number, and clause seven of eleven is *that such persons as are entered on no roll in the district, being children, be taken and held to the uses of the district, and their names be brought onto the roll*, and a district form in a second county nine days after refers to clause seven by its number, and a district form in a third county about a year after mine does the same and is dated about a week after my bell rang.*
+> ***Standing instruction of the district, in the matter of the coming Renewal*** — Crown paper, dated, carrying a number, and **clause seven of eleven is the sentence I read out in that market this afternoon and I am not going to write it a second time in the same book, because a thing written twice begins to look like a thing I have understood.** And a district form in a second county nine days after refers to that clause by its number, and a district form in a third county about a year after mine does the same and is dated about a week after my bell rang.*
 >
-> *And the six other clauses. **I have not read six of eleven in ninety-three days and I have said so out loud in a market to about four hundred people and I have written down that I said it and I am not going to improve it in the morning.** And nobody has offered to read them to me. There is nobody. That is not a mystery. There is about eleven thousand lines a year in this district and a man and a barrow and about nine sheets and a counter in a room eleven miles off, and the six other clauses are in the same document as the one I can read and there is nobody in four counties who has both of them.*
+> *And the six other clauses. **I have not read six of eleven in ninety-three days and I have said so out loud in a market to about four hundred people and I have written down that I said it and I am not going to improve it in the morning.** And nobody has offered to read them to me. There is nobody. That is not a mystery. There is about eleven thousand lines a year in this district and a man and a barrow and nine sheets and a counter in a room eleven miles off, and the six other clauses are in the same document as the one I can read and there is nobody in four counties who has both of them.*
 >
 > *And what it is: **a clause, and not a plot, and not a man.** It does not say who struck it. It does not say who holds the names afterwards. It does not say what happens to a child after it is taken, and I have wanted that sentence for ninety-three days and it is not in it, and **I am not going to write down the sentence I would like and I am not going to go looking for it in the six I cannot read, because the six are a stranger's children too and I have no standing in that sentence and no standing in this one and I have said so out loud four times in ninety-three days and the fifth is here.***
 >
-> *Second column, and the finding that costs me something: **there is a fair copy of a Crown sheet in this market that is Crown property from the moment it was made, and I laid it on a trestle in front of about four hundred people, and an officer of a county stood nine feet off and said so out loud and gave me his name off his own mouth so that I would not have to go and get it out of a building, and then stood there and did not take a single sheet off the trestle, and said he was not going to be the reason.** And I have been putting my own fifth clause in books for six weeks as though it were a wall I had built, and **a clause stops a form entering a household and it does not stop a person in a market, and a man with a form can stand nine feet off and say a true thing and not use it, and that is a different kind of wall and I have not worked out what it is made of and I am not going to write a paragraph about it.***
+> *Second column, and the finding that costs me something: **there is a fair copy of a Crown sheet in this market that is Crown property from the moment it was made, and I laid it on a trestle in front of about four hundred people, and an officer of a county stood nine feet off and said so out loud and gave me his name off his own mouth so that I would not have to go and get it out of a building, and then stood there and did not take a single sheet off the trestle, and said he was not going to be the reason.** And I have been putting my own fifth clause in books for nine weeks as though it were a wall I had built, and **a clause stops a form entering a household and it does not stop a person in a market, and a man with a form can stand nine feet off and say a true thing and not use it, and that is a different kind of wall and I have not worked out what it is made of and I am not going to write a paragraph about it.***
 >
 > *Third column, ruled apart, and the whole of the afternoon, and I am not going to improve it and nobody is going to be told it was worth it: **about two hundred people in a market of about two thousand did not go home and wait. About nine of them got a sheet and stood nine feet off a trestle and said their own names and their own business out loud in front of each other, and about two hundred times in about half an hour, and I wrote down the time and not one name.** That is the second time in ninety-three days and it is not mine and I did not persuade anybody and I am not going to be the man who says it was him.*
 >

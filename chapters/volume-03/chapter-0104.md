@@ -30,7 +30,7 @@ And then he stood in the square of a town of about eleven hundred people and had
 
 ---
 
-**Because Marta Vell's water bell is in that column.**
+**Because a water bell with Marta Vell's fault is in that column.**
 
 Not that village. A ford four miles from here, and a number that is not her number, and a hamlet that is not her hamlet. **The same form. The same empty box. The same rule running past the end of the line.**
 
@@ -44,7 +44,7 @@ The impulse — and he wrote it down in the third column and it is the only line
 
 **And he did not, and he took about four minutes to not do it, and the four minutes are on the page, and the reason is one he has had since Day 82 about a fragment of nine lines and a book of numbers.**
 
-> *I want to join them. I stood in a square a few minutes short of the fifth hour of the ninetieth and I wanted it more than I have wanted anything in six weeks.*
+> *I want to join them. I stood in a square a few minutes short of the fifth hour of the ninetieth and I wanted it more than I have wanted anything in eight weeks.*
 >
 > *And the reason I do not is that they are both **empty boxes** and there is no third thing to join. Two empties in a column is a clerk doing a form. A third empty in a third county is not a clerk doing a form, and if I cannot say what the third thing is then I do not get to have the second one, because the second one is what I am using to hold the first one up.*
 >
@@ -60,7 +60,7 @@ Then he asked the man at the board, who was there because there is a man at a bo
 
 “That is the heading of the sheet.”
 
-“**Yes. And the middle column is things that are entered and not about a bell, and there are about two hundred and forty in it and about nine of them are a gate and about four are a bridge, and the rest are such as.**” Dace turned the sheet over. “**The third column is withdrawn. And that is about four years of this sheet and there are about nine in it.**”
+“**Yes. And the middle column is things that are entered and not about a bell, and there are about two hundred and forty in it and nine of them are a gate and about four are a bridge, and the rest are such as.**” Dace turned the sheet over. “**The third column is withdrawn. And that is about four years of this sheet and there are about nine in it.**”
 
 “Who enters them.”
 
@@ -104,7 +104,7 @@ He put the sheet back under the roof.
 
 ---
 
-He wrote the last entry of the ninetieth at about the ninth hour of the evening at the edge of the market square with the frame four feet off him and the bolts made fast, and he filled the first and third columns and left the second and the fourth as they were, and the fourth was empty and he had had a thing in it four days ago about a fragment of nine lines and had struck it through with a line and the word *not said*, and it is empty.
+He wrote the last entry of the ninetieth at about the ninth hour of the evening at the edge of the market square with the frame four feet off him and the bolts made fast, and he filled the first and second columns and left the third and the fourth as they were, and the fourth was empty and he had had a thing in it four days ago about a fragment of nine lines and had struck it through with a line and the word *not said*, and it is empty.
 
 > *The ninetieth. **A bell can be on a roll.***
 >
@@ -114,9 +114,9 @@ He wrote the last entry of the ninetieth at about the ninth hour of the evening 
 >
 > ***A thing that is claimed can be given away to somebody else.*** A man with nine years at a board said that in about nine seconds and asked for nothing and did not want it read out, and he is right and it is worse than what I was afraid of, and it is worse because **I was afraid of a list of people and a list of people is a thing a man can be angry at, and a list of things is a thing a district can hand to a district, and a bell does not have to be taken off a village to be a district's, there is no form for taking a bell off a village, and if there were it would be a form about a door.***
 >
-> *Second column, ruled apart: **a name does not go anywhere, a name stops.** About eleven thousand a year, about nine sheets, a man and a barrow, and about four in ten of the lines in a village of two hundred never get attended. And the man at the board does not know what is past Ashmoor and has never known and refused to guess, and he thinks — he *thinks*, in his own mouth, and asked for the word to be the word — that a great many of them do not go past Ashmoor at all, and that it is a queue with nobody at the front of it who wants anything. **And that is the closest anybody in four counties has come to the second question in fifty-one days and he said it in a square in about nine seconds and I asked him nothing else and I am not going to go back and ask him anything else this year.***
+> *Second column, ruled apart: **a name does not go anywhere, a name stops.** About eleven thousand a year, nine sheets, a man and a barrow, and about four in ten of the lines in a village of two hundred never get attended. And the man at the board does not know what is past Ashmoor and has never known and refused to guess, and he thinks — he *thinks*, in his own mouth, and asked for the word to be the word — that a great many of them do not go past Ashmoor at all, and that it is a queue with nobody at the front of it who wants anything. **And that is the closest anybody in four counties has come to the second question in fifty-one days and he said it in a square in about nine seconds and I asked him nothing else and I am not going to go back and ask him anything else this year.***
 >
-> *And the thing I did not do, and it took about four minutes standing in a square, and it is on the page because the whole of six weeks is a man learning not to do a thing: **I did not join two empty boxes in three counties into a pattern. I wanted it more than I have wanted anything since the seventy-seventh. Two empties in a column is a clerk doing a form. If I cannot say what the third thing is then I do not get to keep the second one, because the second one is what I am holding the first one up with.** A person who joins them has joined them because they are both empty.*
+> *And the thing I did not do, and it took about four minutes standing in a square, and it is on the page because the whole of eight weeks is a man learning not to do a thing: **I did not join two empty boxes in three counties into a pattern. I wanted it more than I have wanted anything since the seventy-seventh. Two empties in a column is a clerk doing a form. If I cannot say what the third thing is then I do not get to keep the second one, because the second one is what I am holding the first one up with.** A person who joins them has joined them because they are both empty.*
 >
 > *And I have not got the answer to the second question and I am not going to write one down, and it has changed shape and that is not the same as having got nearer it, and I want both halves of that in one line: **a name goes on a line, a line goes in a book, a book goes in a barrow to Ashmoor, and after Ashmoor there is a room with a counter in it, and I am going to stand at that counter and it is going to be a person behind it and not a shelf, and that is the only difference I have got this month and I am not going to make more of it than that.***
 >

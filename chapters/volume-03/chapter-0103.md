@@ -82,7 +82,7 @@ And Doss Harrow said the sentence that the whole of the road is standing on, in 
 
 ---
 
-He wrote it down standing at the arch, on a scrap of a slate off the top of the wall, and he read it back to the smith before he put it away, which is a thing he has done four times in six weeks and which is in the book four times.
+He wrote it down standing at the arch, on a scrap of a slate off the top of the wall, and he read it back to the smith before he put it away, which is a thing he has done four times in eight weeks and which is in the book four times.
 
 “**Read it again.**
 
@@ -96,7 +96,7 @@ He wrote it down standing at the arch, on a scrap of a slate off the top of the 
 
 ---
 
-He left Ashmoor about the seventh hour and the road went on inland and up, and he wrote the last entry of the eighty-ninth at about the ninth hour of the evening, on a wall at the fourth milestone out of Ashmoor, with the frame four feet off him and the four bolts made fast, and the second half of that day is the part of it he wrote out flat because it is the finding of ten days and it took a smith to say it.
+He left Ashmoor about the seventh hour and the road went on inland and up, and he wrote the last entry of the eighty-ninth at about the ninth hour of the evening, on a wall at the fourth milestone out of Ashmoor, with the frame four feet off him and the four bolts made fast, and he filled the first, second and third columns and left the fourth as it was, and the second half of that day is the part of it he wrote out flat because it is the finding of ten days and it took a smith to say it.
 
 > *The eighty-ninth. **The same hand.***
 >
@@ -104,11 +104,11 @@ He left Ashmoor about the seventh hour and the road went on inland and up, and h
 >
 > *And I have been carrying that repair for about ten days as a **who**, and it is not a who. It is a **where from.***
 >
-> ***There is a store. Every district has one. Ours is in Ashmoor and it is a room with a counter and a book and a man and a shelf, and you go in with a district instruction, and he gives you the thing out of the shelf and writes in a book what he gave you, and there is a column on the form for what the thing is for and nobody has ever filled it in in his hearing.*** That is the whole of it. That is what a smith with thirty-one years said at an arch in about four seconds and did not put any weight on at all, and it is a smaller thing than a man in a room with a plan in it and it is nine days up the road and I could walk to it and I have not walked to it and I am not going to today.*
+> ***There is a store. Every district has one. Ours is in Ashmoor and it is a room with a counter and a book and a man and a shelf, and you go in with a district instruction, and he gives you the thing out of the shelf and writes in a book what he gave you, and there is a column on the form for what the thing is for and nobody has ever filled it in in his hearing.*** That is the whole of it. That is what a smith with thirty-one years said at an arch in about four seconds and did not put any weight on at all, and it is a smaller thing than a man in a room with a plan in it, and **it is three miles up this road and I will be in Ashmoor at about the seventh hour, and I could walk to it, and I am not going to, and I want that in the book in that order and not improved in the morning.***
 >
 > *And I have got to be honest about what it does and I am not, and I am going to write that down before I get the chance to improve it: **I do not know what a coupling and a jumper do. I have looked at one for ten days. I have a bell in a cradle that has no clapper in it and a receipt that forbids anybody to put one in, and I have not once asked what the fitting is for, because I have been asking who cut the coupling and not what the cut is.** That is a whole trade's worth of not asking and I have been in it for thirty-three years and Sabin Fell would have had my hands for it.*
 >
-> *Second column, and this is the one I am going to be careful with. **I have not got nearer how an office gets into a bell. I have got a shop.** A store is not a mechanism and a store is not an office and a smith who has fitted three of these in nine years does not know what they do and told me so to my face in four seconds and would not hand me a theory. **And I said no to the theory in about a second and a half and I want it written down that I said no and that I did not want it, and that is the first time in six weeks I have refused a thing that would have been easier.***
+> *Second column, and this is the one I am going to be careful with. **I have not got nearer how an office gets into a bell. I have got a shop.** A store is not a mechanism and a store is not an office and a smith who has fitted three of these in nine years does not know what they do and told me so to my face in four seconds and would not hand me a theory. **And I said no to the theory in about a second and a half and I want it written down that I said no and that I did not want it, and that is the first time in eight weeks I have refused a thing that would have been easier.***
 >
 > *Third column, ruled apart, and I am merging nothing: **the sheet has a number on it and a number is a filing reference and not a man, and I have now heard that sentence from a district officer in another county, out of a clerk in a hall, and out of a smith at an arch, and it has been on my page for forty-seven days and this morning it turned out to be the answer to a question and not a dead end.** A man who cannot be found is a different thing from a counter that can be stood at.*
 >

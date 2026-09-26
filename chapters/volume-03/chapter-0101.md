@@ -42,7 +42,7 @@ What he did instead was sit down on the low wall at the crossing with the day-bo
 
 > *The eighty-seventh. A bell on a post above a notice-board at a crossing, eleven miles off nothing I have written down yet, and it rang at about the sixth hour and there was nobody within about forty yards of it and nothing to strike it with.*
 >
-> *I have been writing in this book for six weeks that a document is what a person is read by. I have it in the second column of the fortieth and a clerk in Miremarket said it to me in nine seconds and I carried it eleven days and made it into a key and it was not a key.*
+> *I have been writing in this book for seven weeks that a document is what a person is read by. I have it in the second column of the fortieth, that is forty-seven days ago, and a clerk in Miremarket said it to me in nine seconds, and I have carried it every one of them and made it into a key and it was not a key.*
 >
 > *Here is the other half of it and I have not got it before this morning. **A sound is what a person is read by, and a sound is cheaper than a sheet, and it goes further, and the sheet is only there to say afterwards what the sound was.** And I have been reading the sheet.*
 
@@ -54,11 +54,11 @@ The top sheet on the board said, in the flat hand of a printed form with a distr
 >
 > *By order. District of Wendle and Ashmoor. [number]*
 
-The date at the bottom was the eleventh day of the month.
+The date at the bottom was the ninety-first day of the month.
 
 **The date at the bottom was not the day the bell rang.** It was four days off. He stood under the bell and worked that out twice, because it is the sort of thing a man wants to be wrong about.
 
-The bell had rung today. The sheet was for the eleventh. The bell had not come to tell anybody what day it was. **It had come to tell them there was going to be a day, so that a household could not say on the ninth that it did not know, and a household that did not know would have to come and find out, and a household that comes and finds out has been in the room.**
+The bell had rung today. The sheet was for the ninety-first. The bell had not come to tell anybody what day it was. **It had come to tell them there was going to be a day, four days off, so that a household could not say days afterwards that it had not known, and a household that did not know would have to come and find out, and a household that comes and finds out has been in the room.**
 
 He wrote that down and then he took a second look at it, because he did not trust it, and the second look took about two minutes and the second look is what he put in the book.
 
@@ -96,6 +96,6 @@ He wrote the last entry of the eighty-seventh at about the ninth hour of the eve
 >
 > *Which office is it. **I still do not have the name of it. I have a district and a number and a bell on a post and a sheet with a court date on it, and a name is not a district, and a district is not an office, and there is a woman at a water bell in a village two counties back whose name is on a schedule and nobody has told her, and a number is a filing reference and not a man, and I am not going to write a paragraph about any of it because a paragraph is a thing I would be able to carry.***
 >
-> *Third column, ruled apart, and I am merging nothing: **the sound came first and the sheet is what the sound was for.** A man with a book cannot get to about two hundred doors in a day. A bell can. And I have been reading the sheet for six weeks and I have never once asked what carried it.*
+> *Third column, ruled apart, and I am merging nothing: **the sound came first and the sheet is what the sound was for.** A man with a book cannot get to about two hundred doors in a day. A bell can. And I have been reading the sheet for seven weeks and I have never once asked what carried it.*
 >
 > *All five clauses stand. **Nothing was rung.** The frame is four feet off me with four bolts made fast in it and no clapper and I have not been inside the cradle. The bell in the sack has not been touched since I put it in and it is not certified for anything. The bar on my own bell is in another county and my own bell is in a sealed yard in Kells and I am not going to it. My thirteen documents are thirteen.*

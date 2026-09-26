@@ -18,7 +18,7 @@ He said that in the ordinary way, at about nine seconds, and he was not being cl
 
 ---
 
-**The bell, in about nine seconds, from a man with a book and no office:**
+**The bell, in under a minute, from a man with a book and no office:**
 
 “**It is not rung here. It has not been rung in this village by anybody in my time. It comes from Ashmoor, which is eleven miles, and there is a room in Ashmoor with a counter in it and a man at the counter, and the man at the counter has a sheet with a day and a place on it, and the day and the place on it go on the sheet and the sheet goes on a barrow, and the barrow comes round, and the same day sets the bell.**”
 
@@ -44,13 +44,13 @@ The three questions he answered were the ones Tomas Vale had expected, and the f
 
 **Two.** *What is the sheet for.*
 
-“**It is for the people who cannot read, and for the people who are not here on the day, and for the people who want it after. It is not a copy of anything, it is the notice. There is one of them made and about nine of them printed off, and I have the nine and the one goes in the book at Ashmoor.**”
+“**It is for the people who cannot read, and for the people who are not here on the day, and for the people who want it after. It is not a copy of anything, it is the notice. There is one of them made and nine of them printed off, and I have the nine and the one goes in the book at Ashmoor.**”
 
 **Three.** *What do you do with a name.*
 
 “**I do not have any names. I have got lines.**”
 
-That is the whole of the conversation about the bell and it took about nine minutes and neither man improved it.
+That is the whole of the conversation about the bell and it took nine minutes and neither man improved it.
 
 ---
 
@@ -66,21 +66,23 @@ He counted it on the back of a sheet between about the fifth hour and the sevent
 
 “**Four in ten, and I have read out every one of those notices myself, and about two hundred people in this village have heard me read out a notice that they did not come to.**”
 
-“**And the bell told them the day before the sheet.**”
+“**And the bell told them before the day.**”
 
-“**The bell told them the day before the day. Yes. And I will tell you the thing I have not told anybody and I am telling you because you have got a Crown thing in a cradle and you cannot get rid of it, and a man who is going to be trouble anyway may as well have the true one: I have read out about four hundred notices in nine years and I have never once been asked by a person from Ashmoor whether the people were coming.**”
+“**Before the day. Yes. And how far before is the thing I have never once written down. The last one was four days and I have had this book nine years and there is not one of them in it that says how many days ahead the bell goes, and there is no column for it either, and I have wanted to rule one about nine times in nine years and I have not, because a column a man rules for himself is a thing he has to be right about.**”
+
+“**And I will tell you the thing I have not told anybody and I am telling you because you have got a Crown thing in a cradle and you cannot get rid of it, and a man who is going to be trouble anyway may as well have the true one: I have read out about four hundred notices in nine years and I have never once been asked by a person from Ashmoor whether the people were coming.**”
 
 He looked at the book.
 
-“**Not once. And I have written in the margin, on about nine of them, that I said it out loud at the board, because I have wanted somebody to know I said it, and there is no column for that either, and about nine lines in nine years is the whole of what I have got.**”
+“**Not once. And I have written in the margin, on nine of them, that I said it out loud at the board, because I have wanted somebody to know I said it, and there is no column for that either, and nine lines in nine years is the whole of what I have got.**”
 
 ---
 
 **Her name was Salla Keene and she had not come.**
 
-She had not come to the court date on the fifth day of the month, and there had been a second notice on the seventh, and the second notice went by the same bell, and Tomas Vale had the second notice's date off the board and the first one's date off the book in Abner Tole's hand, and the two dates were two days apart and the bell had rung for both of them on the day before.
+She had not come to the court date on the fifth day of the month, and there had been a second notice on the seventh, and the second notice went by the same bell, and Tomas Vale had the second notice's date off the board and the first one's date off the book in Abner Tole's hand, and the two dates were two days apart and the bell had rung for both of them before either of them, and how far before is not in the book, and he wrote that down as the second thing he did not have, after the four days.
 
-He did not see her. He did not ask to see her. He asked the one question a man may ask at a notice-board without standing in a lane, and the man with the book answered it correctly in about nine seconds.
+He did not see her. He did not ask to see her. He asked the one question a man may ask at a notice-board without standing in a lane, and the man with the book answered it correctly in nine seconds.
 
 “**She is in the line. It is marked not attended, twice, and it is closed, and there is a third date against it and the third date is next week, and I have not read the third notice out yet because it is not on the board until the day before.**”
 
@@ -118,14 +120,14 @@ He did not wait for an answer and he went back up the hill.
 
 He wrote the last entry of the eighty-eighth at about the ninth hour of the evening, sitting on the low wall at the ford, and he filled the first and second columns and left the third and the fourth as they were.
 
-> *The eighty-eighth. **A bell is a wire and a bracket and a post and a sheet.** Eleven miles of wire in the ground under a road, a counter in a room in Ashmoor with a man at it, a sheet with a day and a place on it, a barrow with nine copies, and a man in a village with about nine shillings a quarter reading it out at a board for nine years, and about four hundred notices, and not one person from Ashmoor has ever asked him whether the people were coming.*
+> *The eighty-eighth. **A bell is a wire and a bracket and a post and a sheet.** Eleven miles of wire in the ground under a road, a counter in a room in Ashmoor with a man at it, a sheet with a day and a place on it, a barrow with nine copies, and a man in a village on nine shillings a quarter reading it out at a board for nine years, and about four hundred notices, and not one person from Ashmoor has ever asked him whether the people were coming.*
 >
-> *And the thing the eighty-eighth is and I am going to write it in the flattest words I have got: **I have been angry for six weeks and I have not been able to be, and this morning I found out that I was looking for a face. There is no face. A schedule does not have a face, and that is not a comfort and it is not a relief and it is not the good news that I have been telling myself for a week it is going to be. I cannot be angry at a wire and I cannot be angry at a column and I cannot be angry at a man with about nine shillings a quarter who is right.***
+> *And the thing the eighty-eighth is and I am going to write it in the flattest words I have got: **I have been angry for eight weeks and I have not been able to be, and this morning I found out that I was looking for a face. There is no face. A schedule does not have a face, and that is not a comfort and it is not a relief and it is not the good news that I have been telling myself for a week it is going to be. I cannot be angry at a wire and I cannot be angry at a column and I cannot be angry at a man on nine shillings a quarter who is right.***
 >
-> *Second column, and the two lines in it are the finding and it is four inches long: **the sound comes first and the sheet is what the sound was for.** A man with a book cannot get to about two hundred doors in a day. A bell can. And a household that has been told in the air has had the day before it has had a chance to be angry about it, and about two hundred people in a village four miles up this road are going to be in a room next week because a sound told them to be, and about four in ten of them will not come, and the four in ten are not criminals and are not refusing anybody and are not on a cart.*
+> *Second column, and the two lines in it are the finding and it is four inches long: **the sound comes first and the sheet is what the sound was for.** A man with a book cannot get to about two hundred doors in a day. A bell can. And a household that has been told in the air has had time before it has had a chance to be angry about it, and about two hundred people in a village four miles up this road are going to be in a room next week because a sound told them to be, and about four in ten of them will not come, and the four in ten are not criminals and are not refusing anybody and are not on a cart.*
 >
-> *And a woman is not in her house and a man does not know and will not go and see, **and that is not cowardice and it is not loyalty, it is nine years of a board, and the reason he gave me is that the moment he goes to one door he has to go to every door, and then the board is not a board.** And he is right. **I have been trying for six weeks to find a person in a room who will say no, and I have now found out that there is a man in a lean-to who has decided not to know something on purpose, and it is the best decision anybody has made in four counties in six weeks and it cost him his whole morning and he is not to be thanked for it because he did not do it for me.*
+> *And a woman is not in her house and a man does not know and will not go and see, **and that is not cowardice and it is not loyalty, it is nine years of a board, and the reason he gave me is that the moment he goes to one door he has to go to every door, and then the board is not a board.** And he is right. **I have been trying for eight weeks to find a person in a room who will say no, and I have now found out that there is a man in a lean-to who has decided not to know something on purpose, and it is the best decision anybody has made in four counties in eight weeks and it cost him his whole morning and he is not to be thanked for it because he did not do it for me.*
 >
-> *A bell on a post is not a keeper's bell and it is not a plain bell. I have got a third kind and I am not going to coin a word for it in a book. **And I am not angry, and I have written down that I am not angry, and I want it noted that not being angry is not the same as it being all right. It is the difference between a thing I can fight and a thing I can only describe, and I can describe a wire, and describing it is what I have been doing for six weeks, and it has got me this far and it is going to get me to Ashmoor at about the ninth hour tomorrow.***
+> *A bell on a post is not a keeper's bell and it is not a plain bell. I have got a third kind and I am not going to coin a word for it in a book. **And I am not angry, and I have written down that I am not angry, and I want it noted that not being angry is not the same as it being all right. It is the difference between a thing I can fight and a thing I can only describe, and I can describe a wire, and describing it is what I have been doing for eight weeks, and it has got me this far and it is going to get me to Ashmoor at about the ninth hour tomorrow.***
 >
 > *All five clauses stand. Nothing was rung. Four bolts. The bell in the sack untouched. The bar on my own bell is in another county and the bell is in a sealed yard in Kells and I am not going to it. **Thirteen. And a woman whose name I have written on this page and whose name is not in my coat and is not in a book in a coat and is not on a slate, and I am not going to write it down twice anywhere.***
