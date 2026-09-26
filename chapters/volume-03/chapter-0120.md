@@ -1,4 +1,4 @@
-# Chapter 0120 — The Day Before The Volume Ends
+# Chapter 0120 — If There Were Three Of Me
 
 It was the fourth hour of the hundred and sixth day of the month and Tomas Vale was sitting on a step at the foot of a stair on the top terrace of Sennet with a barrow against the rail and a tarpaulin over a cradle on the barrow, and he was eleven days into a city of about nine thousand people, and he had a hearing behind him, and he was doing the one thing he had come here to do, which was to find out what a city of about nine thousand bells sounds like when it is asked a question instead of given a notice.
 
@@ -38,7 +38,7 @@ He had one.
 
 He had it worked out in his head before he opened his mouth and it was a frame, and it did not have to be this frame, and he knew the objection to every word of it before he asked.
 
-The carter looked up the hill, at about nine hundred feet of it, the same way he had looked up it on the morning of the ninety-seventh when a stranger with a barrow asked him something he had not explained yet.
+The carter looked up the hill, at about seven hundred feet of it, the same way he had looked up it on the morning of the ninety-seventh when a stranger with a barrow asked him something he had not explained yet.
 
 “**No. Not for nothing.**”
 
@@ -58,7 +58,7 @@ He looked at the barrow, and at the tarpaulin, and he did not look under it and 
 
 “**And here is the whole of it, and it is the same as a man who mends his own wire and I have had that argument with a foreman twice this month. If I put a thing down in a yard in this city that I was not told to put down, and there is no form on which anybody wrote down that I was told, then I have made an entry in somebody's day that only I know about, and the only way that ends is somebody stands in front of me with a reason and asks me about it. **And I have three horses and a boy on the second cart and I have not got a son to put in that gap, and I would like you to go and find a man with a form and I will carry it up four flights this afternoon.**”
 
-**And Tomas Vale did not argue, and did not thank him, and did not say that he understood, and stood there while three horses went up the Wharf Road, and wrote down at about the fifth hour that he had asked a man who was right to carry a thing and been told no in about nine seconds, and that the man had not asked what the thing was, and that the reason was the reason of a man who has nine loads and a boy on a cart and no form.**
+**And Tomas Vale did not argue, and did not thank him, and did not say that he understood, and stood there while three horses went up the Wharf Road, and wrote down at about the fifth hour that he had asked a man who was right to carry a thing and been told no in the time it took him to look at the barrow and then up at the four flights and then at him, and that the man had not asked what the thing was, and that the reason was the reason of a man who has nine loads and a boy on a cart and no form.**
 
 **That clause has now done four jobs and it is going to do a fifth one about four days off this city and it will not be mine.**
 
@@ -66,7 +66,7 @@ He looked at the barrow, and at the tarpaulin, and he did not look under it and 
 
 **And at about the fifth hour he went into a yard at the foot of the stair and asked a man for a true sentence, and he asked him on purpose, and he knew what he was doing when he did it.**
 
-Ormond Bly had a gate and a bell on it about the size of a soup plate and a yard of packing cases and nine years.
+Ormond Bly had a gate and a bell on it about the size of a soup plate and a yard of packing cases and nine years. **And he had told a stranger on the hundred and third, unasked, that he had watched him standing at a door, and that a woman four hundred yards off had watched it too, and neither of them had asked him for anything since, and a man who keeps a gate for nine years is not going to be the one who offers twice.**
 
 “**I am not going to give you a sentence for nothing.**”
 
@@ -76,7 +76,7 @@ Ormond Bly had a gate and a bell on it about the size of a soup plate and a yard
 
 Tomas said the whole of it in about nine seconds. He said it flatly, standing at the rail with his hands empty, and he did not make a speech about it and he did not say what he wanted the sentence for, because he did not know.
 
-And Bly gave him one, and it took about four seconds, and it was true.
+And Bly gave him one, and it took him about as long as it takes a man to look at a gate he has looked at every day for nine years, and it was true.
 
 “**I have a gate and a bell on it and I strike it myself and I have done it about four thousand times in nine years and about nine hundred of them were for a cart, and I have never once struck it for a thing I had not seen with my own eyes. That is the whole of what a bell is and I did not learn it in a book. I learned it in a yard.**”
 
@@ -170,7 +170,7 @@ It was about four feet high and it had a caster's mark on it and a day, and no w
 
 ---
 
-**And at about the ninth hour of the evening he was on a step at the foot of the top terrace with the frame in its cradle four feet off him under a tarpaulin and the four bolts made fast and the sack rolled and against the barrow again, and Tamsin Rook was ten feet off his left shoulder with a bell in her bag that she had rung once since Kells, in a market of about nine hundred people, on her own account, for a reason that had not been him.**
+**And at about the ninth hour of the evening he was still on that step at the foot of the top stair with the tarpaulin over the cradle four feet off him, the four bolts made fast where they were made fast at the fourth hour, and the sack rolled and against the barrow again, and Tamsin Rook was ten feet off his left shoulder with a bell in her bag that she had rung once since Kells, in a market of about nine hundred people, on her own account, for a reason that had not been him. She had been four hundred yards off on the middle terrace on the hundred and third, watching a man not go through a door, and she had come up off it on the fourth of this month and not said why, and he had not asked, and it was the fourth day of not asking.**
 
 **He did not put a question on the slate. He wrote that down once, and then he wrote under it that he was not going to write it down again, because she had said in her own book on the hundred and second that the third time she wrote it she would be counting, and a woman who counts is a woman waiting to be owed, and he is not owed and neither is she.**
 
@@ -212,9 +212,9 @@ He wrote the last entry of the hundred and sixth at about the ninth hour of the 
 >
 > *And a man sweeping a yard told me that he knows nine hundred rooms by the light going out of one window at the sixth hour, and said it to the boards, and asked me for it to go in a place where somebody has written it down. **He is not a hero and he is not owed anything and he is not going to know by tomorrow that I wrote it, and the place is a book in a coat that nobody has read in a hundred and six days, and that is the correct arrangement and I have now got four of them in a city of nine thousand people in about six days and I have not asked one of them for anything and one of them has asked me for a piece of paper and I have given him my own book and not a copy.***
 >
-> *Third column, ruled apart, and the thing I cannot get out of my head: **if those three sentences had been about the same thing, in three places, on the same day, that would have been a warning, and about nine hundred people would have heard one thing three times instead of one man telling them what to think about.** That is the whole of what a bell is for and I have had the rule since the eleventh of this month and I have not used it since the fortieth and I counted nothing into iron for seventy-three days. **And I have got one man. A man can be one of the three answers and cannot be two of them, and the second one he is, the first one stops being an answer.** And there is no form in this kingdom on which a man may take the same words to three men and call the result a count, and if there were, all three sentences would be mine and none of them would be anybody's answer, and that is the thing I have refused in four counties and a city and I am not going to do it in a yard. **If there were three of me.***
+> *Third column, ruled apart, and the thing I cannot get out of my head: **Three sentences about one matter, in three yards, on one day, would have been a warning, and this city would have had it whether anybody rang anything or not, and I would have been the man who put it there.** That is the whole of what a bell is for and I have had the rule since the eleventh of this month and I have not used it since the fortieth and I counted nothing into iron for seventy-three days. **And I have got one man. A man can be one of the three answers and cannot be two of them, and the second one he is, the first one stops being an answer.** And there is no form in this kingdom on which a man may take the same words to three men and call the result a count, and if there were, all three sentences would be mine and none of them would be anybody's answer, and that is the thing I have refused in four counties and a city and I am not going to do it in a yard. **If there were three of me.***
 >
-> *And a carter with three horses and a boy on the second cart said no to me in about nine seconds at the bottom of this stair at the fifth hour and did not ask what the thing was and was right, and the reason he gave is the reason of a man who mends his own wire, and a mend that is in nobody's book is a fault nobody can see and a fault nobody can see is a fault he is asked about some morning by somebody with a reason. **I asked a man who was right to carry a thing and he told me no and I did not thank him and I am not going to be told it was worth it.** That clause of my own receipt has now done four jobs and it will do a fifth one inside a month and it will not be mine.*
+> *And a carter with three horses and a boy on the second cart said no to me at the bottom of this stair, and the length of it was however long it took a man with nine loads a day to look at a barrow and then up at four flights and then back at the man asking, at the fifth hour, and he did not ask what the thing was and was right, and the reason he gave is the reason of a man who mends his own wire, and a mend that is in nobody's book is a fault nobody can see and a fault nobody can see is a fault he is asked about some morning by somebody with a reason. **I asked a man who was right to carry a thing and he told me no and I did not thank him and I am not going to be told it was worth it.** That clause of my own receipt has now done four jobs and it will do a fifth one inside a month and it will not be mine.*
 >
 > *All five clauses stand. **Nothing rung, by me, in this city, in eleven days. **Four bolts, the frame out of doors under a tarpaulin at the foot of this stair, not in a building since the thirty-third, and the cradle is a building-sized thing for a bell and there is no clause that will let me put it in a room. I had the plain carrier out of the sack and my hand on its crown at about the eighth hour and I put it back, and I do not know where either of my two public ringings went and I am not going to find out. My own bell is in a sealed yard in Kells and I am not going to it. **Thirteen documents in a coat, and a record of a hearing that is the public's and not mine and that I stood at a rail and read in about eleven minutes and took nothing from, and those two figures are correct and they are two different objects, and a letter from Kells is not a fourteenth because it is a letter to a man.***
 >

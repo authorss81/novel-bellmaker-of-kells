@@ -40,7 +40,7 @@ Tarrant did not have to look it up.
 
 ---
 
-**And then Tomas Vale stood at that counter and understood the whole of what he had come up here for, and it came into him in about four seconds, and it is the finding of the hundred and first day and it is the reason a hundred and two days of a barrow and a coat and a hearing have not moved it one inch.**
+**And then Tomas Vale stood at that counter and understood the whole of what he had come up here for, and it came into him standing up, all at once, the way a thing does when you have been carrying the wrong shape of it for a hundred and one days, and it is the finding of the hundred and first day and it is the reason a hundred and two days of a barrow and a coat and a hearing have not moved it one inch.**
 
 **The notice on the top terrace says he is the keeper of a paper or instrument of a kind used to repeat an answer, being of the kinds entered in the store list.**
 
@@ -66,7 +66,7 @@ He stood at that counter at about the sixth hour with ninety words in his head a
 
 ---
 
-**And the three nines, and he wrote them out in a row in his own book at about the seventh hour, on the flat, with the tarpaulin over the frame four feet off him, because this is the sentence the next writer of this book is going to need most:**
+**And the three nines, and he wrote them out in a row in his own book at about the seventh hour, on the flat, with the tarpaulin over the frame four feet off him, because this is the sentence he will want most in a month and there is nobody on this flat to say it to:**
 
 > *There are three nines in this city and they are not the same nine and there is nothing in the kingdom that says they are the same nine and nothing that says they are not.*
 >
@@ -80,7 +80,7 @@ He stood at that counter at about the sixth hour with ninety words in his head a
 
 Not a sheet, not a number written on a leaf, not a copy, not a line. **The list is the store's, and it is looked at, and it is not taken, and there is no version of the hundred and first day in which a man walks out of that room with any part of it, and he did not ask for one, and he was not offered one, and the reason he was not offered one is that nobody in that room thought he wanted anything.**
 
-**And a list of fittings is not a document he carries as evidence, and the number of non-bell documents in a coat is thirteen this evening and it was thirteen when he came into this city five days ago, and both of those figures are correct and neither of them is the other one, and a man who adds a store list to a coat of papers is doing the thing this whole book has been about, which is counting a thing he saw as a thing he has.**
+**And a list of fittings is not a document he carries as evidence, and the number of non-bell documents in a coat is thirteen this evening and it was thirteen when he came into this city five days ago, and both of those figures are correct and neither of them is the other one, and a man who adds a store list to a coat of papers is doing the thing this whole business has been about, which is counting a thing he saw as a thing he has.**
 
 ---
 
@@ -90,9 +90,9 @@ He wrote the last entry of the hundred and first day and he filled the first, se
 
 > *The hundred and first. **Ninety words and about nine hundred rows and a fifth column with nothing in it, and that is the whole of the answer I have carried fifty-nine days.***
 >
-> *I went up four flights of stairs to find out what a thing is for and the answer is that there are ninety words for the things and no words at all for what any of them is for, and the reason is a rule, and the rule is that a man will not write down in a book he keeps for a district a word he cannot read back to somebody who stands in front of him and asks. **A district of about nine hundred rooms, a city of about nine hundred bells and a book of about nine hundred entries are three different nines and there is nothing anywhere in this kingdom that puts them in the same column, and I have been writing about nine hundred for three days as though it were one number, and it is not, and the only way I can tell the three apart is by which sheet they are on.***
+> *I went up four flights of stairs to find out what a thing is for and the answer is that there are ninety words for the things and no words at all for what any of them is for, and the reason is a rule, and the rule is that a man will not write down in a book he keeps for a district a word he cannot read back to somebody who stands in front of him and asks. **A district of about nine hundred rooms, a city of about nine hundred bells and a book of about nine hundred entries are three different nines, and there is nothing anywhere in this kingdom that puts them in the same column, and the only thing that tells them apart is the sheet each one is written on, and a number you can only tell by the sheet is a filing reference and not a quantity.***
 >
-> *Second column, and the thing I did not do. **I did not ask what the thing is for.** I stood at that counter at about the sixth hour with the question in my mouth and I did not ask it, and I wrote down that I wanted to, and I wrote down the reason, and the reason is not noble and it is not a rule either. A man asked that has three answers and all three of them cost him something: *I do not know* is a thing he will have said in a room with a district's book open in front of him; *that is for the district* is a form of words with nothing in it that I have been reading off about nine hundred men in four counties; and there is no third answer, because there is no true third answer and a man does not say that twice. **So I would have been handed a sentence to carry, and that is the thing I have been refusing to be handed for fifty-nine days, and this morning I found out that refusing it is a thing I can do on purpose and I did it on purpose and nobody knows I did it except me and a woman standing ten feet off my shoulder who was not asked.**
+> *Second column, and the thing I did not do. **I did not ask what the thing is for.** I stood at that counter at about the sixth hour with the question in my mouth and I did not ask it, and I wrote down that I wanted to, and I wrote down the reason, and the reason is not noble and it is not a rule either. **Every answer a man can give me at that counter is one I would have to carry, and two of the three are not even true, and the third one does not exist.** There is no version of that question that comes back with nothing in it. **So I would have been handed a sentence to carry, and that is the thing I have been refusing to be handed for fifty-nine days, and this morning I found out that refusing it is a thing I can do on purpose and I did it on purpose and nobody knows I did it except me and a woman standing ten feet off my shoulder who was not asked.**
 >
 > *And the answer I got instead. **Nobody in this kingdom knows what those ninety things are for, and it is not a conspiracy and not a secret and not a wall, and the man who keeps the book has been keeping that column empty for nine years because he is a careful man and the district has never once asked him to fill it, and he is right, and the district is not wicked, and I have now been in front of two empty columns in four counties and a city and they are made of the same virtue.** That is the thing I have been looking for since the forty-second and it is not a person and it is not a room, and I have to carry it up four hundred miles or I do not carry it at all.*
 >

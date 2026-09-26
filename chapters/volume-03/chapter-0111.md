@@ -24,7 +24,7 @@ A woman at a fish pitch said there was nothing up there but offices and went bac
 
 A boy of about eleven carrying a hoop asked who Tomas was, and then ran.
 
-A carter with three horses looked up the hill, at about nine hundred feet of it, and said, “**No. Not for nothing.**”
+A carter with three horses looked up the hill, at about seven hundred feet of it, and said, “**No. Not for nothing.**”
 
 And a man in a doorway with a tally stick in his hand said, at about eleven seconds, which was the whole of his answer and the most useful thing anybody said to him all morning:
 
@@ -42,7 +42,7 @@ He worked a wharf.
 
 The second clause is the reason. A man with a barrow cannot pay for anything anywhere in this kingdom, because the frame has to stay in the cradle for the carriage, and a cradle is not a thing you can stand at a counter with. So a man with a barrow is a man who can carry, and a man who can carry is free, and free labour on a wharf in a city of nine thousand people is not remarkable and gets no thanks, which is the correct arrangement.
 
-He carried sacks up a plank from a lighter to a floor. Nine trips, and then eleven. His hands knew the weight before he did. He had a cut open on the side of his right hand by about the seventh trip and he did not look at it and it did not slow him down, and there is no better argument in this book for a man being a maker than nine trips up a plank.
+He carried sacks up a plank from a lighter to a floor. Nine trips, and then eleven. His hands knew the weight before he did. He had a cut open on the side of his right hand by about the seventh trip and he did not look at it and it did not slow him down, and there is no better argument in this trade for a man being a maker than nine trips up a plank.
 
 And on the tenth trip Holt said, without stopping, “**You have not asked me about that frame. Everybody asks me about that frame.**”
 

@@ -36,7 +36,7 @@ He went to the edge of the board and read the last three lines out loud, in the 
 
 ---
 
-**And here is the whole of it, and it took him about an hour and a half on a wall opposite, and it is the finding of the ninety-fourth and the third time in three volumes that a clause he asked for has come back at him from a direction he did not think of.**
+**And here is the whole of it, and it took him about an hour and a half on a wall opposite, and it is the finding of the ninety-fourth and the third time in ninety-four days that a clause he asked for has come back at him from a direction he did not think of.**
 
 **Clause five of a receipt in a watch house in another county, signed at about the fifth hour of the morning on the thirty-third day of the month, at his own asking, because he was right, says that the holder has no standing to speak for a household in Kells or in any ward.**
 

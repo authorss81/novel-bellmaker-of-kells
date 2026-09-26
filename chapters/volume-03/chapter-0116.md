@@ -20,7 +20,7 @@ And he said, in the ordinary way, in front of all nine of them:
 
 “**No.**”
 
-And the woman said, “**Why not, when there is a hearing tomorrow and no paper in your coat?**”
+And the woman said, “**Why not, when you have gone up that stair three times in four days with a barrow, and there is your name at the third line of the sheet they nailed at the top of it, and there is a hearing on it tomorrow?**”
 
 And he said, “**Because I have got no standing and she has got nothing to stand on, and I would be asking her to spend the only thing she has got in a room where I would be the only person who heard it, and I have not got a right to do that and I have not got a reason either, and I am not going to make one up at ten feet.**”
 
@@ -30,7 +30,7 @@ And he said, “**Because I have got no standing and she has got nothing to stan
 
 “**Because she said it in front of nine people. And a question said in front of nine people is a thing I will be asked again in four counties inside a year, by somebody who heard it offered and not answered. **I have had one of those already. I priced it in a smith's shop on the fifty-first and it took eleven years of work and it is not a thing I am pricing again in a market because somebody thinks it would be useful.**
 
-“**And he did not ask me, and he said the reason out loud, in front of nine people, in about nine seconds, and he did not make it about me. He made it about him not having a right. **Nobody has said a thing like that in front of nine people for me in eleven years, and I am not going to be grateful about it in a market, and I am not going to let it be a thing that was for anybody else.**”
+“**And he did not ask me, and he said the reason out loud, in front of nine people, and he did not stop in the middle of it to find out whether it was working, and he did not make it about me. He made it about him not having a right. **Nobody has said a thing like that in front of nine people for me in eleven years, and I am not going to be grateful about it in a market, and I am not going to let it be a thing that was for anybody else.**”
 
 **Nobody asked me about my ear. Not one of the nine, and not one of about nine hundred people in this market between the fourth hour and the ninth. He did not ask. He has not asked in a hundred and two days and I am not going to ask him why he has not, and that is the whole of what I have to say about it and I am going to leave it there.**
 
@@ -58,7 +58,7 @@ There is a court on this terrace with a board on a public wall in it, and I went
 
 **One is a market keeper with about nine rows and a book of his own and no office, and his name is Ord Marren, and he has held the same nine rows in this market for nine years, and the rent put on those nine rows is the rent put on the wholesale stalls at the end of the row, and he has said so out loud at his pitch perhaps a hundred times in nine years and not one person in this city has said it back to him, including his landlord, who does not need to.**
 
-**And the other is a man called Wil Brand who lets barrows out of a yard near the water, and has held a licence eleven years, and the licence says what a yard may not do, and his yard has been doing the thing the licence says every day for eleven years, and the thing is not a trick, it is his whole trade, and he has never once been able to say so in a room with a clerk in it, because the moment he says it in a room with a clerk in it the eleven years is a conversation instead of a trade.**
+**And the other is a man called Wil Brand who lets barrows out of a yard near the water, and has held a licence eleven years, and the licence says what a yard may not do, and his yard has been doing the thing the licence says every day for eleven years, and the thing is not a trick, it is his whole trade, and there is no room in this kingdom with a clerk in it where he is allowed to say that, and he has wanted to say it in one for eleven years.**
 
 ---
 
@@ -67,6 +67,12 @@ There is a court on this terrace with a board on a public wall in it, and I went
 > *To Marren, at his pitch, at about the seventh hour, at ten feet, in the ordinary voice, his own words, his own order, four inches: **the rent on your nine rows is the wholesale rent and you have said so a hundred times in nine years and it has never once been said back to you.***
 >
 > *To Brand, at the yard rail, at ten feet, in the ordinary voice, four inches: **your licence says what a yard may not do and you have been doing that thing every day for eleven years and it is not a trick, it is your trade, and you have never been able to say it in a room with a clerk in it because then the eleven years is a conversation instead of a trade.**
+
+**And the yard is at the end of the third street and the rail is his and he was on the far side of it with a barrow out and not working, and I said it at ten feet, in the ordinary voice, four inches, and he did not look up.**
+
+He looked up about a second afterwards. He did not say anything. He turned his left hand over on the rail, took a stub of chalk out of his apron, wrote **eleven years** on the back of his own hand, put the chalk away, and went back to the barrow.
+
+**And that is not a document and it is in his own hand and it is in his own name and it will be off his own skin in about a week, and I have never in eleven years watched a man do the cheap version first and then pay fourpence for the expensive one three days later, and I did not tell him that either, and I stood about nine feet further off.**
 
 **And that is the whole of what I did, and it took about nine seconds each, and I have done that nine thousand times on other people's sentences in eleven years and it has cost me every time, and this is the first time it has cost me nothing, and the reason is that I said their sentences and not mine, and the thing I have been selling for eleven years is not the sentence. It is me.**
 
@@ -92,7 +98,7 @@ I wrote the last entry of the hundred and second at about the ninth hour of the 
 >
 > *Second column, and the hard half. **I have spent eleven years being the person who says a person's own words back to them, and it has cost me every time, and I have thought that was the price of the instrument. It is not. The price is me.** A court clerk writes a sentence for fourpence and it sits on a wall for forty years. I do it for nothing and it is heard by whoever is standing there. **I have been doing the expensive one and calling it the strong one, and the difference between them is not the truth, it is who reads it afterwards, and I have had that the wrong way round for eleven years and a man at a pitch corrected it in nine seconds and he did not know he had.**
 >
-> *And the finding. **Two people who have never spoken to me went and put a true sentence about their own business in a document in their own names today, on their own days, in their own yard and at their own pitch, and I asked neither of them to do anything, and I was nine feet off, and I was not in the room for either of them.** Ord Marren, nine rows in this market for nine years, the rent on his nine rows is the wholesale rent, and he has said it out loud about a hundred times and nobody has ever said it back to him. Wil Brand, a yard near the water, a licence eleven years, and the thing his licence forbids is his whole trade, and he has never been able to say that in a room with a clerk in it because then the eleven years is a conversation instead of a trade.
+> *And the finding. **Two people who have never spoken to me went and put a true sentence about their own business in a document in their own names today, on their own days, in their own yard and at their own pitch, and I asked neither of them to do anything, and I was nine feet off, and I was not in the room for either of them.** Ord Marren, nine rows in this market for nine years, the rent on his nine rows is the wholesale rent, and he has said it out loud about a hundred times and nobody has ever said it back to him. Wil Brand, a yard near the water, a licence eleven years, and the thing his licence forbids is his whole trade, and he cannot say so in a room with a clerk in it without the eleven years turning into a conversation, and he has not been able to say it anywhere that counts for eleven years.
 >
 > *And what I actually did, and it is four inches and ten feet and nine seconds each: **I said their own sentences back to them. Nothing else. I did not tell them there was a court and I did not tell them the fourpence and I did not say it would help.** And it moved nothing. A man said his rent on a board and a man said his trade on a board and neither of those will move a line in this city inside a year, and I know that, and it is the first time in eleven years I have done my own instrument and watched it do nothing, **and I have not been disappointed, and I want that written down in case I am disappointed in about four days and try to improve it.**
 >
@@ -100,6 +106,6 @@ I wrote the last entry of the hundred and second at about the ninth hour of the 
 >
 > *And it is not a system and it is not a network and it is not scalable and it is not going to be a thing I hand to anybody. **Two. There are two, and I have their names, and I am not going to write their names in this book, and I did not say their names out loud today at any hour, and about nine people heard four inches at ten feet today and not one of them has either name in it.**
 >
-> *And a thing I am not going to write about because it is not mine to write about: **he did not ask, in front of nine people, and he said out loud in front of nine people that he had no right to, and he made it about him and not about me, and I have been on this road eleven years and nobody has ever done that in front of anybody.** The count of the slate is eight. It was eight yesterday. It is eight tonight. **A question offered in a market and refused in a market is not a question that was asked, and I have written that down twice now and I am going to stop writing it down, because the third time I write it I will be counting, and a woman who counts is a woman who is waiting to be owed.**
->
 > *I did not ring anything. My bell is in my bag. Nobody has asked me about my ear in a hundred and two days and I have written that down once tonight and I am not going to do it again.*
+>
+> *And a thing I am not going to write about because it is not mine to write about: **he did not ask, in front of nine people, and he said out loud in front of nine people that he had no right to, and he made it about him and not about me, and I have been on this road eleven years and nobody has ever done that in front of anybody.** The count of the slate is eight. It was eight yesterday. It is eight tonight. **A question offered in a market and refused in a market is not a question that was asked, and I have written that down twice now and I am going to stop writing it down, because the third time I write it I will be counting, and a woman who counts is a woman who is waiting to be owed.**

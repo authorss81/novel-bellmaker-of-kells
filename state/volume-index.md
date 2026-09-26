@@ -39,7 +39,7 @@ Read these five. Everything else in `state/` is history and should be opened onl
 
 **The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five; Volume 03 has five.
 
-**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100. Volume 03, *The Quiet Office*, is open and Batch 0002 is complete at Chapter 120.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. **Chapter 100 falls on Day 86, Chapter 110 on Day 96, and Chapter 120 on Day 106. The volume closes on Chapter 150 on Day 136, and there are three more batches after Batch 0002.**
+**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100. Volume 03, *The Quiet Office*, is open and Batch 0002 is complete at Chapter 120, which is *If There Were Three Of Me* and has been through a review pass and repair recorded at `state/continuity.md` §10c.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. **Chapter 100 falls on Day 86, Chapter 110 on Day 96, and Chapter 120 on Day 106. The volume closes on Chapter 150 on Day 136, and there are three more batches after Batch 0002.**
 
 ## One volume arc per line
 

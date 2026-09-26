@@ -14,7 +14,7 @@ He looked up once, read the slip out of Tomas's coat before Tomas had it out, an
 
 “**I did not expect to be here either.**”
 
-“**Then you have come at a good hour and not a bad one, and I will tell you what a store is, because you have got the look of a man who has been told about one by somebody who did not work in one, and it takes about nine seconds and then you can decide what to do with your morning.**”
+“**Then you have come at a good hour and not a bad one, and I will tell you what a store is, because you have got the look of a man who has been told about one by somebody who did not work in one, and it takes as long as it takes to read one line and stop, and then you can decide what to do with your morning.**”
 
 And he said it, in the ordinary voice, and he did not put anything on it, and Tomas Vale wrote the whole of it out flat afterwards because it is the second time in a hundred days that a man has described this room to a stranger without being asked and both times the man was right.
 
@@ -40,7 +40,7 @@ Tarrant looked up for the second time that morning.
 
 “**Says it how.**”
 
-“**He says there is a column on the form for what a thing is for and nobody has ever filled it in in his hearing. He has fitted the same hand of work to three bells in his county in nine years and he would not tell me what it does, and he told me about that column in about four seconds and would not give me a theory when I did not offer him one.**”
+“**He says there is a column on the form for what a thing is for and nobody has ever filled it in in his hearing. He has fitted the same hand of work to three bells in his county in nine years and he would not tell me what it does, and he told me about that column by finding it with a finger and putting the finger on it, unhurried, and would not give me a theory when I did not offer him one.**”
 
 “**Then he and I have said the same thing in two counties and neither of us has ever heard of the other, and that is the whole of what a column is. A column is a thing two men say the same thing about and never find out.**”
 
@@ -64,7 +64,7 @@ It was a printed sheet, folded, the store's own copy of the form a district inst
 
 ---
 
-**And Tomas Vale put both hands flat on the counter and said no, and he gave the reason out loud in about nine seconds, and the man behind the counter did not say a word to it.**
+**And Tomas Vale put both hands flat on the counter and said no, and he gave the reason out loud, unasked, without stopping the entry he was halfway through, and the man behind the counter did not say a word to it.**
 
 “**No.**
 
@@ -86,7 +86,7 @@ Tarrant took the sheet, folded it, and put it in the drawer under the counter wi
 
 ---
 
-**And then Tomas Vale asked for the one thing he wanted, which was the shelf, and was refused, correctly, in four seconds, by a man who did not enjoy refusing him and did not pretend to.**
+**And then Tomas Vale asked for the one thing he wanted, which was the shelf, and was refused in one sentence, correctly, by a man who did not enjoy refusing him and did not pretend to.**
 
 “**Show me the shelf.**”
 
@@ -150,13 +150,13 @@ He wrote the last entry of the hundredth at about the ninth hour of the evening 
 >
 > *Second column, and the part I am not going to improve in the morning: **a store is a room, a counter, a book, a man, a shelf and an instruction, and I have got all six of them in one room and I have seen none of the six actually do anything, because they do not do anything in front of people. They have done about nine hundred times this year and they will do about nine hundred times next year and there is a man in this city who writes down every one of them and goes home at the sixth hour and does not know and is not suspicious and is right.***
 >
-> *And the column. He was told when he came into that room that the column was for a reason and nobody has told him what the reason is in nine years, and he has not filled it in, and he gave me the reason in four seconds and it is the best reason anybody has given me in four counties: **a man will not write down a word in a book he keeps for somebody else that he cannot answer for when somebody stands in front of him and asks.** And there is no column for that, and there is no form for that, and it is why the column is empty, and it is not a door and it is not a wall.*
+> *And the column. He was told when he came into that room that the column was for a reason and nobody has told him what the reason is in nine years, and he has not filled it in, and he gave me the reason at his own pace and did not shorten it, and it is the best reason anybody has given me in four counties: **a man will not write down a word in a book he keeps for somebody else that he cannot answer for when somebody stands in front of him and asks.** And there is no column for that, and there is no form for that, and it is why the column is empty, and it is not a door and it is not a wall.*
 >
-> *And there are two empty columns now in front of me and they are the same thing. A man in a village who wanted to rule one about how far ahead a bell goes and did not, in nine years, and a man in this city who will not fill one for what a thing is for, in nine years. **A column is a thing two men say the same thing about and never find out, and it is the whole of what an office is, and I have now seen both ends of it and there is nothing at the middle.** I wanted a plan with a room round it. There is a column and two men who will not write in it.*
+> *And there are two empty columns now in front of me and they are the same thing. A man in a village who wanted to rule one about how far ahead a bell goes and did not, in nine years, and a man in this city who will not fill one for what a thing is for, in nine years. **Two men, two counties, one sentence, and neither of them has ever heard of the other, and that is not a coincidence and it is not a conspiracy either — it is a column, and I have now seen both of its ends and there is nothing whatever at the middle.** I wanted a plan with a room round it. There is a column and two men who will not write in it.*
 >
 > *And he offered me a sheet. **A printed sheet, folded, out of a drawer under the counter, about nine hundred of them a year, and he said there is nothing on it about me and nobody would ever know.** And I said no in about four seconds and gave him the reason and he put it in the drawer without a word, and he told me I am the third person in nine years who has refused one, and one of the other two was right, and he has not thought about either of them since. **A paper off a table in a room in a town I have left, and a paper off a board in a market with a drawing-pin in it, are the same act with a different name, and I have got one life, and I am not going to be the man who starts it up in a coat.***
 >
-> *And I asked to see the shelf and he said no in four seconds and he was right, and he said the shelf is not shut because of me, it is shut because I have not got an instruction, and that the clerk four flights below him will not walk a stranger up and he has read about that clerk, and **if a clerk is right then the shelf is shut.** And then he said the sentence I am going to carry: **whatever is on that wall came off it on somebody else's instruction and went into somebody else's hands, and the district's business in this room is to know what went out and when.** Not what it is. Not what it is for. **What went out and when. And that is a clerk doing his job, and I asked him for the one thing he has not got and he told me so instead of pretending, and I am not going to be thanked and he is not going to be thanked and neither of us is going to be thanked by anybody.***
+> *And I asked to see the shelf and he said no in one sentence and he was right, and he said the shelf is not shut because of me, it is shut because I have not got an instruction, and that the clerk four flights below him will not walk a stranger up and he has read about that clerk, and **if a clerk is right then the shelf is shut.** And then he said the sentence I am going to carry, and I am writing it out in my own arrangement and not his: **that wall is shut and the list on the counter is open, and both of those are the same rule seen from two ends — a thing leaves that wall on somebody else's instruction and goes into somebody else's hands, and what this room is for is the going out and the day, and not one other thing, and he is not going to be asked what any of it is for because he does not know either.** Not what it is. Not what it is for. **What went out and when. And that is a clerk doing his job, and I asked him for the one thing he has not got and he told me so instead of pretending, and I am not going to be thanked and he is not going to be thanked and neither of us is going to be thanked by anybody.***
 >
 > *Third column, ruled apart, and I am merging nothing: **about nine hundred entries a year, near enough, and every one of them with an instruction number, a district and a day, and not one of them with a reason. And about nine hundred of them went out of that room into about nine hundred pairs of hands, and not one of the nine hundred people carrying one has ever stood where I stood this morning, and I have no way of finding out a single one of them and no form on which to put the question.** I cannot use any of it. I have a number I can recite and a column I cannot fill.*
 >
