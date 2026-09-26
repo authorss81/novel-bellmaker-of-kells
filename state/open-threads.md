@@ -1,8 +1,10 @@
-# Open Threads — End of Volume 02, Batch 0001, after Chapter 60
+# Open Threads — End of Volume 02, Batch 0002, after Chapter 70
 
-These are active promises **after Volume 02 Batch 0001, Chapters 51–60, which open on Day 34 and close on Day 44 with a boat.** `outline/volume-02.md` and `outline/batches/volume-02-batch-0001.md` are the governing documents and the next phase is the Batch 0002 writing prompt at `workspace/volume-02/batch-0002/PROMPT.md`. A clue has not resolved a promise.
+**How to read the batch numbers in this repository, before anything else.** `outline/` and `workspace/` number batches **per volume**: Volume 02 Batch 0001, Batch 0002, Batch 0003. `state/` numbers them **globally in writing order**: `batch-0006-summary.md` is Volume 02 Batch 0001, and `batch-0007-summary.md` is **this** batch, Volume 02 Batch 0002. **Volume 02 Batch 0002 is complete; the live next-phase prompt is `workspace/volume-02/batch-0003/PROMPT.md`, covering Chapters 71–80. Nothing in this file may be read as pointing at Batch 0002's own prompt, which is spent.** The Batch 0001 addendum is at the foot of this file and **stands**; the sections above it are Batch 0001's and are the older of the two readings.
 
-**All six reserved series mysteries are open. Nothing in this batch closed one, approached one, or re-derived the Volume 01 midpoint reversal.**
+**The full active list is the Batch 0002 addendum below. The sections above it are Volume 02 Batch 0001's, kept whole because a thread does not expire when a batch ends, and are superseded by the addendum wherever the two differ.** A clue has not resolved a promise.
+
+**All six reserved series mysteries are open. Nothing in Batch 0002 closed one, approached one, or re-derived the Volume 01 midpoint reversal.**
 
 ## The two questions Tomas still carries
 
@@ -27,7 +29,7 @@ Stated in his own hand in his day-book at the end of Volume 01 and **unchanged a
 
 ## Threads this batch opened, and what they are
 
-- **The household of six, and five different dates in one hand.** Six certified returns in one drawer, one name, one hand, five dates, and the brother-in-law has not been in the house for six years. **Tomas records that he does not know how the dates got there and does not guess.** This is the batch's one unexplained physical fact and it is a live thread. It is the first thing on the page that a clerk's record cannot account for, and Batch 0002 may or may not account for it; if it is not accounted for, it must not be explained away.
+- **The household of six, and five different dates in one hand.** Six certified returns in one drawer, one name, one hand, five dates, and the brother-in-law has not been in the house for six years. **Tomas records that he does not know how the dates got there and does not guess.** This is the batch's one unexplained physical fact and it is a live thread. It is the first thing on the page that a clerk's record cannot account for, and **the batch that follows — Volume 02 Batch 0003 — may or may not account for it; if it is not accounted for, it must not be explained away. As of the end of Volume 02 Batch 0002 it is unaccounted for, and the fifth sheet, the Form nine carbon, and the auditor's written answer do not touch it.**
 - **The hand.** Forward slope, hesitating descender, same pause before g, and the downstroke of the d and of the g stopping and starting in the same place. It is on the current year's form at the household of six, on a smith's bill for about nine and six, and on four returns in one file in a building in Fourmile. **It is not a forgery, not a conspiracy and not a mechanism. It is a man called Hesk Rann who fills in forms for people who cannot write, has been doing it for about nine years, does not charge, and has never once been asked.** He is not owed anything by law and is not owed anything by the batch, and he is a person, not a hand.
 - **The clerk with a list and a copyist.** On the page twice, about four years apart, told by two people who have never heard of each other and did not join them up. He read names at four doors, asked nobody anything, and the list filled in anyway. **Nobody has worked out whether it was the same man.**
 - **The district's sheet of four wards and four streets**, on the back of a Crown cart four years ago, copied into a smith's book and taken back. **A list of streets is a list of houses and it came into a shop lawfully and the shop did not know.**

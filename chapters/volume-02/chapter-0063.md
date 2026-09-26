@@ -140,8 +140,6 @@ Then he wrote in his own book, and this is what he wrote, and he read it back to
 
 ---
 
-And then he went up the street to find somewhere to sleep, and they took two rooms over a shop off the market square on the terms that the barrow stood in the yard behind the shop and the bolts were made fast at the place it was set down and nobody came up the stairs about it, and the man who let them the rooms counted the bolts himself before he agreed to the yard, and the frame stayed in its cradle all night, and nothing was rung, and the receipt was whole.
-
 And about a hundred yards from the district office there was a lane off a street, and at the top of it there was a house with four people in it and a door with their name on it, and two streets away there were two rooms over a yard with four people in them, and a man in a yard told him about it in the open, at more length than anybody else had, and none of which length was an answer, and he wrote down the fact that the house existed and the fact that the two rooms existed and he wrote down neither of them as true and he did not go up the lane that night.
 “Deputy District Officer. **What is the schedule for this district?** Is it a record of what the households of this district said, or is it a record of what somebody in this building said about what the households of this district said?”
 
@@ -153,12 +151,4 @@ Ilma Carrow looked at him for a moment and then she went and got a sheet and wro
 
 He read it at the counter and then he read it again on the steps outside, in the street, with the frame in the cradle behind him in the yard and the bolts made fast at the place it was set down.
 
-“Deputy District Officer. **What is the schedule for this district?** Is it a record of what the households of this district said, or is it a record of what somebody in this building said about what the households of this district said?”
-
-Ilma Carrow looked at him for a moment and then she went and got a sheet and wrote for about eleven minutes and gave it to him, and it is in his book and it is the fifth sheet he has, and it is the only one he has got that was not written by a man who was being careful:
-
-*It is a record of what this office holds to be the answer of a household. It is not a record of what any household said, because no household in this district has ever said anything to this office in a room with a person in it. It is made out of returns received at this counter, entered by the hand of whoever brought them, and where a household has sent a return it is a record of what the household sent and it is a good record. Where a household has not sent a return and the year closes, the line is carried. I do not know what it is carried from. I have asked twice and been told it is carried from the standing entry and I have never found a standing entry and I have been four years in this post and I have never asked the district.*
-
-— I. C., Deputy District Officer, this office, this day, about the sixth hour.*
-
-Then he went up the street to find somewhere to sleep, and they took two rooms over a shop off the market square on the terms that the barrow stood in the yard behind the shop and the bolts were made fast at the place it was set down and nobody came up the stairs about it, and the man who let them the rooms counted the bolts himself before he agreed to the yard, and the frame stayed in its cradle all night, and nothing was rung, and the receipt was whole.
+And then he went up the street to find somewhere to sleep, and they took two rooms over a shop off the market square on the terms that the barrow stood in the yard behind the shop and the bolts were made fast at the place it was set down and nobody came up the stairs about it, and the man who let them the rooms counted the bolts himself before he agreed to the yard, and the frame stayed in its cradle all night, and nothing was rung, and the receipt was whole.

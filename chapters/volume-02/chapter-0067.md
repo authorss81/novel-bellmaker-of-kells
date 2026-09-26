@@ -132,9 +132,9 @@ She waited with her hand in the purse.
 
 “You put that down and there is not one person in this room who can be told why, and if I say no in front of six of them then it is a thing that happened to you and not a thing you did, and I will not be the man who makes you small in a shop, and I will not be able to walk into a market square after it.”
 
-“All right,” said Tamsin Rook, and she counted out one pound fourteen shillings on the anvil bench in a column, because she is a woman who has counted a carrier's day-book for eleven years and she counted it without touching it twice, and then she put the purse back in her bag, and the purse had two shillings and something left in it and she did not say so and it was not a large number of coins.
+“All right,” said Tamsin Rook, and she counted out one pound fourteen shillings on the anvil bench in a column and did not touch the coins twice, and that was the first thing Tomas Vale had watched her do that he had a use for, and he wrote it down that night and wrote down only that, and then she put the purse back in her bag, and the bag lay flat at the front of it and square at the back, and he did not ask and she did not say and there was no way on that bench to tell.
 
-“That is a pound and fourteen exactly,” said Amos Trewin, “and I have got no change and I am not going to be troubled about that for two shillings in my life.” He did not take the money. He looked at it on the bench for about a second and then he said, to her, and not to Tomas Vale, and it is the only thing he ever said to her in that shop:
+“That is a pound and fourteen exactly,” said Amos Trewin, “and I have got no change and I am not going to be troubled about that for a couple of shillings in my life.” He did not take the money. He looked at it on the bench for about a second and then he said, to her, and not to Tomas Vale, and it is the only thing he ever said to her in that shop:
 
 “Where did you get it.”
 
