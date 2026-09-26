@@ -110,7 +110,7 @@ And then he sat down on the step of the draper's with the day-book on his knee, 
 >
 > *And here is the part I have to put in the fourth column and cannot improve:*
 >
-> ***It cost one sentence. That is the whole price of it. A thing that took four years and about nine hundred lines a year to become a duty was made by a woman at a rope stall, in about eleven words, to a woman in a queue, in the ordinary voice, and no document was in it, and no document is in it now, and there was nobody at any door at any hour, and nobody has been asked anything, and the two women will both be dead in about forty years and the sentence will still be in that house.***
+> ***It cost one sentence. That is the whole price of it. A thing that took four years and about nine hundred lines a year to become a duty was made by a woman at a rope stall, in about twenty-five words, to a woman in a queue, in the ordinary voice, and no document was in it, and no document is in it now, and there was nobody at any door at any hour, and nobody has been asked anything, and the two women will both be dead in about forty years and the sentence will still be in that house.***
 >
 > *And I have been in this town nine days and I have not been able to think of a single question that would have found that, and I have asked a cart, a man with a net, a draper, a clerk at a counter, a man in a chair, a master in a room, a woman at a water bell, a form-writer at a sluice and a woman in a kitchen. **Every one of them was the right person to ask. That is the finding. There was no wrong person. The question was in a queue and I was not standing in one.**
 >

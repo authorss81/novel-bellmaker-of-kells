@@ -18,9 +18,9 @@ She knows how to find a road. That is the entire trade and it is eleven years of
 
 **The second thing she could not do was be at a door.**
 
-That is the other half and it is the whole of the other half, and she has written it down in eleven words and has not improved them: *a courier goes to a door and says her own name and lets the door decide.*
+That is the other half and it is the whole of the other half, and she has written it down in sixteen words and has not improved them: *a courier goes to a door and says her own name and lets the door decide.*
 
-She had said her own name at a door on the sixty-eighth and a woman had said no, and the no had been about a child, and she had been told in a gutter in about eleven words what the no was going to cost, and she had gone away and had not come back to that door because she had said in a gutter that she would not.
+She had said her own name at a door on the sixty-eighth and a woman had said no, and the no had been about a child, and she had been told in a gutter, at some length and with the price named, what the no was going to cost, and she had gone away and had not come back to that door because she had said in a gutter that she would not.
 
 **And what was about to happen at this landing was not a door deciding.** She stood on a stone landing for two hours and a half and got that clear in her own head about four times, and each time it came back in a different shape, and the last shape it came back in was the shape she had spent eleven years not using, which is that a door decides and a person does not, and that the whole of her trade was built on the fact that a person will sometimes decide in a room with a person in it, and that there is no version of that where the person is a cart.
 
@@ -120,6 +120,6 @@ Then she wrote four lines under it and the fourth is the one that is the finding
 
 > *Four years, two answers, and the third one is the small one, and she has done it right. You do not send a thing and leave the line open, that is what an open line is.*
 >
-> *A woman said that on a landing in the open, out loud, in about eleven words, in the ordinary voice, to another woman, and she was not talking to me and she was not talking to a clerk and there is no mark and no form and no hour against it anywhere in this kingdom. **That is the whole of the engine of this book, and it has been said three times in three days, twice in a market and once on this landing, by three women who are owed nothing and are not agents of anything and are usually right about who they are, and it is not in a hall, and there is nothing anywhere that anybody can find it in afterwards, and that is why it works.***
+> *A woman said that on a landing in the open, out loud, in thirty-six words, of which the rule is eleven, in the ordinary voice, to another woman, and she was not talking to me and she was not talking to a clerk and there is no mark and no form and no hour against it anywhere in this kingdom. **That is the whole of the engine of this book, and it has been said three times in about five days, twice in a market and once on this landing, by three women who are owed nothing and are not agents of anything and are usually right about who they are, and it is not in a hall, and there is nothing anywhere that anybody can find it in afterwards, and that is why it works.***
 >
 > *And I did not ring anything. Nobody asked me anything, and nobody held anything over me, and there is no speech, and nobody has said that it was worth it, and I am not going to.*

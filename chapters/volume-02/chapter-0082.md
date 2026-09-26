@@ -124,7 +124,7 @@ Mave Verrow looked at her for a moment.
 
 She did not ask the fourth thing.
 
-She wanted to ask it. She has written that down in the slate afterwards and she has not improved it and it is eleven words: *I wanted to ask where the line is and whose name is on it and I did not ask.*
+She wanted to ask it. She has written that down in the slate afterwards and she has not improved it and it is nineteen words: *I wanted to ask where the line is and whose name is on it and I did not ask.*
 
 **The reason was not the leash and was not the fourth of last month and was not caution.** The reason was a woman at a table in front of her with a fire to want feeding who had already said no, and a no is a person, and a page is a page, and Tamsin Rook has spent eleven years refusing to do to one household what a clerk's hall does to about eleven thousand of them in a year, and there is no version of the question that does not require the woman in the door to go and stand in a room in a building she has been in four times in four years and say a thing out loud to a man with a book, and **there is a price on that and I have told her the price of the other thing and I was not going to do that to her on the same morning.**
 
