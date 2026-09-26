@@ -53,6 +53,7 @@ That is the thing, and Tomas Vale wrote it out flat afterwards and it is the fin
 “**Nobody is looking at it because it is a book of objects, and there are about nine hundred of them a year, and the man who could use this book is a man with an instruction in his hand, and there has not been a man with an instruction in his hand in this room for about four days.**”
 
 He turned a page. He turned another. He ran a finger down a column the way a man does who has read the same nine hundred lines nine hundred times and could find a thing in it with his eyes shut and does not enjoy the party.
+
 “**There. Twenty-two back, and it is the only one of about nine hundred that says what you have just said to me.**”
 
 **And the line is this.**
