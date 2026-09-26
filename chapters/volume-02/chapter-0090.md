@@ -6,7 +6,7 @@ The four columns. The question and the hour against it. The answer, in the speak
 
 He put the chalk down and picked it up and put it down again and went to stand at the window for about ten minutes.
 
-**There is no list.** That is the whole of the first hour and it is not a discovery, it is a thing he worked out on the seventy-third in about an hour and three quarters and has not got round to since. There is no book of names in this kingdom. There is no form for asking for one, and no version of the question that a clerk's counter, a district office, a man in a chair or a woman on a landing is permitted to answer, and a man with no standing is not permitted to ask it anyway. **A name is in about nine thousand kitchens in four counties and it is in about nine thousand heads and there is nowhere at all that it is written down all together, and there never has been, and the whole of the arrangement is about nine minutes a year each.**
+**There is no list.** That is the whole of the first half hour and it is not a discovery, it is a thing he worked out on the seventy-third in about an hour and three quarters and has not got round to since. There is no book of names in this kingdom. There is no form for asking for one, and no version of the question that a clerk's counter, a district office, a man in a chair or a woman on a landing is permitted to answer, and a man with no standing is not permitted to ask it anyway. **A name is in about nine thousand kitchens in four counties and it is in about nine thousand heads and there is nowhere at all that it is written down all together, and there never has been, and the whole of the arrangement is about nine minutes a year each.**
 
 And he had been about to write it out. On a slate. In four columns. With the hours.
 
@@ -142,7 +142,7 @@ He wrote the last entry of the seventy-sixth at about the eleventh hour of the e
 >
 > *I am not going to call it necessary. Nobody is going to come and tell me it was necessary. And I am not going to be a man who has only been a door.*
 >
-> *Third column, ruled apart, the hours flat against them. A woman at a fish pitch said a name and said it was nobody's, in about eleven seconds, to a stranger, and I did not write it down. **A woman in a doorway said a hand against a line is the answer to a question, and I wrote it down, and I have not improved it, and it is a true sentence and it is in a book in a house and not in a hall and no clerk will ever read it and that is the only good thing that has happened to me in six weeks.***
+> *Third column, ruled apart, the hours flat against them. A woman at a fish pitch said a name and said it was the house's and not hers, in about eleven seconds, to a stranger, and I did not write it down. **A woman in a doorway said a hand against a line is the answer to a question, and I wrote it down, and I have not improved it, and it is a true sentence and it is in a book in a house and not in a hall and no clerk will ever read it and that is the only good thing that has happened to me in six weeks.***
 >
 > *Fourth column, one line, and it is the second time in my life, and the first one was about a paper and a building, and this one is about nine people in a market:*
 >

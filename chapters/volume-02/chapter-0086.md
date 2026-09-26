@@ -1,6 +1,6 @@
 # Chapter 0086 — The Child Who Is Sent Because A Name Is Owed
 
-She had a day and a half of nothing, which is a thing she had not had since the boat, and she spent it at the landing because there is nothing else to do at a landing.
+She had a day of nothing, which is a thing she had not had since the boat, and she spent it at the landing because there is nothing else to do at a landing.
 
 That is the honest account of the seventy-second and it is in her own hand in the slate that night, and she did not improve it: **she had no hour, because there was no book in this town that would give her one and she was not allowed to ask, and so she went and stood where the things arrive.**
 
@@ -92,7 +92,7 @@ She had four inches of a reason and it is in the slate and it is the correct rul
 
 What she did was say a name out loud.
 
-She said it once, in the open, at ten feet — the distance she has used for eleven years — to a landing with about nine people on it and a cart on it and a woman standing at the foot of it, and the name was the name on the line, and she said the name and nine words with it, and the nine words are the whole of what she did on the seventy-second and the whole of what she has got, and she did not improve them and has not improved them since:
+She said it once, in the open, at ten feet — the distance she has used for eleven years — to a landing with about nine people on it and a cart on it and a woman standing at the foot of it, and the name was the name on the line, and she said nine words, and the nine words are the whole of what she did on the seventy-second and the whole of what she has got, and she did not improve them and has not improved them since:
 
 **“Mave Verrow is a person and not a house.”**
 
@@ -120,6 +120,6 @@ Then she wrote four lines under it and the fourth is the one that is the finding
 
 > *Four years, two answers, and the third one is the small one, and she has done it right. You do not send a thing and leave the line open, that is what an open line is.*
 >
-> *A woman said that on a landing in the open, out loud, in about eleven words, in the ordinary voice, to another woman, and she was not talking to me and she was not talking to a clerk and there is no mark and no form and no hour against it anywhere in this kingdom. **That is the whole of the engine of this book and it is eleven words long and it was said in a market.***
+> *A woman said that on a landing in the open, out loud, in about eleven words, in the ordinary voice, to another woman, and she was not talking to me and she was not talking to a clerk and there is no mark and no form and no hour against it anywhere in this kingdom. **That is the whole of the engine of this book, and it has been said three times in three days, twice in a market and once on this landing, by three women who are owed nothing and are not agents of anything and are usually right about who they are, and it is not in a hall, and there is nothing anywhere that anybody can find it in afterwards, and that is why it works.***
 >
 > *And I did not ring anything. Nobody asked me anything, and nobody held anything over me, and there is no speech, and nobody has said that it was worth it, and I am not going to.*

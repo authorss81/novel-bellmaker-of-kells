@@ -16,7 +16,7 @@ It was the same sentence.
 
 Not the same words. The same sentence. She has written it down both times and the two are different sentences with the same bones, and what is in the bones is: **you have not sent for it, and it is on the line, and I am not going to be the one who says it twice.**
 
-The first time she heard it, a woman had said it to her sister at a rope stall at the top of the market street, on the sixty-seventh, and Tomas Vale had stood eleven feet off and heard it and had written nothing down for a day and a half.
+The first time she heard it, a woman had said it to her sister at a rope stall at the top of the market street, on the sixty-seventh, and Tomas Vale had stood eleven feet off and heard it and had not moved for about a minute and a half and had written nothing down at all.
 
 The second time she heard it, a woman said it to a stranger at a stall of nothing in particular on the sixty-eighth, and the stranger was a man with a barrow of onions who said, "**It is not the same line, is it.**" And the woman said, "**It is not. It is the Verrows' and it is four years and there is a third one coming and I have said my piece and I shall not say it again.**"
 

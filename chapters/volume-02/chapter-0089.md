@@ -80,7 +80,7 @@ He had wanted her in that room for nine minutes and he had not got it, and what 
 
 ---
 
-**Marden Vey had been forty miles up the water since before the round came in and came back on the morning of the seventy-fifth on the carrier, and he was in the counting house from about the first hour of the afternoon until about the ninth hour of the evening**, which is longer than his business is, and the reason is that a man with a barrow had been standing in his yard for a day and a half and he wanted to know what a man with a barrow was.
+**Marden Vey had been forty miles up the water since before the round came in and came back on the morning of the seventy-fifth on the carrier, and he was in the counting house from about the first hour of the afternoon until about the ninth hour of the evening**, which is longer than his business is, and the reason is that a man with a barrow had been standing in his yard since the seventh hour of the morning and he wanted to know what a man with a barrow was.
 
 He was not angry. That is the first thing about him and it is in the yard, in his own words, before anybody has said anything.
 
@@ -128,7 +128,7 @@ He put both hands flat on the table, which is a thing a man does when he is abou
 
 “**And there is nobody in this firm to tell any of us that it is the other thing. Because it is not a debt, it is a chore, and a chore is a thing you do for yourself in your own yard on your own day, and every one of the four of us would do it for ourselves in about nine seconds, and not one of the four of us will do it for the firm, because the firm is not us. It never has been. We have been a firm for thirty-one years and we have never once in thirty-one years been able to tell each other that the firm is us.**
 
-“**And that is the whole of my ruin and it is about eleven words long and it is not in a hall and it is not on any paper and there is no column for it and no clerk can enter it, and you cannot certify it, and nobody is going to stop me saying it in about four years when I am not in this yard any more.**”
+“**And that is the whole of my ruin and it is about eighteen words long and it is not in a hall and it is not on any paper and there is no column for it and no clerk can enter it, and you cannot certify it, and nobody is going to stop me saying it in about four years when I am not in this yard any more.**”
 
 ---
 
@@ -150,6 +150,6 @@ He wrote at about the ninth hour of the evening, on the step of the draper's, in
 >
 > *I came into this town wanting a person to be angry at who was not kind to me. I have got a merchant who is owed money, who is right, who is going to be ruined, and who said the best thing anybody has said to me in six weeks on his own trade, and it is true, and I cannot get at it and I cannot argue with it and it will be on a page in a district office in about four years whether I like it or not. **And the man who put the mark in the column is dead, or retired, or asleep, and I have looked, and there is nobody to be angry at at all, and I have been unable to be angry at anything in this town for ten days and this is the tenth day and I have stopped looking.***
 >
-> *And what I can see coming and cannot stop, and I am writing it down because it is the last day I can write anything down without it being a plan: **when this comes out, six households in this town find out that a mark in a column is why they have not been paid, and a firm of nine people finds out that the same mark is why nobody will lend to it. Those two things point in the same direction, and they are about a hundred yards apart, and they do not know about each other, and there is nobody in this county who could put them together except a man with no standing and eleven documents who has been asked not to.***
+> *And what I can see coming and cannot stop, and I am writing it down because it is the last day I can write anything down without it being a plan: **when this comes out, six households in this town find out that a mark in a column is why they have not been paid, and a firm of nine people finds out that the same mark is why nobody will lend to it. Those two things point in the same direction, and they are about a hundred yards apart, and they do not know about each other, and there is nobody in this county who could put them together except a man with no standing and thirteen documents who has been asked not to.***
 >
 > *Nothing was rung in this town today. The frame is four streets off with four bolts in it. The crate is in a smith's yard with the sacking off and there is no claim in it and I have not touched it since the fifty-third. All five clauses stand and I wrote the fifth one at the door of a timber yard at about the seventh hour of the morning because I have no standing to ask a merchant a question about a claim in a dead man's name.*

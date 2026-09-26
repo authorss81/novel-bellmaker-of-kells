@@ -1,6 +1,6 @@
 # Chapter 0084 — A Name In A Market Queue
 
-There is a market on Miremarket about four days in ten and there were about nine hundred people in the square on the seventieth, and Tamsin Rook stood in it for about a day and a half of daylight and wrote one thing on a slate, and the thing took her an hour and a half and is in the fourth column, and it is the first time in eleven years she has put anything in the fourth column at all.
+There is a market on Miremarket about four days in ten and there were about nine hundred people in the square on the seventieth, and Tamsin Rook stood in it for most of a day and wrote one thing on a slate, and the thing took her an hour and a half and is in the fourth column, and it is the first time in eleven years she has put anything in the fourth column at all.
 
 She did not know she was going to do it at about the fourth hour and she had no idea why she did it at about the sixth.
 

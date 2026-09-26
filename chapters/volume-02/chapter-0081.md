@@ -90,7 +90,7 @@ He is not, as far as he can find out, frightened of anything. He has been in thi
 
 He went up the lane and past two rooms over a dyer's on the north side and there was a light in the window of the upper one at about the sixth hour, and he did not go up, and he wrote one line about it and the line was *a light in the upper room and I have not been up and I am not going to be this week.*
 
-Then he went to the smith's yard in that street where a crate is standing with the sacking off, and looked at a bell that has no claim in it in it, and did not ring it, and did not want to, and had written in his own hand three days ago that he is not going to ring it in this county at all.
+Then he went to the smith's yard in that street where a crate is standing with the sacking off, and looked at a bell that has no claim in it, and did not ring it, and did not want to, and had written in his own hand three days ago that he is not going to ring it in this county at all.
 
 Then he went back to the yard behind the draper's shop and the frame was in the corner where it had stood since about the sixth hour of the morning of the fifty-eighth, in its cradle, with four bolts made fast, and he counted them because counting them is what he does.
 
