@@ -46,15 +46,15 @@ At about the fifth hour they were on the flat above the landing with the barrow 
 
 At about the sixth hour a man with a flat book came down the reach and stopped at the near end of the landing boards, and about four people came up off the road and stopped as well, and Bel Tremayne put her hand flat on her own book and did not move it.
 
-"Marv," she said. "You have been on this water three days."
+"Marl," she said. "You have been on this water three days."
 
-"Two and part of a morning." He did not say it to her so much as to the landing. Then, to Tomas Vale: "I am writing the middle column and I want the reach in it, and I have a day of walking in me and about a third of a bag of bread, and I am going to do it now while the light is on the water, and anybody here can go and do something else."
+"Three days and part of a morning." He did not say it to her so much as to the landing. Then, to Tomas Vale: "I am writing the middle column and I want the reach in it, and I have a day of walking in me and about a third of a bag of bread, and I am going to do it now while the light is on the water, and anybody here can go and do something else."
 
 Nobody went and did something else. That is a fact about about four people and not a judgement on them.
 
 He wrote standing up, on the flat above the landing, with the book on a sawn-off stake the way Bel had shown him without being asked how to hold it, and he wrote one line, and the line was about the ground, and the line said there was ground here and that people live on it.
 
-**There was no name on it anywhere.** Not at the head of the line, not in the margin, not in the four boxes, and the last of the four is headed for a man and it was left empty and it was going to stay empty, and he said so out loud while he was writing it, in the ordinary voice, as a man says a thing he has said before and will say again.
+There was no name on it anywhere. Not at the head of the line, not in the margin, not in the four boxes, and the last of the four is headed for a man and it was left empty and it was going to stay empty, and he said so out loud while he was writing it, in the ordinary voice, as a man says a thing he has said before and will say again.
 
 "That is it," Marl said. "That is the whole of what I have come for and it is going in my district's book in a bench room four days down the water and it is going to be in a drawer by about the fourth hour tomorrow. It is not a name. It is not a household. It is a line in a middle column, and anybody in this county is welcome to come and look at it in about forty years, and about nine men on this water will never know it exists and I am not going to tell them."
 
