@@ -40,7 +40,7 @@ At about the fifth hour the two of them were on the boards and Trope was pointin
 
 ---
 
-At about the sixth hour Tomas Vale walked down off the flat to the bank and stood on the top of the steps, and a schedule folded in three had been in his inside pocket for forty days and he had asked about this reach twice in nine days and been told the same thing both times, which is that the reach is on the sheet and nothing else about a river is.
+At about the sixth hour Tomas Vale walked down off the flat to the bank and stood on the top of the steps, and a schedule folded in three had been in his inside pocket for forty-three days and he had asked about this reach twice in nine days and been told the same thing both times, which is that the reach is on the sheet and nothing else about a river is.
 
 The water at the foot of the steps was about a foot and a half down the stair and the bottom four steps were under. The low quarter from the top of them was not nine hundred houses. It was a low, close, wet place of two hundred and forty people on ground the same height as the flat he had come off, and the bank between them was the only thing in nine miles that was nine foot high, and it was a natural bank with grass on it and nothing on it of any kind, and a natural bank nine foot high that a river has gone round for two hundred years is a thing a man stops noticing the way he stops noticing a wall.
 
@@ -48,7 +48,7 @@ He took the schedule out and unfolded it along the three creases it already had 
 
 There is no box on that sheet for a town. There is a panel for a reach with a rate in it, and there is a column that runs the length of the reach, and about a third of the way along a column the rules stop short and do not cross a rectangle two hands together in which there is nothing at all, not torn, not cut, the paper smooth and uncreased, the numbers either side of it going on without a break.
 
-He had carried that rectangle for forty days. He could see wards and numbers and a scale. He could not read a run and he was never going to, and the reason for that is that there is no form in this kingdom on which anybody is taught, and a man in a coat had not been asked to teach him and there was not one to ask.
+He had carried that rectangle for forty-three days. He could see wards and numbers and a scale. He could not read a run and he was never going to, and the reason for that is that there is no form in this kingdom on which anybody is taught, and a man in a coat had not been asked to teach him and there was not one to ask.
 
 He could not tell whether the town at the foot of the steps was off that sheet because it was not owed anything, or because the sheet had never had a column for a town. One of those is a finding and the other one is a hole in a piece of paper, and he had no instrument in the world that told the two apart.
 

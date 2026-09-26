@@ -48,7 +48,7 @@ At about the ninth hour of the evening Tomas Vale was on a flat of beaten earth 
 
 The nine places are in a district's book. The man he had asked to be told nothing is on the reach and holds a line and has not been up a bank. The map he cannot read is in the inside pocket of his coat folded in three with a rectangle in it that four men looked at in a bench room and did not explain, and the two questions written down about it are narrower by three lines and answered in neither half, and a bay in a frame is what a mould maker said it was yesterday in front of nine benches and not one of them asked him a question about it.
 
-He tried to hold a straight edge at about the seventh hour, because a man cannot be on a road for fifty days without knowing whether he can still do the thing he is, and he put the edge on the flat with a stone at each end and got nine inches out of nine feet before his hand went, which is what he got on the hundred and thirty-second day and the day after it, and there is no form on which a man can be told that he may not hold one either.
+He tried to hold a straight edge at about the seventh hour, because a man cannot be on a road for fifty days without knowing whether he can still do the thing he is, and he put the edge on the flat with a stone at each end and got nine inches out of nine feet before his hand went, and there is no form on which a man can be told that he may not hold one either.
 
 Tamsin Rook was outside the bench room door for the last hour of it with her hand flat on the oak jamb and her boots on the step, and nobody asked her a question at any hour of that day including him, and he was fifty days on this road with her and had not asked her once what it was for.
 

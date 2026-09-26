@@ -1,5 +1,8 @@
 # Chapter Summaries
 
+
+
+**VOLUME 04 IS CLOSE, COMPLETE AND AUDITED AT CHAPTER 200 AND THE AUDIT IS `reviews/volume-04/volume-audit.md`. The audit opened four chapters of Volume 04 — 0191, 0196, 0199 and 0200 — and eight more in the day-books, and NONE OF THE TWO HUNDRED ENTRIES BELOW WAS REWRITTEN, because an entry is a record of a chapter and the audit changed four lines in four chapters and no entry in any of them says anything about those four lines. THE FOUR CHAPTER-LEVEL CORRECTIONS, for a reader who wants them without opening the chapters: Chapter 0191's schedule has been in his pocket FORTY-THREE days and not forty; Chapter 0196's yard sends NINE over the plank and THE REST up a ladder and not *half-odd* of them; Chapter 0199 gives no duration for the sheet's four tables or for the mould maker's looking at it, and the rectangle has been in it for fifty-one days; and Chapter 0200 attributes the nine inches out of nine feet to nothing, because no page carries that measurement but Chapter 0200 itself. NO ENTRY HERE GIVES AN AGE FOR ANY PERSON, because no chapter of Volume 04 does.**
 **ARCHIVE TIER. This file is not in any batch prompt's read list and a batch writer should not load it.**
 
 **It is 400 KB of one-entry-per-chapter prose, roughly 950 bytes a chapter, and it is the largest artifact in the repository. It is retained because it is a genuine per-chapter index and because rewriting 200 entries is a job of its own, but the load set for a batch is five files and this is not one of them:** `state/current.md`, `state/continuity.md`, `state/character-state.md`, `state/open-threads.md`, `state/volume-index.md`. See `state/volume-index.md` for the table.
