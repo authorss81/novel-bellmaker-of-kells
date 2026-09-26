@@ -33,17 +33,20 @@ Read these five. Everything else in `state/` is history and should be opened onl
 | 0008 | 02 | `workspace/volume-02/batch-0003/` | 71–80 | 56–66 | `state/batch-0008-summary.md` | spent |
 | 0009 | 02 | `workspace/volume-02/batch-0004/` | 81–90 | 67–76 | `state/batch-0009-summary.md` | spent |
 | 0010 | 02 | `workspace/volume-02/batch-0005/` | 91–100 | 77–86 | `state/batch-0010-summary.md` | spent |
+| 0011 | 03 | `workspace/volume-03/batch-0001/` | 101–110 | 87–96 | `state/batch-0011-summary.md` | spent |
+| 0012 | 03 | `workspace/volume-03/batch-0002/` | 111–120 | 97–106 | — | **next** |
 
-**The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five.
+**The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five; Volume 03 has five.
 
-**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. Chapter 100 falls on Day 86.
+**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100. Volume 03, *The Quiet Office*, is open and Batch 0001 is complete at Chapter 110.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. **Chapter 100 falls on Day 86 and Chapter 110 falls on Day 96.**
 
 ## One volume arc per line
 
 - **Volume 01 — The Bell Before the Crime (Ch 1–50, Days 0–33).** A Crown survey carrier arrives with its clapper missing. A ward answers a form out loud in four columns. The archive burns, the yard is sealed, and Tomas Vale is taken out of his own lane. A district withdraws a finding, a captain releases a bell in a cradle that cannot be rung, and a bellmaker leaves Kells before dawn with a question he cannot answer.
 - **Volume 02 — The Unpaid Names (Ch 51–100, Days 34–86).** A man with a barrow walks four counties with a list that cannot be unrolled. Nine pitches come off a market and a child goes on a cart. A man with no standing says one true sentence in a room and it costs a household a row. A practice is stopped in one district in writing. A room, a bench and the only copy of a form are taken lawfully under a clause he asked for. He rings a bell he did not make in a market square, apologises to about nine hundred people, and walks out of a town of two thousand with a barrow and no place.
+- **Volume 03 — The Quiet Office (Ch 101–150, Days 87–136).** A bell on a post above a notice-board rings with nobody near it, and the sheet under it is dated four days forward, and the whole of a coercion is arithmetic. A smith says a store in four seconds and refuses a theory. A bell is on a roll with an empty keeper's box. A leaf on a public board confirms a sister's hand and refuses to answer, and it is not taken. A woman with a slate finds a form with a box for the person who repeated a thing, and rings her own bell once in a market of about nine hundred people. Three sheets go on a trestle and a clause of a larger Renewal operation is read out to four hundred people. A notice in his own name goes on a board because a man with no standing cannot be served a document. A clerk at a counter names the second kind of paper. **A format has no door, and ninety-six days of learning to ask a person end at a building there is nothing in to ask.**
 
 ## Known gaps in the planning layer
 
-- **There is no `outline/volume-03.md`.** `outline/series.md` and `outline/ending.md` are the only Volume 03 planning documents that exist. A volume outline has to be written before Volume 03 chapters can be planned against one.
-- **Two Volume 02 payoffs were required by `outline/volume-02.md` and are not paid**, and are recorded in `state/current.md` and `state/open-threads.md`: **Mara Vale does not appear anywhere in Volume 02**, and **the Silent Muster is never proved**. Both are carried into Volume 03 as its first obligations. `outline/volume-02.md` has been amended to record the deferral rather than to pretend the payoff landed.
+- **`outline/volume-03.md` NOW EXISTS** and was written before the first Volume 03 chapter, after the Volume 02 close, because `state/current.md` and this file both named the absence as a real gap. `outline/batches/volume-03-batch-0001.md` holds the ten chapter cards. **The volume runs to Chapter 150 and closes there.**
+- **The two Volume 02 payoffs are BOTH PAID**, in Volume 03 Batch 0001, in the required order: **Mara Vale's trail in Chapter 0105** and **the Silent Muster proved by a document and a date in Chapter 0107.** The record of what was paid and of what each payment deliberately did not do is `state/continuity.md` §11. `outline/volume-02.md` and `state/continuity.md` still carry the deferral note as history; **§11 of the continuity file is the live statement and it says PAID.**
