@@ -66,7 +66,7 @@ She let him have that and she let him have all of it and she was right about all
 
 “There are nineteen districts under this county. **Nine of them have adopted the practice.** That is the nine. About three hundred and sixty pounds a year is the nine, and it is right, and your man did his arithmetic correctly, and I have looked at it and I cannot improve it.
 
-“And the other ten have not adopted it, and they spend it, and they spend more than we do, because an open line is nine minutes and a held line is nine minutes and a household that argues is about four hours a day, and **you cannot get nine thousand households in a district to agree to argue in a kitchen, so a district that has not adopted this practice has not saved anything. It has moved the cost. It has moved it from a counter to about nine hundred doors and it has paid two men a day to do it, and the man on a cart costs about a shilling and a half and his board, and the arithmetic is worse and every man doing it knows it and it is why the other ten do not do it.**”
+“And the other ten have not adopted it, and they spend it, and they spend more than we do, because an open line is nine minutes and a held line is nine minutes and a household that argues is about four hours a day, and **you cannot get eleven thousand households in a district to agree to argue in a kitchen, so a district that has not adopted this practice has not saved anything. It has moved the cost. It has moved it from a counter to about nine hundred doors and it has paid two men a day to do it, and the man on a cart costs about a shilling and a half and his board, and the arithmetic is worse and every man doing it knows it and it is why the other ten do not do it.**”
 
 “So the truth is more expensive than the mark.”
 

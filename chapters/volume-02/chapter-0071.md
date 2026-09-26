@@ -150,7 +150,7 @@ He wrote for about an hour at about the eighth hour of the evening, on a plank, 
 >
 > *So: the frame is in its cradle and the bolts are made fast at every place it has been set down, and it has been set down twice today, on a slip and on a plank, and the cradle rides on the barrow's bed and the second clause is the reason I cannot pay for anything, and it is going to hold tomorrow. Nothing is rung. No clause has been broken. **I have used the fifth clause twice today, and both times as a fact about myself, and it has told me the truth about my standing on a slip and it has cost me a place, and it is the only piece of paper I own that has never once tried to be a weapon.***
 >
-> *I have nine days. It is a town of about two thousand with a clerk's hall in it and about nine hundred things in it that are not the clerk's hall, and the clerk's hall is the one building I cannot get into, and I have known that since a room over a haberdasher's two days ago and I have believed the man about it since about the second hour this afternoon.*
+> *I have nine days. It is a town of about two thousand with a clerk's hall in it and about nine hundred things in it that are not the clerk's hall, and the clerk's hall is the one building I cannot get into, and I have known that since a room over a haberdasher's last night and I have believed the man about it since about the second hour this afternoon.*
 
 ---
 

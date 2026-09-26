@@ -112,7 +112,7 @@ He had said that in under a minute and it was the whole of his trade and he was 
 
 “That is fair,” said Tomas Vale.
 
-“It is not fair. It is the truth and it is about four parts cowardice to one part arithmetic and I have never been able to get the proportions better than that and I have had about nine years.”
+“It is not fair. It is the truth and it is about four parts cowardice to one part arithmetic and I have never been able to get the proportions better than that and I have had about eleven years in this building.”
 
 “Can I ask you the other half.”
 
@@ -140,7 +140,7 @@ He put the sheet he had written on top of the other sheets and squared it again.
 
 He got up and put his coat on properly.
 
-“**I will not be asked again this week.** I have told you the reason: the round is out again on the seventy-first, and there is a child and a house and about eleven years, and a man stood in a street for five hours and then asked me one question in his own name, and one is the number I can stand. Ask me on the seventy-second and I will tell you the same things in the same words, because the same things are true on the seventy-second and I am not a man who improves a sentence between a day and a day.”
+“**I will not be asked again before the round goes out again.** I have told you the reason: the round is out again on the sixty-third, and there is a child and a house and about eleven years, and a man stood in a street for five hours and then asked me one question in his own name, and one is the number I can stand. Ask me on the sixty-fourth and I will tell you the same things in the same words, because the same things are true on the sixty-fourth and I am not a man who improves a sentence between a day and a day.”
 
 ---
 
@@ -156,7 +156,7 @@ And then he sat down on the step of the draper's with the day-book on his knee a
 >
 > *And the second half is this, and it took five hours of standing and it is the loneliest afternoon of the five weeks and I am not going to dress it up as anything else.*
 >
-> ***I am the only person in that building who has ever been asked a question.*** Not the only person who could have. The only person who has. Nine clerks and about nine thousand lines a year and a notice on the wall since before a man I have never met came into it, and not one of us has used it. A young man of about four years asked his own trade what the paper was for, which is a different question and a good one, and that is the closest thing in the building to what I did today.*
+> ***I am the only person in that building who has ever been asked a question.*** Not the only person who could have. The only person who has. Nine clerks and about nine hundred lines a year and a notice on the wall since before a man I have never met came into it, and not one of us has used it. A young man of about four years asked his own trade what the paper was for, which is a different question and a good one, and that is the closest thing in the building to what I did today.*
 >
 > *I have been told twice now in a week by two careful men that I am the only person asking. The first of them said it with about four words and a number and did not look pleased. The second of them said it standing up with his coat on and told me it was either the one thing this trade has or a man talking to himself, and **he was right to say both halves and he was right to say he could not tell which, and the worst of it is that I cannot tell either, and I have been in five weeks of roads being the only person asking about a column in every single one of them and I have started to think that being the only person asking is not a fact about a town and is a fact about me.***
 >

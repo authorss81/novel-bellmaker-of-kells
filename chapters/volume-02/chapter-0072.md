@@ -22,7 +22,7 @@ The clerk's hall is the biggest building in Miremarket that is not a church, and
 
 “Thought. Everyone from here knows what a hall is and everyone from four miles off asks me that, and it’s the same question every spring with the tax men.” He put a strap over his shoulder. “**The round’s the thing you want. It comes twice and I’ve had it in my yard twice this year, and the money comes with it, and the money’s the reason nobody here is unhappy, and you can put that down as a fact about this town and it’s true.**”
 
-It was the first sentence in nine days that a stranger in a lane had said to him that he had not asked for, and it was not a fact about a document, and he wrote it down at the top of a fresh page and underlined it, and the underlining is in the book and he is not sure why he did it.
+It was the first sentence in three days that a stranger in a lane had said to him that he had not asked for, and it was not a fact about a document, and he wrote it down at the top of a fresh page and underlined it, and the underlining is in the book and he is not sure why he did it.
 
 ---
 
@@ -48,7 +48,7 @@ He read the rest of the form without appearing to read it and then put it down o
 
 “**A clerk's hall is not a district office. We hold the paper. We do not decide anything and we cannot be asked to, and there is no form in this kingdom that would let a hall decide anything, and if there were I would resign into it inside a year.** You have a receipt in your coat that says you have no standing in any ward in this kingdom, and I am not asking to see it and I would not read it if you offered it, and I am telling you that I know the words because I have read them about nine times in other people's letters, and every man who writes one of them to a hall is asking a question about a bell, and I have never had an answer to one and I am not going to start with you.”
 
-And then he said the thing that is the reason the whole of this chapter is in a book and not in a mouth, and he said it flatly, the way a man says the price of a thing.
+And then he said the thing that is the reason the whole of that is in a book and not in a mouth, and he said it flatly, the way a man says the price of a thing.
 
 “**You may look at the town. You may ask anybody in this town anything you like, at any hour of any day, and every person in it will answer you, and I have been in this town twenty-two years and I will tell you the whole of what that is worth: a great deal, and nothing.** A clerk's hall is the one building in a town of two thousand that a man may not walk into. Everything else — the smithy, the market, the yard, the door, the taproom, the lane — all of it is open to you and all of it is full of people who have nothing to be frightened of you about, because you are not the district and you are not the watch and you are not the market court, and you are a man with a barrow and a frame in a yard, and in about four days you will be a man with a barrow and a frame in a yard, and there is nothing in this kingdom that makes a man interesting on the fourth day.”
 
@@ -96,7 +96,7 @@ He was not dressed like a district either and he was not dressed like anything i
 
 “How many answers.”
 
-“**About eleven thousand a year, come back marked as a household that cannot make up its mind.**” He said it without any weight at all, the way a man says a figure he says every day. “We do not leave the line open. Nobody here leaves a line open, and I will tell you the reason and then I am going to go and eat, because it is a quarter past and I have been in this building since the fourth hour. **The office records one hand against the line and the line is answered.** The book that records it is the roll, and the roll is a book of answers, and the schedule goes on to the next house, and by the fourth hour of the afternoon the round's cart is on its way back and it has to be on its way back.”
+“**About eleven thousand a year, come back marked as a household that cannot make up its mind.**” He said it without any weight at all, the way a man says a figure he says every day. “We do not leave the line open. Nobody here leaves a line open, and I will tell you the reason and then I am going to go and eat, because it is a quarter past and I have been in this building since the fourth hour of the afternoon. **The office records one hand against the line and the line is answered.** The book that records it is the roll, and the roll is a book of answers, and the schedule goes on to the next house, and by the fourth hour of the afternoon the round's cart is on its way back and it has to be on its way back.”
 
 “And whose hand.”
 

@@ -1,6 +1,6 @@
 # Chapter 0080 — The First Household To Say No On The Record
 
-The room was over the draper's on the north side of the square, and it was the room they had slept in for eight nights, and about nine people came to it.
+The room was over the draper's on the north side of the square, and it was the room they had slept in for nine nights, and about nine people came to it.
 
 That was the rule and the rule was correct. **A disputed line is entered in a room that is not the hall, at an hour the office is open, and any person with business in the line may attend.** Ivo Trant read it out from the counter on the morning of the sixty-sixth in a voice he did not enjoy, and then he said, in the same voice, that a person with no business in the line would be asked to stand outside, and Tomas Vale said nothing at all and was not asked, because nobody in that room could think of a reason to put a man out of it, and that turned out to be the whole of how it happened.
 
@@ -22,13 +22,13 @@ And there were three Larkins. Dory Larkin, who said no. Her brother **Sam Larkin
 
 Elias Nabb read the line out. It took him about four minutes and he read it the way he reads everything, and he read it twice, and nobody in the room stopped him the second time.
 
-> *Household of five. East row, third pitch, then end of row. Asked on the sixtieth. Answered, no, on the sixty-first, in words, at about the middle of the day, and entered. Answered, no, a second time, this day, in words, and entered. **The line is in dispute and the schedule does not hold open and the line is closed at the end of the round, and this entry is made in a room at an hour the office is open, and any person with business in the line may attend.** Signed, Elias Nabb, clerk, this hall, this town, this date, about the fourth hour of the afternoon.*
+> *Household of five. East row, third pitch, then end of row. Line open four years. **Asked on the sixty-first, in words, at about the middle of the day, and answered, no, and entered. Answered, no, a second time, this day, in words, and entered. The line is in dispute and the schedule does not hold open and the line is closed at the end of the round, and this entry is made in a room at an hour the office is open, and any person with business in the line may attend.** Signed, Elias Nabb, clerk, this hall, this town, this date, about the fourth hour of the afternoon.*
 
 Nobody said anything. A fire moved.
 
 “And the answer,” said Elias Nabb, “is entered in the answering column, in the household’s own words, and the household has chosen the column and I am entering it in the answering column, and the words are theirs and I have not put a heading on them and I have not shortened them.”
 
-He put the sheet down and squared it and read out what a woman had said to a man with a barrow at the end of a row six days ago, in a market, and had changed one word of when it was read back.
+He put the sheet down and squared it and read out what a woman had said to a man with a barrow at the end of a row two days ago, in a market, and had changed one word of when it was read back.
 
 > *We are five and we do not agree, and we are not going to be sent for again, and we mean it, and any hand on that line is one of the five of us and not the house.*
 
@@ -44,7 +44,7 @@ And then Elias Nabb did the next thing without a pause, in about four seconds, b
 
 And Sam Larkin put his hand on the counter.
 
-Nobody looked up. Nobody in that room saw anything happen. **Elias Nabb wrote the hour against it and the mark of one person in the column of a household of five and went on with the entry, and the entry was then a complete record, and the record was good, and it is on a shelf in a hall in this town with a stamp at the foot of it, and the whole of what this volume has been about happened inside ninety seconds and was in the correct form.**
+Nobody looked up. Nobody in that room saw anything happen. **Elias Nabb wrote the hour against it and the mark of one person in the column of a household of five and went on with the entry, and the entry was then a complete record, and the record was good, and it is on a shelf in a hall in this town with a stamp at the foot of it, and the whole of what a line is, and what a refusal is, and what a record is, happened inside ninety seconds and was in the correct form.**
 
 ---
 
@@ -54,7 +54,7 @@ She was standing at the back on the stair side, and she had not come in until ab
 
 She saw Sam Larkin's hand go down on a counter about nine feet from her while Dory Larkin was sitting down, and she saw that the hand was not the hand of the person who had spoken the sentence, and she saw that the sentence said *any hand on that line is one of the five of us and not the house*, and she wrote it on the back of her own hand with the stub of chalk out of the slate pocket and she did not say one word to anybody in that room, and afterwards she did not say one word about it to the man she travels with, and it is the only thing in this month she has kept off a slate.
 
-She has not been asked for a reason for anything by anybody in this batch. Nobody has held anything over her. Nobody has said one word to her about the fourth of last month. She is standing in a room and she is the only person in it who knows what just happened and she is going to keep it, and that is hers, and it is not a favour to anybody.
+She has not been asked for a reason for anything by anybody since the fourth of last month, and nobody has held anything over her, and nobody has said one word to her about it in a month of walking. She is standing in a room and she is the only person in it who knows what just happened and she is going to keep it, and that is hers, and it is not a favour to anybody.
 
 ---
 

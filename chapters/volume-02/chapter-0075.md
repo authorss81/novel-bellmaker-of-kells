@@ -110,9 +110,7 @@ She read that back to nobody. There was nobody in a market of nine hundred to re
 
 ---
 
-She found the district man in a lane off the square at about the sixth hour of the evening, standing in the road, having walked a market of about nine hundred for nine hours, and asked him one question, and got a straight answer in about nine seconds, and it went through her like a hand in a bell.
-
-The man on the stool with the book — the district man, the competent one, the one she had stood and watched and thought was well done — was still in the town, because his round had not closed, and she asked him one question and got a straight answer in about nine seconds and it went through her like a hand in a bell.
+She found the district man in a lane off the square at about the sixth hour of the evening, standing in the road — the man on the stool with the book, the competent one, the one she had stood and watched and thought was well done — and his round had not closed, and she asked him one question, and got a straight answer in about nine seconds, and it went through her like a hand in a bell.
 
 “**Whose hand was on that line.**”
 
@@ -138,7 +136,7 @@ And he put the book under his arm and went off up the lane, and he had not been 
 
 ---
 
-She gave the slate away at about the sixth hour of the evening, at a pitch near the landing, to a woman with a stall of needles and thread and about nine of her own on the board, and the price side went up, and before she left the landing she bought the back of another one off the same stallholder for a penny and a half, and that is the one she has carried since, and the other one, the one off a draper's woman nine days earlier with a kitchen on it, is in the bottom of her bag and has been since the fifty-ninth, and she put the eleven bystanders and the one refusal where anybody could read them, and she said why, and the reason was not caution.
+She gave the slate away at about the sixth hour of the evening, at a pitch near the landing, to a woman with a stall of needles and thread and about nine of her own on the board, and the price side went up, and before she left the landing she bought the back of another one off the same stallholder for a penny and a half, and that is the one she has carried since, and the other one, the one off a draper's woman two days earlier with a kitchen on it, is in the bottom of her bag and has been since the fifty-ninth, and she put the eleven bystanders and the one refusal where anybody could read them, and she said why, and the reason was not caution.
 
 “**A slate in a market is a thing a town can read.** That is all it has ever been. In Bramden it was a thing four people could read and now it is a thing a whole town can read, and the day after the day I put it down is the day somebody in it can write on it, and I want that, because the only question left is not whether the columns work. They work. **The only question left is whether anybody in this town will fill one in.**”
 

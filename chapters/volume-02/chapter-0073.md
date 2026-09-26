@@ -50,7 +50,7 @@ He was not there. He was in a yard four streets off with a frame bolted in a cor
 
 **Third.** *Do you want that written down, and may I write your no as a no and not as nothing?*
 
-She got a slate off a woman who let a woman out of a draper's shop on about the sixth hour and paid a penny and a half for it, and she paid it herself out of a purse that had been flat for eleven years and was not flat now, and she wrote the hour at the top of it, and then she wrote in three columns and ruled them apart, and she did not merge them, and she did not put a heading over any of them.
+She got a slate off a woman at a draper's shop on about the sixth hour and paid a penny and a half for it, and she paid it herself out of a purse that had been flat for eleven years and was not flat now, and she wrote the hour at the top of it, and then she wrote in three columns and ruled them apart, and she did not merge them, and she did not put a heading over any of them.
 
 “**Yes,” said Bess Marrow. “And yes to both halves, and my name on it, and here it is, it is Bess Marrow, of the gable with the lean-to, and you may write *no* and not *nothing*, and I will tell you the whole of why, and it is not the reason you are expecting and I have had nine years to get it right.**
 
@@ -84,7 +84,7 @@ Then she stopped at the eleventh place.
 
 “Say it.”
 
-“Your book has the round’s day in the first column, for nine years, with no gap. And the seventh column has the day a person said a thing. And in eleven places those two columns do not agree, and the roll in the hall has a day in it too, and I have not seen the roll and I am not going to ask to.” She put her finger on the first column and then on the seventh, in the room, and did not touch the page for long. “**In eleven places the day in your book and the day in the hall are different, and in all eleven it is the hall that is earlier, and in nine of the eleven the day the hall has got is a day the round was not in this street.**”
+“Your book has the round’s day in the first column, for nine years, with no gap. And the seventh column has the day a person said a thing. And in eleven places those two columns do not agree, and the paper the hall sent back has a day on it too, and that paper is in this kitchen drawer with the book, and the day on it came off a roll, and I have not seen the roll and I am not going to ask to.” She put her finger on the first column and then on the seventh, in the room, and did not touch the page for long. “**In eleven places the day in your book and the day on the paper in the drawer are different, and in all eleven it is the hall that is earlier, and in nine of the eleven the day the hall has got is a day the round was not in this street.**”
 
 Bess Marrow stood up and came and looked at it, and she did not touch it either, and she was not a quick reader and she was not pretending.
 
@@ -94,7 +94,7 @@ Bess Marrow stood up and came and looked at it, and she did not touch it either,
 
 “So they have written down a day.”
 
-“They have written down a day on which nothing was asked, because **somebody is closing a line and the day you close it is the day you close it, and it is not the day you asked and it is not the day anybody spoke.** I have not seen the roll and I cannot tell you that is what they are doing. I can tell you that it is what it looks like from a kitchen table in a town of two thousand people, and I can tell you that you have kept the round’s day in that book for nine years for a reason, and the reason is that a household is asked on a day and not on any other day, and there is only one day in a year your house is asked on, and you wrote it down because you are the one who has to be ready for it.”
+“They have written down a day on which nothing was asked, because **somebody is closing a line and the day you close it is the day you close it, and it is not the day you asked and it is not the day anybody spoke.** I have not seen the roll and I cannot tell you that is what they are doing. I can tell you that it is what it looks like from a kitchen table in a town of two thousand people, with a piece of paper in a drawer and a book on the table, and I can tell you that you have kept the round’s day in that book for nine years for a reason, and the reason is that a household is asked on a day and not on any other day, and there is only one day in a year your house is asked on, and you wrote it down because you are the one who has to be ready for it.”
 
 Nobody said anything for a while and the kettle went on past the singing.
 
@@ -132,6 +132,6 @@ And she had come here for a page.
 >
 > *What I have got, and it is more than I came for and less than I need, and both of those are true at once:*
 >
-> ***A name in a household’s own book. Eleven places where that book and a roll in a hall do not agree. And a fact about a day: on nine of the eleven, the day the hall has got is a day the round was not in that street. That is a fact about a day and not about a name and not about a man, and I have not seen the roll and I am not going to ask, and I have not improved it into anything, and it is in a column of its own on a slate that cost a penny and a half and the hour is against it.***
+> ***A name in a household’s own book. Eleven places where that book and the paper the hall sent back do not agree, and the day on that paper came off a roll, and I have not seen the roll and I am not going to ask to. And a fact about a day: on nine of the eleven, the day the hall has got is a day the round was not in that street. That is a fact about a day and not about a name and not about a man, and I have not improved it into anything, and it is in a column of its own on a slate that cost a penny and a half and the hour is against it.***
 >
 > *And a woman who will answer me again, which is eleven years and about nine hundred doors and the first one that has ever said so.*

@@ -1,6 +1,6 @@
 # Chapter 0078 — The Household That Says No Twice
 
-The pitch is at the end of the row now and it is at the end of the row because a woman with a book of her own came down a row on the sixty-first at about the second hour of the afternoon and said four pounds a quarter, over a season, if the weather held.
+The pitch is at the end of the row now and it is at the end of the row because a man with a book of his own came down a row on the sixty-first at about the second hour of the afternoon and said four pounds a quarter, over a season, if the weather held.
 
 Tomas Vale came up the row at about the fourth hour of the afternoon of the sixty-fourth and there were four stalls between him and the cheese and a woman at the front of it who had never seen him in her life.
 
@@ -12,11 +12,11 @@ Tomas Vale came up the row at about the fourth hour of the afternoon of the sixt
 
 “All right.”
 
-“**And you were not in this street two nights ago.**”
+“**And you were not in this street last night.**”
 
 He did not say anything.
 
-“There were nine carts at the end of this street and two men lifting a crate off one of them, and a woman with a board stood in the road and looked at the lot of them for about a minute and a half and wrote something down on a slate and went off up the hill with it. **My brother saw her and told me at about the seventh hour and I have had three days to think about it and I have not slept a great deal, and I have got to the bottom of it, which is that she was doing something and you were not, and that you are the one standing in front of me now.**”
+“There were nine carts at the end of this street and two men lifting a crate off one of them, and a woman with a board stood in the road and looked at the lot of them for about a minute and a half and wrote something down on a slate and went off up the hill with it. **My brother saw her and told me at about the seventh hour last night and I have not slept a great deal since, and I have had three days over the other thing and not one of them over this, and I have got to the bottom of it, which is that she was doing something and you were not, and that you are the one standing in front of me now.**”
 
 “She is not with me today.”
 
@@ -26,11 +26,11 @@ He waited, which he had been warned about in four counties and which he did anyw
 
 “If you had come to me about those carts, either of you, I would have told you the whole of it,” she said, “and I am not going to, and that is the first thing I am refusing you and I want it counted.
 
-“**It is not a secret. It is not about the district and it is not about anybody in this street. It is a thing that happened to this house about a year ago and I have said it out loud once and it was to the woman with the board, and I have been thinking for three days about whether that was the right day to say it and I have not got to the bottom of it and I have not slept.** And I am not going to say it a second time to a man I have met four minutes ago in a row, and when you go up that hill tonight you will not be able to put it in a book, and that is not cruelty and it is the only thing I have got this afternoon.”
+“**It is not a secret. It is not about the district and it is not about anybody in this street. It is a thing that happened to this house about a year ago and I have said it out loud once and it was to the woman with the board, and I have not been able to stop thinking about whether that was the right day to say it, and I have not slept.** And I am not going to say it a second time to a man I have met four minutes ago in a row, and when you go up that hill tonight you will not be able to put it in a book, and that is not cruelty and it is the only thing I have got this afternoon.”
 
 “I am not going to ask you for it,” said Tomas Vale.
 
-“I know you are not. **That is the part I have not been able to get round, and I have had three days.** A man who does not ask twice is a thing I have never had in this row and I have had about four landlords. **I do not know what to do with you and I have told you that and it is the first honest thing I have said to a stranger in a year.**”
+“I know you are not. **That is the part I have not been able to get round, and I have not slept.** A man who does not ask twice is a thing I have never had in this row and I have had about four landlords. **I do not know what to do with you and I have told you that and it is the first honest thing I have said to a stranger in a year.**”
 
 He stood there. It is in the day-book and it is one line and the line is in the third column:
 
@@ -46,19 +46,19 @@ And then she said the other thing, and she got it out flat and without any help 
 
 “Then you are here about the no. **And the no is the whole of why you are in this row and I have known it since about the fourth minute.** A woman with a board wrote down that I said no to a man with a book on a stool, in nine hundred people's hearing, and it has my name at the head of it and the hour on it, and I have read it four times because there is nothing else in the house to read, and **it cost us the front of this row, and I want you to say out loud that you know it cost us.**”
 
-“It cost you the front of the row. About four pounds a quarter over a season. The market keeper said it at about the second hour of the afternoon on the sixty-first and your mother said the number and I did not hear your mother and I have wished I had.”
+“It cost you the front of the row. About four pounds a quarter over a season. The market keeper said it at about the second hour of the afternoon on the sixty-first and your mother said the number, and I did not hear your mother, because I was in a yard four streets off with four bolts in it, and I did not know any of it had happened until the third day, and I have wished I had heard it.”
 
 “Why do you wish you had.”
 
-“**Because the woman with the board was nine feet off and wrote that down in her own book in a lane that night, and told me there is a class of thing a person in a crowd can miss entirely and it is not the loud thing, and I have not been able to stop thinking about it since that night.** And I was not nine feet off, because I was in a yard four streets off with four bolts in it, and I did not know any of it had happened until the third day.”
+“**Because the woman with the board was nine feet off and wrote that down in her own book in a lane that night, and told me there is a class of thing a person in a crowd can miss entirely and it is not the loud thing, and I have not been able to stop thinking about it since that night. She was not wrong. I was in a yard, and a yard is four streets off, and nobody came and told me, and that is the whole of what I did about it.**”
 
 Dory Larkin put a hand on the cheese and left it there.
 
-“Then here is the second thing,” she said, “and then you are going to go away, and I have been three days getting it in the right order and I am going to get it in the right order or not at all.
+“Then here is the second thing,” she said, “and then you are going to go away, and I have had a night getting it in the right order and I am going to get it in the right order or not at all.
 
 “**You have not asked me for anything. Do not.** And I say that before you ask, because you have got a face on you like a man who is about to ask, and there is a woman on this road who asked me a question on the sixty-first in front of the whole market and did not ask it twice, and I have not been able to get past that either, and I have not got a good reason for that one either, and I have stopped expecting good reasons from either of you.
 
-“**You are not going to be able to do anything for us.** That is not unkind and it is not a refusal of you, it is a refusal of the whole of what you are, and I want it said in a row and not in a room. You are a man with a barrow and a thing in a yard you cannot ring and a sheet of paper with a man’s hand on it, and you have been in this town three days, and there is a hall in this town with nine clerks in it and every one of them is right, and **there is not one thing in this kingdom you can do for this house and you have not asked and I would like to keep it that way, because the last person who asked me to let him help was my landlord and he had my rent.**”
+“**You are not going to be able to do anything for us.** That is not unkind and it is not a refusal of you, it is a refusal of the whole of what you are, and I want it said in a row and not in a room. You are a man with a barrow and a thing in a yard you cannot ring and a sheet of paper with a man’s hand on it, and you have been in this town six days, and there is a hall in this town with nine clerks in it and every one of them is right, and **there is not one thing in this kingdom you can do for this house and you have not asked and I would like to keep it that way, because the last person who asked me to let him help was my landlord and he had my rent.**”
 
 “I am not going to do that.”
 
@@ -116,9 +116,9 @@ He made the change. It is in the day-book entire and it is the whole of what he 
 
 ---
 
-And then, because she was a woman who had thought about it for three days and because he had asked a proper question and got a proper answer, she gave him the part she had been holding back since the front of the pitch, and she gave it in the flat voice of a woman reciting something she has said to herself many times.
+And then, because she was a woman who had not slept and because he had asked a proper question and got a proper answer, she gave him the part she had been holding back since the front of the pitch, and she gave it in the flat voice of a woman reciting something she has said to herself many times.
 
-“**You have come here to find out what happens to us if we say no a second time,**” she said. “So find out. Ask me. I have been waiting three days.”
+“**You have come here to find out what happens to us if we say no a second time,**” she said. “So find out. Ask me. I have been waiting all night.”
 
 “What happens if you say no a second time.”
 
@@ -154,8 +154,8 @@ He was in the lane off the lane at about the ninth hour and he had been refused 
 >
 > ***And that is the whole of what I have learned in five weeks, and the woman I learned it from is the one who taught me that I was not in the row, and she did not know she was teaching me, and I am not going to be able to tell her, and that is the correct arrangement and I am not going to improve it.***
 >
-> *A household can be asked a question about a claim and the answer is a column, and the answer is worth the four minutes it takes and it changes nothing at the level of a hall. A household can be asked what it wants and the answer is a sentence in its own words, and the sentence is worth nothing at all except to the people who are going to have to say it out loud in a room, and I do not know which of those two things I have been doing for five weeks and neither did he.*
+> *A household can be asked a question about a claim and the answer is a column, and the answer is worth the four minutes it takes and it changes nothing at the level of a hall. A household can be asked what it wants and the answer is a sentence in its own words, and the sentence is worth nothing at all except to the people who are going to have to say it out loud in a room, and I do not know which of those two things I have been doing for five weeks and neither did I.*
 >
-> *And she told me the trade. Refusing is free, and refusing is invisible, and a line that cannot be answered is a line somebody has to put something against, and they have got eleven thousand of us and they have not got the days. **A household does not have to be brave to be left alone by an office. A household has to be inconvenient, and it takes about four years to find out and it is not a practice anybody could teach anybody, and it is the only defence anybody in this novel has found against a line, and it is a defence that costs the front of a row and about four pounds a quarter over a season and a mother who can say a number, and it is the whole of what is left.***
+> *And she told me the trade. Refusing is free, and refusing is invisible, and a line that cannot be answered is a line somebody has to put something against, and they have got eleven thousand of us and they have not got the days. **A household does not have to be brave to be left alone by an office. A household has to be inconvenient, and it takes about four years to find out and it is not a practice anybody could teach anybody, and it is a defence that costs the front of a row and about four pounds a quarter over a season and a mother who can say a number, and it is the whole of what is left.***
 >
 > *She is going to stand in a room with a clerk in it on a day of her own choosing and say that sentence out loud, in their own words, in a column they choose, and they know what it will cost and they are going to do it and they told me they are going to do it and I am not allowed to be there. **I asked at about the seventh hour and she said no and it was the same word as the word at the front of the pitch, and I did not ask again, and the not asking is the first time in my life I have not asked a thing twice where I wanted to, and it is going to be the last chance anybody gives me of that, and I have spent it on a cheese pitch, and it was the right place to spend it.**

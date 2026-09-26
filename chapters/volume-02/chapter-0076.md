@@ -2,13 +2,13 @@
 
 He laid it all out on the table in the room over the draper's on the morning of the sixty-second and it took him about an hour, and after this morning there is not going to be a second morning like it.
 
-Ten sheets of paper and a custody receipt with five clauses in it, and a day-book, and a barrow's load in a yard with the four bolts made fast in a corner of it.
+Ten things on the table, and ten is the number he counts and not the number there are, because four of them came out of one office on one morning and are one line in a book in a coat. And a custody receipt with five clauses in it, and a barrow's load in a yard with the four bolts made fast in a corner of it.
 
 **One.** A dated copy of a Crown supplementary return, six years old, one household of six, a woman's own hand, out of a woman's own drawer in a lane two days' walk behind him, with a condition attached.
 
 **Two.** Four sheets from Fourmile, three answers in an officer's own name and one refusal with a reason, and a carbon of a form with no box for a reason on it and a man's reading-out of a hundred-and-ninetieth entry on the back of it, and a sheet in the same hand about what a book of refusals is and will be in about four years.
 
-**Three.** A sheet in a deputy's hand at a counter in another county, given to him and read twice, eleven minutes, and the only one of the ten not written by a man who was being careful.
+**Three.** A sheet in a deputy's hand at a counter in another county, given to him and read twice, eleven minutes, and the only one of them not written by a man who was being careful.
 
 **Four.** A certificate in a master's hand, six witnesses, one of whom wrote his own name, no second copy, the only certificate in the world for a bell with no claim in it.
 
@@ -24,9 +24,9 @@ Ten sheets of paper and a custody receipt with five clauses in it, and a day-boo
 
 **Ten.** A day-book in four columns with the hours in a flat hand and nothing merged, including the parts where he is wrong.
 
-And the eleventh thing, which is not a document and is on a slate bought for a penny and a half: **a book kept in a kitchen drawer at the end of a lane, in a woman's own hand, in which five people are named against days, and which disagrees with a roll in a hall in eleven places, and which that woman will not take out of her house for any office in this kingdom, and for a reason that is correct.**
+And the other thing, which is not a document and is not in the book either, and is a slate bought for a penny and a half with a fact on it in a woman's own hand: **a book kept in a kitchen drawer at the end of a lane, in the same woman's own writing, in which five people are named against days, and which disagrees with a roll in a hall in eleven places, and which that woman will not take out of her house for any office in this kingdom, and for a reason that is correct.**
 
-That was the case. It had taken him twenty-nine days and it was eleven things and a slate and it was **entirely correct**, and he read it in from one end at about the fifth hour of the morning and it did not have a single false thing in it, and not one of the ten was a lie, and the whole of it was true, and the whole of it did not add up to anything at all.
+That was the case. It had taken him twenty-nine days and it was **ten things and a slate**, and it was **entirely correct**, and he read it in from one end at about the fifth hour of the morning and it did not have a single false thing in it, and not one of the ten was a lie, and the whole of it was true, and the whole of it did not add up to anything at all.
 
 ---
 
@@ -156,7 +156,7 @@ Tomas Vale looked at it for long enough that a cart went past outside.
 
 “Then what does the closing need.”
 
-And Bryn Pethick said it the way a man says a price, which is what it is, and he said it without any weight at all, because he has said it about eleven thousand times a year for four years.
+And Bryn Pethick said it the way a man says a price, which is what it is, and he said it without any weight at all, because he has said it about nine hundred times a year for four years.
 
 “**A signature and a stamp.** That is all. **One signature, and a stamp, and that is what a line is.**”
 
@@ -194,7 +194,7 @@ And then the second thing, which is not a finding and is not a power and which h
 
 That is all. It is in the book and it is not a power and there is nothing he can do with it and it is not a perception and it is not a second sense and he did not learn where anything went. It is a thing he noticed about two objects, and he is a man who notices about objects, and it has taken him a month to be allowed to compare them and there is no clerk in this kingdom who can do it and no district officer and no auditor, and the whole of its value is that it is the only sentence he has found in five weeks that nobody else has said out loud, and it cannot be put in a form, and he has got no household and no standing and no name in any of this.
 
-He wrote underneath it, and it is the same page and it is the sentence that decides this chapter:
+He wrote underneath it, and it is the same page and it is the sentence that decides the rest of the day:
 
 > *That is a fact and not a power. I want that written where I cannot improve it. I have not learned where a warning lands. I have never known that and I do not know it now and there is nothing in this town that would tell me.*
 

@@ -6,7 +6,7 @@ She had a way of asking that she had built over eleven years and had never once 
 
 She said that to nobody, at about the fourth hour of the afternoon, standing at the end of a lane in a town of two thousand people with a slate under her arm and a stub of chalk in the pocket of it, and she said it once and then she went and asked a person.
 
-She had eight hours and she asked nine people and got eight answers and none of them was a fact, and the ninth was at about the sixth hour of the evening in a front room off a street behind the market, and it took about two hours and it is the only account of what a name on a roll is for that any person has ever given her, and it was given to her by a man who was glad to be asked.
+She had about three hours and she asked nine people and got eight answers and none of them was a fact, and the ninth was at about the fifth hour of the evening in a front room off a street behind the market, and it took about two hours and it is the only account of what a name on a roll is for that any person has ever given her, and it was given to her by a man who was glad to be asked.
 
 ---
 
@@ -88,7 +88,7 @@ He sat back.
 
 **And Tamsin Rook had no answer to it.**
 
-That is the whole of the sixty-third and she put it in her own book in her own hand at about the sixth hour of the evening, in a lane, on a step, with the slate on her knee, and she did not improve it and she has not improved it since, and it is eleven words and they are the only eleven words in this whole month that she has not been able to argue with.
+That is the whole of the sixty-third and she put it in her own book in her own hand at about the seventh hour of the evening, in a lane, on a step, with the slate on her knee, and she did not improve it and she has not improved it since, and it is eleven words and they are the only eleven words in this whole month that she has not been able to argue with.
 
 > *I went to ask a man what a name is for. He told me. I have no answer. I have been wrong twice in one afternoon and both times in the same direction.*
 
@@ -114,4 +114,4 @@ And she told him the price before she left, because she had promised a number an
 
 Then she went out into the street and down it about nine feet and stopped, because there was a cart standing in it.
 
-There was a cart standing in that street because the round was out again that day, and it was standing at the end of a row of about nine carts, and two men were lifting a crate off it, and Tamsin Rook stood in the road and looked at about eleven thousand of them and could not say, standing in the middle of a town of nine hundred people, with a slate and a book and eleven years, **whether she had just been given the trade by a man who does it, or had been told, politely, by a man who is owed something, that she has been doing the wrong thing for a month and should stop.**
+There was a cart standing in that street because the round was out again that day, and it was standing at the end of a row of about nine carts, and two men were lifting a crate off it, and Tamsin Rook stood in the road and looked at about nine of them and could not say, standing in the middle of a town of about two thousand people, with a slate and a book and eleven years, **whether she had just been given the trade by a man who does it, or had been told, politely, by a man who is owed something, that she has been doing the wrong thing for a month and should stop.**
