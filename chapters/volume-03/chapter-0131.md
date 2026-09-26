@@ -6,17 +6,11 @@ It was the fourth hour of the hundred and seventeenth day and Tomas Vale went do
 
 The sheet was at the right-hand end of the middle board, under about nine others, and the two nails were about four inches apart at the top corners and one of them was not straight and had been straightened with a thumb.
 
----
-
-## And he read his own four sentences standing up for the fourth time in three days, and it took about four seconds, and that is the length of it, and it is the truest thing he has ever put in a document.
+He read it standing up, the fourth time in three days, and it took him about four seconds.
 
 > *I am the keeper of a paper or instrument of a kind used to repeat an answer, being of the kinds entered in the store list of the district. I have been in a store and read the list. The list does not say what any of the ninety words in it is for. And a column headed what the thing is for is empty from end to end, and I know a man who will not fill it in and I do not blame him for it.*
 
-Four sentences. About ninety words. **About two hundred people read them last night in about nine minutes, and nobody has counted them since, and nobody is going to, and I am not going to either.**
-
----
-
-## And then a woman selling needles put her head round and asked him the ordinary question, and he answered it, and the answer is the whole of what this day cost him.
+Four sentences. About ninety words. **It is the truest thing he has ever put in a document. About two hundred people read it last night in about nine minutes, and nobody has counted them since, and nobody is going to, and I am not going to either.**
 
 She had a tray and about nine dozen needles in it and a bit of string, and she had been at that pitch long enough to have a worn place in the ground.
 
@@ -36,9 +30,7 @@ He had said his own name out loud, in a market, to a stranger, in the ordinary v
 
 **That is the price. A man says his own name in a market and it is worth about the same as a handbill about a horse, and what is not worth about the same as a handbill about a horse is the nine of the two hundred who will take it out of here in a different town inside a year.**
 
----
-
-## And then he did the thing he had come down for, which was to find out what a district is required to do with a sworn answer once it has got one, and the answer came off a woman with a tray of pins and a hammer before he had asked anybody in a room.
+What he had come down for was to find out what a district is required to do with a sworn answer once it has got one. He got the answer off a woman with a tray of pins and a hammer before he had asked anybody in a room.
 
 She was at the next board along. She had a bag with pins in it and a hammer in the front of her apron and eleven sheets folded under her arm, and she had a face of a woman doing about four hundred small jobs a week and not looking at any of them.
 
@@ -58,9 +50,7 @@ He stood beside her for about four minutes and watched her do two sheets, and th
 
 **And she had said the whole of it, unasked, in about four seconds of her own work, and she did not know that she had said anything at all, and she is not a villain and she is not part of anything and she is not going to be thanked by him or by anybody.**
 
----
-
-## And here is the finding, and it is four inches long, and he worked it out standing at a board with a bag of pins and a hammer about four feet off him.
+The finding is four inches long, and he worked it out at about the sixth hour, standing at a board with a bag of pins and a hammer about four feet off him.
 
 *What a district is required to do with a sworn answer is send it round. What it is required to do with the reading of it is nothing at all, because there is no reading, because nobody is unrolling anything.*
 
@@ -72,9 +62,7 @@ And the other half, which he had been carrying since the hundred and sixteenth w
 
 **That is not a conspiracy and it is not a comfort. It is a price list.**
 
----
-
-## And he stood in that market and said nothing to anybody for about two hours, which is what a man does in a market of about nine hundred people, and it is also what about four hundred people a year do at a rail in a court hall four streets off, and about four hundred people a year is how many put a sentence of their own on that wall, and none of the three is about him.
+**And at about the sixth hour he stood at the end of it and said nothing to anybody for about two hours, which is what a man does in a market of about nine hundred people. It is also what about nine people an hour do at a rail in a court hall four streets off, and about four hundred people a year go into that hall and have a true sentence of their own written on the wall for fourpence, and none of the three is about him.**
 
 **He did not go back to the court and ask for the sheet to be taken down. He has known for a day that he cannot and he went and looked for the way round it and there is not one, and the reason he did not ask is four inches long and it is a habit and not a principle and he has had it since the ninety-eighth:**
 

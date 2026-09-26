@@ -4,10 +4,6 @@ It was the fourth hour of the hundred and twenty-sixth day and Tomas Vale came d
 
 **He stood in front of it for about an hour and said nothing to anybody, and that is the whole of what he did in a market of about nine hundred people on the hundred and twenty-sixth day, and he is going to write down that it was the first thing he has done in a market in five weeks that was not about himself.**
 
----
-
-## And the sheet on that board is his, and it has been there ten days, and about two hundred people read it in about nine minutes on the first evening, and a market has been held every day since and nobody has counted and nobody is going to.
-
 **And the man at the right-hand end of the middle board had not got to it yet. It was lying loose on the board under about nine others, and the nails were in the board and the sheet was not on them, and the woman with the bag of pins and the hammer was two boards along and working at about the end of her row.**
 
 He could have stood there until she came.
@@ -16,17 +12,13 @@ He could have stood there until she came.
 
 He did not take it off the board and he did not stand there and he did not tell the woman with the bag of pins to hurry.
 
----
-
-## And then he went along to the river courts and stood in the long room, and there were about forty people in it, and he stood at the end of the rail for about an hour, and he did not read the top row of the board on the far wall.
-
 **There is still a new row at the top of that board and there is another one under it now, and the third one is his own four sentences, and the fourth and the fifth are two men he has been told about once each, four inches, at ten feet, in the ordinary voice, who do not know that he is in this city.**
+
+At about the fifth hour he went along to the river courts and stood in the long room, and there were about forty people in it, and he stood at the end of the rail for about an hour, and he did not read the top row of the board on the far wall.
 
 **He did not read the two rows above his. He stood at the end of a rail in a public room for about an hour with about forty people going in and out of a door propped with a bucket, and he did not ask a clerk one question, and he was not asked for anything, and he was not thanked and he thanked nobody.**
 
----
-
-## And then he went down to the arch at the foot of the top terrace and stood at the end of a counter about nine feet long with a notice over it that says **any person may bring a paper to this counter and ask what it is**, and there was no queue, and he stood there for about half an hour and said nothing to anybody.
+At about the fifth hour, the second time that hour, he went down to the arch at the foot of the top terrace and stood at the end of a counter about nine feet long with a notice over it that says **any person may bring a paper to this counter and ask what it is**, and there was no queue, and he stood there for about half an hour and said nothing to anybody.
 
 Perrin Lowe put his pen down and looked at him.
 
@@ -44,17 +36,11 @@ Perrin Lowe put his pen down and looked at him.
 
 Lowe went back to his paper.
 
----
-
-## And here is the whole of the hundred and twenty-sixth day, and it is one hour in a market and one hour at a rail and half an hour at a counter, and he arranged none of it and told nobody any of it.
+At about the seventh hour he had the whole of the hundred and twenty-sixth day, and it is one hour in a market and one hour at a rail and half an hour at a counter, and he arranged none of it and told nobody any of it, and he did the arithmetic of the three of them standing up, in streets, on the way.
 
 > *I have arranged nothing. **There is no plate, there is no clerk, there is no form, there is no copy, and there is not one person in this city who knows there are three of us, and I did not tell a single one of them today and I stood in three places and said nothing in all three.**
 >
 > *And the arranging is the whole of the damage, **and I am writing that down in the same words I wrote the asking down in on the hundred and sixth, because it is the same sentence with a different word in it and I have had five weeks to find out that it is always the same sentence.** I asked a man at a rail for a true sentence and that was the damage. I arranged three sets of terms in a room I paid for and that was the damage. **Every time I have made a thing move in a hundred and twenty-six days, the thing that did it was me organising people, and not one of them has ever once been thanked for it, and not one of them ever will be, and the reason is the same reason in every case and it is four inches long: the moment a man with no standing arranges a thing, the thing is about the man with no standing.**
-
----
-
-## And now the arithmetic of the three of them, and it took him the whole of the day and he did it standing up, in streets, on the way, and it is this.
 
 **It is not a network. It is not scalable. It cannot be done twice by one man or at all by nine hundred people. It is not a warning, because there is no claim in it, and there is nothing in it for a man to be warned about, and it moves nothing.**
 
@@ -68,9 +54,7 @@ Lowe went back to his paper.
 >
 > ***If there were three of me. And that is not a plan. It is not a stage. It is not going to be resolved in this city and I have stopped writing it at the bottom of a day as though putting it there were doing something.***
 
----
-
-## And here is what the three of them are worth, measured against three instruments, and he did it on a step at about the seventh hour and it is the least satisfying thing he has ever written down and it is true.
+And at about the seventh hour, the second time that hour, he did the value of the three of them against three instruments on a step, and it is the least satisfying thing he has ever written down and it is true, and then he wrote out the sentence, and it is the only sentence he has written in his own book on the hundred and twenty-sixth and it is the last one for a while.
 
 > *About four hundred people a year put a true sentence on that wall for fourpence. **It moves nothing. The record of it is in a book in that room and is there for forty years and any stranger can read it, and not one name on that wall is a disgrace and none of the about four hundred has ever changed a line.**
 >
@@ -82,27 +66,19 @@ Lowe went back to his paper.
 >
 > ***And the best civic act in a hundred and twenty-six days is something I did not arrange and cannot attend and am not going to find out about.***
 
----
-
-## And here is the sentence, and he wrote it out flat, and it is the only sentence in this book that he has written on the hundred and twenty-sixth and it is the last one for a while.
-
 > *A man who has proved an edit with a form, and published a true sentence about himself on a public wall, and lost the only sentence anybody had ever said about him, **is not going to be the man who says any of that was a victory.**
 >
 > *The edit is proved. **One plate, about nine hundred forms a year, a four-inch box at the end of every one of them, empty on one line out of about nine hundred, and nobody has struck a line through it, and a form that has been argued with has a line through it, and it can be checked in about four seconds by asking one clerk one question, and it moves nothing.** The sentence is published. **Four sentences, about ninety words, in my own name, in a public room, for fourpence, in about nine seconds, and nobody asked me why, and I noticed that nobody asked me and I wrote down that I noticed.** And the price of it is that the only document anybody could ever put on a table and say *this man* was four hundred words in the office's own hand whose last line says the person named produced nothing, **and I have made a second one and it says something, and the two of them are both inventory, and neither of them is going to say what I am for.**
 >
 > *And I have got eleven lines in a head that nobody may copy and cannot be given to anybody and cannot be made into metal, and a form that is the Office's, and a file I may not see, and a bench in a room off a lane, and a row on a public board in this city that I did not read on purpose. **And I have arranged none of it.**
 
----
-
-## And at about the ninth hour of the evening he was on a step at the foot of the top stair with the tarpaulin over the cradle and the four bolts made fast, and the sack rolled against the wheel, and a woman ten feet off his left shoulder, and the frame had not been in a building since the thirty-third and had not been in one all day and he had been in two rooms and had left the barrow at the bottom of the stair both times.
-
 He wrote the last entry of the hundred and twenty-sixth, and filled the first, second and third columns and left the fourth as it was.
 
-> *The hundred and twenty-sixth. **I stood in a market for about an hour, at a rail for about an hour, and at a counter for about half an hour, and I said nothing to anybody in all three, and I arranged none of it, and there is not one person in this city who knows there are three of us.**
+> *The hundred and twenty-sixth, at about the ninth hour of the evening. **I stood in a market for about an hour, at a rail for about an hour, and at a counter for about half an hour, and I said nothing to anybody in all three, and I arranged none of it, and there is not one person in this city who knows there are three of us.**
 >
 > *Second column, and the whole of the arranging. **The arranging is the whole of the damage, and I am writing it in the same words I wrote the asking down in on the hundred and sixth, because I have had five weeks to find out that it is one sentence and not two.** On the hundred and fifteenth a man with a pen behind his ear wrote down four sentences of mine for fourpence and it moved nothing, and the damage was that I asked him for it. **On the hundred and twentieth I paid for a room by the hour and put three sets of terms into it, and the damage was the same word with one letter changed.** Every time anything has moved in a hundred and twenty-six days the cause has been me organising people, **and not one of them has been thanked for it and not one of them ever will be, and the reason is four inches long: the instant a man with no standing arranges a thing, the thing stops being about anything except him.** No column on the Office's form can be filled in because of the three of us. There is no form. There is no plate.
 >
-> *Third column, ruled apart, and the arithmetic. **It is not a network, it is not scalable, it cannot be done twice by one man, and it is not a warning, because there is no claim in it and nothing in it for anybody to be warned about, and it moves nothing.** The only one of the three of us with a name on a board is me and I put it there on purpose, and about two hundred people read it in about nine minutes on the first evening and about nine of them will take it into four towns inside a year. **The other two have said no to being anything. One of them wrote it down on the hundred and sixth and underlined it and has not changed a word in twenty days. The other published a standing instruction in her own name on the hundred and fourteenth saying she will not be found and will not answer and will not be sent for, and she means it, and four lines of it are about a brother she has not asked about.** Nobody is thanked. Nobody is owed a visit.
+> *Third column, ruled apart, and the arithmetic. **It is not a network, it is not scalable, it cannot be done twice by one man, and it is not a warning, because there is no claim in it and nothing in it for anybody to be warned about, and it moves nothing.** The only one of the three of us with a name on a board is me and I put it there on purpose, and about two hundred people read it in about nine minutes on the first evening. **The other two have said no, each in her own words and on her own day, and neither of them has improved what she said since, and I have not read either of them again and I am not going to.** Nobody is thanked. Nobody is owed a visit.
 >
 > *And the count, and I have got one and not the other two, and the one is mine. **A man can hold one of the three answers and never two of them, and there is no form anywhere in this kingdom on which I could hold two.** That is a rule about counting and not a power and I am not going to write it down as one. A no said in advance is not an answer to anything, because there was never a claim put to either of them, **so I have got a no off one of the three of us and a sheet on a wall off the other, and that is what the arrangement is: three refusals and not one agreement.** If there were three of me. **And that is not a plan and it is not a stage and it is not going to be resolved in this city and I have stopped writing it at the bottom of a day as though putting it there were doing something.**
 >

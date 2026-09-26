@@ -10,29 +10,17 @@ She had a pitch of her own for about a week. She had it because a woman with nin
 
 **And about two hundred people read a board on a public wall in that market this morning, in about nine minutes, and about nine of them will take a name out of it in a different town inside a year, and she has been in a market of about nine hundred people a great many times in eleven years and she has never once in any of them had an office hear about a thing she said, and this week there is a name on a board and it is not hers and it is about a bell.**
 
----
-
-## And the thing she had come down here with was a true thing and there was nobody to say it to, and that is the whole of the hundred and twenty-third day and it took her about four seconds to work out and about nine minutes to stand in the middle of it.
-
 The true thing was this.
 
 **A man in a room off a lane has been on a bench since the fourth hour two days ago over a thing somebody said to him in the open for nothing, and the man on the bench cannot say what put him there, and the man who could say half of it will not say it either, and between the two of them there is a true fact that cannot be entered anywhere and cannot be produced by anybody.**
 
 **It is a form with four boxes and one of them is a day and the fourth one says the district's business, and two true things make a story, and a story is not a form.**
 
----
-
-## And she had a thing in her own book about it, and it is one line and she wrote it at about the fifth hour and it is the only line in that page.
-
 > *I have said a man's own sentence back to him at ten feet four times this month and every one of the four was the right thing to do and one of the four is a man on a bench and I do not know which of the four it was and I am not going to find out, and he will not know either, and that is the price and I priced it in a smith's shop on the fifty-first and I have not gone up on it.*
 
 **And that is the whole of her instrument and it is worth four in ten and it costs her the being in it every time, and a woman who says a thing at ten feet in a market does not get thanked for it and does not get asked why and does not get to be the one who is right in a room later.**
 
 She looked at about nine hundred faces in that market and she read every one of them, because she cannot hear and she has been reading mouths for eleven years, and not one of them was the face of anybody who could be told.
-
----
-
-## And then he said something at the edge of a pitch about nine feet off her, and she said it back to him, and it is four inches, and it is his own words, and it is about a column and not about his mother.
 
 He had been standing at the edge of the row for about an hour and he had said, to nobody, in the ordinary voice, as a man reads a mark off a sill while he is doing something else:
 
@@ -60,10 +48,6 @@ He did not move for a moment.
 
 And then she went and stood about nine feet further off, which is what she does.
 
----
-
-## And here is the price of the fourth instrument, and she said it out loud, in the ordinary voice, to a man ten feet off her left shoulder in a market of about nine hundred people, and she was not talking about him and she was not talking about herself.
-
 “**A thing in metal cannot be edited. A thing on paper is read for forty years and can be produced against you by a stranger. A thing said at ten feet in the open cannot be produced by anybody and dies with the people who heard it, one at a time, over about nine years.**”
 
 “**Yes.**”
@@ -80,17 +64,15 @@ And then she went and stood about nine feet further off, which is what she does.
 
 “**Yes.**” She said it flatly and she did not improve it. “**That is the price and I have not got one and neither have you, and I am not going to be the one who gives it to you and neither are you going to be the one who takes it off you.**”
 
----
-
-## And nobody asked her for a reason at any hour in a hundred and twenty-three days, and one of the two people in this business has been in a city of nine thousand people for twenty-eight days and has not asked her once, and she has not asked him once either, and there is a bag on her shoulder with a bell in it and it has not moved since a market of about nine hundred people on the ninety-second and it is not going to move this morning.
-
 **She did not take it out. She has it in a bag and it has been in that bag since before we left Kells and there is a market of about nine hundred people in this city in which she once rang it on her own account, and nothing since, and there is a thing in a man's head that could not be carried by any bell in this kingdom and the bell she has is the only one within nine feet of him and she did not take it out of the bag and she is not going to say one word about that to anybody, and if he asked her she would not tell him, and he is not going to ask her, and that is the arrangement and it is the correct one.**
 
 She did the price of it in a smith's shop on the fifty-first and she has not gone up on it in seventy-two days.
 
----
+At about the fifth hour she opened her own book and wrote one line in it, and it is the only line on that page, and it is about the four things she has said this month.
 
-## And here is the thing she is not going to call anything, and she worked it out standing at her own pitch in about the middle of the day with the string in her hand.
+At about the sixth hour she wrote out the chain of a man on a bench in her own hand, in about four inches, and she did not improve it.
+
+At about the seventh hour she worked out the thing she is not going to call anything, standing at her own pitch with the string in her hand.
 
 > *A thing in a head is the only instrument there is that a person cannot be made to give up. Not a clerk. Not a district. Not a man with a column. **Not me.**
 >
@@ -102,15 +84,11 @@ She did the price of it in a smith's shop on the fifty-first and she has not gon
 >
 > *I have one answer in a clerk's hall in Miremarket with my name at the head of it and the hour against it, since about the fifty-eighth, and I priced that too, and it is a different price and it is mine, and nobody is to ask me about it, **and he has not asked me about it for sixty-five days and he has known where it is for forty-one days and that is the correct arrangement and I am not going to be the one who improves it.**
 
----
-
-## And her four columns stand and nothing is merged, and the fourth one has two lines in it and she has not improved either and she is not going to.
-
 She filled the first and the second and the third and left the fourth as it was, on a slate, and she wrote the price side the other way up, and she did not put a question on it and she did not hand it to anybody, and the count is eight and it is eight.
 
 **And at about the ninth hour of the evening she was on a step by the river with the slate under her arm and the bag on her shoulder, and she wrote the last entry of the hundred and twenty-third and filled the first, second and third columns and left the fourth as it was.**
 
-> *The hundred and twenty-third. **About nine hundred people read a board in this market this morning in about nine minutes, and about nine of them will take a name out of it in another town inside a year, and the whole of the difference between this market and every other place a person can say a true thing in a capital is that it is on the ground and you cannot see the bottom of it from the top.**
+> *The hundred and twenty-third, at about the ninth hour of the evening. **About nine hundred people read a board in this market this morning in about nine minutes, and about nine of them will take a name out of it in another town inside a year, and the whole of the difference between this market and every other place a person can say a true thing in a capital is that it is on the ground and you cannot see the bottom of it from the top.**
 >
 > *Second column. **There is a man on a bench in a room off a lane over a thing somebody said to him in the open for nothing, and he cannot say what put him there, and the man who could say half of it will not say it, and between the two of them there is a true fact that cannot be entered and cannot be produced. Two true things make a story and a story is not a form.** I have said about four men's own sentences back to them at ten feet this month and every one of the four was the right thing to do and one of them is a bench and I do not know which and I am not going to find out.
 >

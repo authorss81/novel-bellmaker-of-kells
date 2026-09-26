@@ -4,10 +4,6 @@ It was the fourth hour of the hundred and twenty-fifth day and Tomas Vale was on
 
 **It is about a mile. There are nine bells in it. He counted them on the ninety-seventh and there were nine and none of them was sounding and none of them was broken, and the count of them is a figure nobody in this city keeps.**
 
----
-
-## And he went along it and at every one of the nine he asked the same three things, and he got an answer at four of them and no answer at five, and the answer at all nine was the hour.
-
 The first was over a gate in a yard and a man who had the yard looked at it and then at him.
 
 “**Do you strike it.**”
@@ -56,33 +52,29 @@ The fourth was in a boatyard and the man in it has been there nineteen years and
 
 “**That is the tide bell and I do not know who keeps it and I have not asked and you are the fourth person this year who has asked me about a bell.**”
 
+At about the fifth hour he was at the third and the fourth of the nine, a wharf and a boatyard, and he asked the same three things at each of them.
+
 “**What is it for.**”
 
 “**It is a bell.**”
 
 ---
 
+At about the sixth hour he did the finding on a step by the river with nine bells in a book in front of him, and it is the whole of a hundred and twenty-five days in one sentence, and it is not new, and he has known it since the hundred and fourth and had it in his own hand on the hundred and sixth.
+
 **And at the other five he got nothing at all, and the reason he got nothing at all is not that they are kept from him. It is that there is no answer to give, and a man who cannot give an answer cannot invent one, and I have spent five weeks finding that out in counters and rooms and this morning I found it out on a road, and a road is the cheapest place in the kingdom to find it out and it took me an hour.**
-
----
-
-## And here is the finding, and he did it on a step by the river at about the sixth hour with nine bells in a book, and it is the whole of a hundred and twenty-five days in one sentence and it is not new and he has known it since the hundred and fourth and had it in his own hand on the hundred and sixth.
 
 **A city of about nine thousand people has about nine hundred bells in it and not one of them is a keeper's bell and not one of them is a plain bell that somebody decided to hit, and every one of the nine hundred is the hour. A man in a town of about two thousand walks into a market. A man in a city of about nine thousand comes out of his own door at the hour.**
 
 **And a bell they have heard every day of their lives is not a signal to them. It is the hour. If I struck one this evening — not one of these nine, one of my own, in a place nobody has heard it in — then about a few hundred people in this city would come out of their doors, out of habit, in the ordinary way, the way two hundred people came out into a yard on the hundred and sixth and let a bell ring four times and went in again and made no noise. Not one of them would be an answer. Every one of them would be a person who heard a bell.**
 
----
-
-## And the shape of the thing he would be saying is the shape of everything he has ever made, and he wrote it out flat on a step, and it is four lines and it took him about nine minutes.
+At about the seventh hour he wrote the shape of the thing he would be saying out flat on the step, and it is four lines and it took him about nine minutes, and it is the shape of everything he has ever made.
 
 > *A warning names what it does not know. It names the maker's own fault. And it tells nobody what to decide. **That is the shape and it is the shape of every bell I have rung four times in my life, and it is the shape the whole of this trade is, and if I make a fifth it will be that shape or it will be nothing.**
 >
 > *And I have one keeper, which is me, and one carrier, which is in a sack against a wheel, and one answer, which is me. **A bell one man put up and one man struck is a man talking, and the whole of the difference between that and a warning is that anybody can walk away from a warning.** And I am one of the three answers and I cannot be two, and the second one I am, the first one stops being an answer and becomes a man saying the same thing twice, and there is no form in this kingdom on which a man could be two. **If there were three of me.**
 
----
-
-## And then the thing he cannot unhear, and it is the hundred and sixth and a yard on the top terrace and a man at a rail with a book of his own and no office, and he is going to write it out and then he is not going to write it out again.
+At about the seventh hour, the second time that hour, he wrote out the thing he cannot unhear.
 
 > *On the hundred and sixth, at about the sixth hour, in a yard on the top terrace, a bell about as big as a cartwheel went over a gate about nine feet high, and there was nothing on the plate, and about forty people read nothing and went in again, and about two hundred let it ring four times and made no noise, and a man turned a plate over and struck it four times whether or not there was anything on the plate.
 >
@@ -94,9 +86,7 @@ The fourth was in a boatyard and the man in it has been there nineteen years and
 >
 > ***If I put a sound into about a few hundred people in this city this evening, I have nothing to say that would survive being said by a stranger in four towns. And the instrument that would carry a true thing out of me in one evening and put it in front of every door in this city is the one instrument I have been refusing since before we left Kells, and it is the wrong shape for it, and both of those are true at once and I have not been able to get round either.***
 
----
-
-## And a bell is not a document and a document is not a bell and he was holding the difference in his two hands on a step by the water, and it is the only thing he has got that is worth the walk.
+And at about the seventh hour, the third time that hour, he was holding the difference between a bell and a document in his two hands on the step by the water, and it is the only thing he has got that is worth the walk.
 
 > *Everything I make is a thing a man cannot edit, and everything I write is a thing a man can produce against me by a stranger for forty years, and the difference between the two is not a matter of craft and it is not a matter of quality. **A claim in metal cannot be shown to anybody on a page and cannot be read by anybody who was not in the reach. A sentence on paper is read by every clerk who comes into a room after me, and it does not need me in the room, and it can be produced by a man I have never met and will not meet.** I proved that on the hundred and second in a market and I paid it on the hundred and fifteenth for fourpence in a public room and I have been carrying both halves of it in a coat for ten days and I am not going to put one of them on a wall to make the other one feel better.
 >
@@ -104,15 +94,15 @@ The fourth was in a boatyard and the man in it has been there nineteen years and
 >
 > *That is the difference and I am holding it in my two hands and I have been holding it for ten days and I have not found a form for it, **and there is no form in this kingdom for saying that a thing you cannot prove is the only thing you have, and if there were one then somebody with a column would ask me what I wanted it for.**
 
----
+At about the ninth hour of the evening he was on a step by the river with the tarpaulin over the cradle and the four bolts made fast, and he unrolled the sack.
 
-## And at about the ninth hour of the evening he was on a step by the river with the tarpaulin over the cradle and the four bolts made fast, and the sack rolled against the wheel, and he unrolled it and put his hand flat on the crown of a plain carrier of fourteen pounds two ounces with no wax in it and no dressed groove and only a caster's mark and a day, and it is not struck, and he rolled it up again and made it fast.
+**He put his hand flat on the crown of a plain carrier of fourteen pounds two ounces with no wax in it and no dressed groove and only a caster's mark and a day, and it is not struck, and he rolled it up again and made it fast.**
 
 **That is the third time. The first was on the hundred and sixth at about the eighth hour and the second was on the hundred and twenty-second, and the two of them were for different reasons and it is the same act three times now, and a man who has put his hand on the same crown three times in a hundred and twenty-five days is a man who is thinking about it, and I am not going to write down in this book what about.**
 
 He wrote the last entry of the hundred and twenty-fifth and filled the first, second and third columns and left the fourth as it was.
 
-> *The hundred and twenty-fifth. **Nine bells in a walk of about a mile and I asked three things at every one of them and I got an answer at four and nothing at five, and the answer at all nine was the hour.**
+> *The hundred and twenty-fifth, at about the ninth hour of the evening. **Nine bells in a walk of about a mile and I asked three things at every one of them and I got an answer at four and nothing at five, and the answer at all nine was the hour.**
 >
 > *Second column, and the finding, and I have had it since the hundred and fourth and this is the day I walked it. **About nine hundred bells in this city and not one of them a keeper's bell and not one of them a plain bell that somebody decided to hit, and every one of them is the hour.** A man in a town of about two thousand walks into a market. A man in a city of about nine thousand comes out of his own door at the hour. **If I struck one this evening then about a few hundred people would come out of their doors out of habit and not one of them would be an answer, and every one of them would be a person who heard a bell, and there is no form in this kingdom on which a person hearing a bell is a thing that got entered anywhere.**
 >

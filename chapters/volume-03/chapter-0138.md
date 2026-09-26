@@ -4,21 +4,15 @@ It was the fourth hour of the hundred and twenty-fourth day and Tomas Vale went 
 
 **He read his own four sentences for the fifth time in six days. It took about four seconds. There is nothing on the wall about him that he did not know on the hundredth day of this month and there is going to be nothing on it about him in a month's time that is not already on it now.**
 
----
-
-## And underneath his own four sentences there were two rows belonging to two men he has been told about exactly once each, four inches, at ten feet, in the ordinary voice, and neither of them knows he is in this city.
-
 **The third row down is a man with nine rows in a market and a wholesale rent. On the hundred and fifth he told a stranger in a market, without pointing, what it costs to be named, about somebody else, and Tomas Vale stood four feet off him and said nothing and did not thank him and is not going to tell him. And on the hundred and sixteenth Tomas was the somebody else and stood four feet off the same man while he sold for about nine minutes and then went and stood nine feet further off, which is a thing he learned from a woman.**
 
 **The fourth row down is a man with a barrow yard near the water and eleven years of a licence. He wrote eleven years on the back of his own hand in chalk, at his own rail, in his own yard, on his own day, and went back to his barrow, and it cost nothing and it is not a document and it is in his own name.**
 
 **And Tomas Vale's four sentences are on the wall above the two of them, about ninety words, for fourpence, on the hundred and fifteenth, and he put them there on purpose about himself, and there is no clerk in this kingdom who could take them off and there is no form anywhere that says a man may be unnamed once he has been named, and about two hundred people a day walk past that wall and not one of them stops, and about two hundred of them read his row in about nine minutes on the first evening.**
 
----
-
-## And a market has been held every day since and he has not counted and he is not going to, and the number of people who have read a row is not a number anybody keeps.
-
 Coll Salkeld had a pen behind his ear and about nine people in the room and a board.
+
+At about the fifth hour he asked about the bottom of the wall.
 
 “**The rows at the bottom come off.**”
 
@@ -34,19 +28,15 @@ Coll Salkeld had a pen behind his ear and about nine people in the room and a bo
 
 “**The book is the court's and it is on that rail and you may read it at any hour this room is open and I have never once had anybody ask me for a row out of it.**”
 
----
-
-## And here is the whole of what he found out, and it took him about four minutes, and he did not need a clerk for any part of it.
-
 **In five years there will be one place left in this kingdom where his four sentences exist and it will not be in this room, because this room is public and about nine hundred people a year come through the door and none of them stops, and the wall holds nine rows and about four hundred go on it a year. The book in this room keeps them, and the book is the court's, and a court does not send anything round.**
 
 **The district sends things round. The district makes a paper about every one of those rows and puts it in a cart and the cart goes to wards he cannot follow it to, and the paper has four boxes and one of them is a day, and the fourth one says the district's business, which is three words and not a reason, and it is not a lie, and it is a door closing.**
 
+At about the fifth hour, the second time that hour, he put it to the clerk the other way round and asked about the three words in the fourth box.
+
 *And the same three words are in the fourth box of a district's paper about a clerk of an upper room who put his own hand against a line on a public wall in a court hall four days' road from here on the hundred and third, and cost himself about four days of his working life, and a bench, and about a hundred yards of corridor. **I have never seen that paper and I am not going to ask anybody for it and he is not coming to this city and he is not owed a visit.** And the same three words go in that box about nine hundred times a year, and the box wants a reason and the office supplies three words, and the three words are not a lie, and a man who is right about the thing the box wants is still going to get three words.*
 
----
-
-## And the question he had come in with was whether the man who wrote down his four sentences is still writing, and the answer is that he is, and what it costs, and whether anybody has ever been told.
+At about the fifth hour, the third time that hour, he asked the three questions that are the whole of the thing, and he got three answers in about four seconds each.
 
 “**Are you still writing them down.**”
 
@@ -72,10 +62,6 @@ Salkeld put the pen behind his ear and then took it out and did not put it back.
 
 He said it flatly and he went back to his tray and it was the only sentence in about four seconds that Tomas Vale wrote down word for word in his own book that evening, and he wrote it down because it was better than what he had, and not because of the man.
 
----
-
-## And the reason a district has never been told is the fourth reason a chore is a chore, and Salkeld gave it in the ordinary way and was right.
-
 “**The day I was asked to keep the rows. That is about the only thing anybody has ever asked me to do in this hall that was not a row.**”
 
 “**When.**”
@@ -86,9 +72,7 @@ He said it flatly and he went back to his tray and it was the only sentence in a
 
 “**Because I have never once looked at the same row twice.**” He turned his hand over flat on the desk. “**That is the whole defence and it is the only one there is. **A person who is asked to do a thing about somebody else's business is doing it on somebody else's account, and there is no form on which it says who is holding it, and in about four years somebody with a column finds out about it, and it does not matter in the slightest that the person was right at the time. A man who has been entered in a column once does not get entered twice for nothing.**”
 
----
-
-## And he did not thank him, and he did not improve him, and he did not tell him that the row above his is why a file exists, and he wrote down that he did not and the reason is four inches long.
+At about the seventh hour he had worked out that he is not going to thank him and is not going to tell him, and the reason is four inches long.
 
 > *A man who keeps a gate in a yard four streets and four flights up said a thing to me on the hundred and sixth, at his own rail, in the ordinary voice, and I wrote it down that night and underlined it, and I have not told him one word of any of this and he is not owed a visit. Here is the shape of it in my own words, because I have had it for eighteen days and I have not used it:
 >
@@ -102,15 +86,13 @@ He said it flatly and he went back to his tray and it was the only sentence in a
 >
 > *And I did not thank him. **He is right, he is not sorry, he is not a door, and he has told me no and yes in the same six days and neither of them was for me. He is not going to be thanked by me and he has not asked for anything and I have not got a person in this city who has.**
 
----
-
-## And at about the ninth hour of the evening he was on a step at the foot of the top stair with the tarpaulin over the cradle and the four bolts made fast, the sack rolled against the wheel, and a woman ten feet off his left shoulder.
-
 **And the whole of the hundred and twenty-fourth is that he proved an edit with a form on the hundred and twelfth and made a true sentence for fourpence on the hundred and fifteenth, and on the hundred and twenty-fourth he stood in front of a wall and found out that both of the things he has done are public, and that the public one has nine rows on it and a book behind it, and that the only one of the two that will still be anywhere in five years is the copy, and the copy is a district's, and the copy is on a cart.**
+
+At about the seventh hour, the second time that hour, he had the finding, and it is that a name at the head of a thing is above every name under it, and he did not know that until this morning.
 
 > *The strongest thing I have proved in a hundred and twenty-four days is a fact a man in a room can see by reading, in about four seconds, off a form that any person in this kingdom may read. **And the second thing I have done is a true sentence of my own on a wall, for fourpence, and it is read by whoever walks past and it is rubbed out in a few weeks and the record of it is in a book in that room that does not leave the building.** And the third thing is on a cart going to wards I cannot follow it to, and it has a district's head on it and four boxes and a day in one of them and three words in the last one, and it is the only one of the three that is permanent, and I put it there on purpose.
 >
-> *And underneath my row, about nine rows down the wall, there are two men. **One of them told a stranger what it costs to be named and I have not told him that I am the somebody else. The other one wrote eleven years on the back of his own hand in chalk in his own yard and went back to his barrow, and he does not know that his row is under mine, and neither of them knows I am in this city, and I am not going to stand in front of either of them and say so.** They are under me because I put mine on last, and that is the whole of what it cost them, and it cost them about nine seconds of a clerk's time and nothing else at all.
+> *The hundred and twenty-fourth, at about the ninth hour of the evening, and I am on a step at the foot of the top stair with the tarpaulin over the cradle and the four bolts made fast and the sack rolled against the wheel and a woman ten feet off my left shoulder. **And underneath my row, about nine rows down the wall, there are two men. **One of them told a stranger what it costs to be named and I have not told him that I am the somebody else. The other one wrote eleven years on the back of his own hand in chalk in his own yard and went back to his barrow, and he does not know that his row is under mine, and neither of them knows I am in this city, and I am not going to stand in front of either of them and say so.** They are under me because I put mine on last, and that is the whole of what it cost them, and it cost them about nine seconds of a clerk's time and nothing else at all.
 >
 > *That is the price of being on top. **It is not a punishment. It is that a man who swears a true thing about himself, late, on purpose, in a room where nobody has to be told why, ends up above about forty people who swore theirs earlier and had better reasons, and a name at the head of a thing is above every name under it, and I did not know that until this morning and I have known for four years that a name at the head of a column is a thing about a person and not about a column.** I cannot un-name a man and I cannot un-name myself, and those are the same sentence, and I found that out in a public room with a pen behind a clerk's ear and a wall in front of me.
 >

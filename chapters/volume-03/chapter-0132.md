@@ -4,19 +4,13 @@ It was the fourth hour of the hundred and eighteenth day and Tomas Vale went dow
 
 **Nobody in this kingdom is wicked. That is not a softening and it is not a mercy, it is the ground, and the ground held for one hundred and eighteen days and it held this morning while a man in a room off a lane was told that a thing he had done in the open had a number.**
 
----
-
-## And the fourth box on that slip is the only one of the six that wants a name, and it is the box for the person who repeated a thing, and on the hundred and sixteenth a man filled it in with the name at the top of a sheet in a market.
-
 The slip was a Crown market slip and the six fields were the market, the day, the thing repeated, **the person who repeated it**, where it was said, and who heard it. Four of the six could be filled in by anybody standing there. The fourth one wanted a name and about four hundred people a year put one in and none of them were wicked and none of them were brave.
 
 **A box is cheaper than a witness and a witness can refuse. That is the whole of a market slip and it is four inches long and it has been true for eleven years in eleven counties.**
 
 He stood at that trestle and read the string and the weight and did not touch anything.
 
----
-
-## And then he asked a man in a market a question, and the man's name was Hob Kersey, and it was a fair question, and the answer cost the man a market.
+At about the fifth hour he asked a man in a market a question. It was a fair question and the man's name was Hob Kersey and the answer cost the man a market.
 
 Kersey had a pitch and a hand-cart and a licence for both and had held them long enough to have a worn place in the ground, and he was standing at his own pitch in the ordinary way.
 
@@ -30,10 +24,6 @@ Kersey had a pitch and a hand-cart and a licence for both and had held them long
 
 **And that is the whole of it. He was right about his pitch. He is still right about his pitch. He did the ordinary thing with an instrument that had been lying in the open in a market for a day, and the instrument was not his, and the cost of it is his.**
 
----
-
-## And the instrument that actually moved him cost nothing, and Tomas Vale stood in that market and found out that he will never know whose it was.
-
 Kersey had said his three things in the open and had got nowhere with them the first time, which is what happens to everybody, and then somebody in that market had come about ten feet off him and said his own three sentences back to him in the ordinary voice, and that had moved.
 
 **He does not know who. He has been asked twice in his life and both times he has said the same thing: *somebody. It was not you and it was not him and it was a woman with a tray and it was four inches long and she was gone before I got to her.***
@@ -42,11 +32,9 @@ Kersey had said his three things in the open and had got nowhere with them the f
 
 **So the four inches were free, and the four inches are always free, and the free ones are the ones nobody is asked about, and the ones anybody is asked about are the ones a man put up himself in his own name for fourpence on a wall and cannot take down.**
 
----
+**At about the sixth hour he found out where Hob Kersey was, and it was not a market. It was a lane off the middle terrace and a door at the top of the lane and a stair, and a room at the top of the stair with a form in it and a bench and a lamp on a table.
 
-## And at about the sixth hour he found out where Hob Kersey was, and it was not a market, and he walked there and it is a lane off the middle terrace and a door and a stair and a room with a form in it and a bench and a lamp.
-
-**The man who kept the room was called Nyle Prout and he was the district round and he had a printed slip with a number at the top of it, and he had been in this city for two days and he was doing a round and the round goes ward by ward and he was four wards from done.**
+The man who kept the room was called Nyle Prout and he was the district round and he had a printed slip with a number at the top of it, and he had been in this city for two days and he was doing a round and the round goes ward by ward and he was four wards from done.**
 
 Kersey was on the bench. He had his coat over his knees and his hands together and he was not angry, and when the door came he looked up and said *they have not let me have anything to sit on but that is a bench* and the man at the table said *that is a bench* and meant it.
 
@@ -55,10 +43,6 @@ Kersey was on the bench. He had his coat over his knees and his hands together a
 “**I am not on your round.**”
 
 “**No. And I am not sorry you are here, because you are not, and I have a slip and a number and I have about nine of these a day and about forty of them in a year and this is the first one in two days that has got a name in the fourth box that is not the market keeper's.**”
-
----
-
-## And the form in that room has four boxes and one of them is a day, and the fourth one is the ground, and it is full on about nine hundred matters a year and on this one it says three words.
 
 “**What is he held on.**”
 
@@ -82,11 +66,7 @@ Kersey was on the bench. He had his coat over his knees and his hands together a
 
 **And Tomas Vale stood in that room and understood the whole of it in about four seconds, and it is the ordinary way of a thing and there is not one step of it that anybody could have done differently.**
 
-*He claimed a thing said at ten feet in the open. There is no form in this kingdom for producing a thing said out loud. He has nothing. He is a claimant and a claimant is a person a district can put in a room with a form until somebody with a standing comes, and nobody with a standing is coming, and the round goes on to the next ward in the morning.*
-
----
-
-## And he offered the only thing he has, which is nothing, in the ordinary way, and he was refused correctly, and the refusal was about four seconds long.
+*He claimed a thing said at ten feet in the open. There is no form in this kingdom for producing a thing said out loud. He has nothing. He is a claimant and a claimant is a person a district can put in a room with a form until somebody with a standing comes, and nobody with a standing is coming, and the round goes on to the next ward in the morning. The fourth box on that form is the ground, and it is full on about nine hundred matters a year, and a ground is a thing a matter is stood on and not a reason for it.*
 
 “**He is in here on a paper about a man who has been named. You are not a party to it. You have no standing in this district and I cannot enter a word of yours on this form, and if I could I would not, because a word of yours would be the sixth name on a sheet about a man who has been named and this form has four boxes and one of them is a day.**”
 
@@ -106,19 +86,13 @@ Kersey was on the bench. He had his coat over his knees and his hands together a
 
 “**If you tell me that, then this district has a matter with a name at the top of it that a man has sworn to in open court, and a sworn answer goes round, and you have told me yourself that you cannot get a thing off a board once it is up. **And there is no form anywhere in this kingdom by which a man who has been named can be unnamed, and I would be doing it to you and not to him, and he would still be on the bench.** And I have a slip and a number and about nine of these a day and I am not going to be the man who puts your name at the top of a second one.**”
 
----
-
-## And he did not say it, and the not-saying is the whole of it, and the reason is four inches long and it is not care and it is not courage.
-
 **He stood in a room with a form in it and there was a man on a bench who had been held since the fourth hour on account of four inches and a box and a name, and the name at the top of the sheet was his, and he could have said so in about four seconds and it would have made a second matter with his name at the head of it and it would not have got the man off the bench.**
 
 > *A man can put his name on a district's paper exactly once by accident and he cannot take it off, and I found that out a day ago from a woman with a bag of pins, and I have spent the whole of today finding out what it costs when somebody else is standing in the room when it happens.*
 
 He did not use the slate. It was under his arm and it had been under his arm since the fourth hour and there is no box on anything in that room and he did not put a question on it, and he did not write that down either, because a man who keeps a count of what he does not ask is a man waiting to be owed.
 
----
-
-## And here is the price, and he did the arithmetic standing on a step outside and it came out where it always comes out.
+At about the seventh hour he did the arithmetic standing on a step outside, and it came out where it always comes out.
 
 **Nine days.**
 
@@ -128,11 +102,7 @@ Not nine days of a lighter and a cart — that was Fourmile, and that was a man 
 
 **And the instrument was four inches long and it cost nothing and it was somebody else's and he will never know whose, and the man on the bench is going to pay nine days for it, and Tomas Vale put the first four inches of it into the world on a public wall for fourpence and is not going to be told that by anybody in this city.**
 
----
-
-## And at about the ninth hour of the evening he was on a step at the foot of the top stair with the tarpaulin over the cradle and the four bolts made fast, and the sack rolled against the wheel, and a woman ten feet off his left shoulder, and he wrote the last entry of the hundred and eighteenth and filled the first, second and third columns and left the fourth as it was.
-
-> *The hundred and eighteenth. **A man is in a room with a form in it and it is my account, and every step of it is correct, and nobody in this kingdom is wicked, and I am not going to be able to do one single thing about it.**
+> *The hundred and eighteenth, at about the ninth hour of the evening. **A man is in a room with a form in it and it is my account, and every step of it is correct, and nobody in this kingdom is wicked, and I am not going to be able to do one single thing about it.**
 >
 > *Second column, and it took me about four seconds in that room and it is the whole of the day. **The office gave him a word and the word is the room. A name on a market slip saying a thing was said makes you somebody who has made a claim, and the whole of what that word buys the district is the power to ask him for it.** There is no form in this kingdom for producing a thing said out loud at ten feet, so he has nothing, and a person with nothing can be kept in a room until somebody with a standing comes, **and nobody with a standing is coming, and the round goes on to the next ward in the morning, and a witness could not have been put in that room at all and a witness is me and I have been let into every building in this city.**
 >

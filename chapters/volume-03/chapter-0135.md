@@ -6,17 +6,9 @@ It was the fourth hour of the hundred and twenty-first day and Tomas Vale went u
 
 He sat on it for about three hours.
 
----
-
-## And in three hours he learned what a public room is for, by being in it and asking for nothing, and the answer is that it is for people who are waiting, and about forty people a week come through that door and about one in ten of them is there about a matter of their own.
-
 **A bench is the only thing in this kingdom that a person may have in a room without a box on anything. Nobody asks a man why he is on a bench. Nobody asks a man why he got up off it either.**
 
 He read the rail. Four or five volumes on about nine feet of rail against the wall, and the record of any matter in the room is on it at any hour the room is open, and anybody may read it, and he has read one of them twice and has taken nothing out of it.
-
----
-
-## And at the seventh hour Hale was free and Tomas Vale asked the cheapest question in the kingdom for the second time in this city and it took about four seconds.
 
 Hale had a lamp and a tray and about nine folded forms on it and a bundle of about forty sheets tied at the middle with a string.
 
@@ -42,9 +34,7 @@ Hale put his pen down.
 
 “**Is empty. It is empty on every one of about nine hundred a year and it has been empty on every one since before I came.**”
 
----
-
-## And here is the part that turned the hundred and twenty-first over, and it is two columns that look the same and are not, and it is the whole of what he had and had not proved.
+At about the fifth hour he had the fourth box and the fifth column told apart, and they are not the same thing and it took him about four seconds to be sure of it.
 
 > *The fourth box on a form is the ground. It says what a matter is for, in about four words, and it is full on about nine hundred matters a year.
 >
@@ -54,9 +44,7 @@ Hale put his pen down.
 >
 > *And the box that is empty on one line is on a form that came into a room and was filled in by a clerk and nobody struck a line through it. **The column that is empty on nine hundred is ruled on a wall by somebody who made a rule in about the same shape and has never been asked whether it is the right shape.** Two men who will not write a word they cannot read back, four streets and four flights apart, and neither of them has ever heard of the other, and I have known that for nine days and I did not write it down at the time.
 
----
-
-## And he read the row. It is a public board and any person may stand in front of it as long as they like and nobody will ask them for a thing.
+At about the seventh hour Hale was free, and Tomas Vale asked the cheapest question in the kingdom for the second time in this city, and it took about four seconds.
 
 **The row was in the second place down off the top on the second board and he found it in about nine minutes and it is complete. A number. The district. The day. Four words. And the fifth column, empty.**
 
@@ -67,10 +55,6 @@ Hale put his pen down.
 > *A complete account of a thing and the ability to do anything about the thing are two different objects and the whole of a hundred and twenty-one days has been me carrying the first one in his head and wanting it to be the second one.*
 >
 > *I can stand in a public room and read a complete account of nine hundred things a year. **Nobody in this kingdom keeps an account of anything that is worse than this one and it is on a wall that anybody may walk up to, and about forty people a week go through that door and not one of them ever asks what any of it is for, because the column that says what it is for is empty and has been empty for four years.***
-
----
-
-## And a district's paper on a board and a district's paper in a file are the same paper, and the whole of the difference is who is allowed to know it is in the file.
 
 “**Is there a copy of that row anywhere anybody can get.**”
 
@@ -94,10 +78,6 @@ Hale looked at him for longer than he had looked at him on any of the five days.
 
 “**The printer is two streets off and there is one plate and it cuts about nine hundred a year and I did not go and look and I am not going to now, because I have got a lamp and about nine hundred a year and nothing else to do, and I have said no to you about the file and I would like to go back to my tray.**”
 
----
-
-## And the rule is older than the room and it is the reason he is going to be able to say what he says in the day-book tonight, and Hale said it first and did not know he had.
-
 “**One more thing and then I am going back to my tray.**”
 
 “**Say it.**”
@@ -108,19 +88,11 @@ Hale looked at him for longer than he had looked at him on any of the five days.
 
 “**It is not a wall either. **A wall is a thing a man puts up and a rule is a thing a man wrote down once for a reason and then forgot the reason for. If you want to be angry with it you have to be angry with it for about a hundred years and there is nobody alive to be angry with and that is not a comfort and it is not a defeat.**”
 
----
-
-## And here is the whole of the day, and it is the strongest thing he has and the second strongest thing he has and neither of them is a thing he may carry.
-
 **The strongest fact he has ever held against an office is that a form is a form, and one plate cuts about nine hundred a year, and a four-inch box at the end of one of them is empty, and it can be checked in about four seconds by asking one clerk one question, and it is on the page. The second strongest is that eleven lines in a fair hand at the back of a bundle in a room on this floor are the only words in the world that anybody has ever written about what his mother did. Both of them are on this floor. Both of them can be seen by reading. Neither of them can be carried, and neither of them can be given to anybody, and neither of them is in his coat, and he has got thirteen documents in a coat and not one of them is about him.**
 
 > *And the difference between carrying a thing and reading a thing is four inches long, and it is the same four inches as a court that publishes and an office that files, and I have had that sentence for thirteen days and this is where I found out it was not about buildings at all. **It is about a man with a barrow and a plate and a rule. About nine hundred forms a year come off that plate and any person in this kingdom may read any one of them, and a court will write a true thing down and keep it for forty years and any person may come in and read it, and a man with a barrow is standing in the middle of the most readable kingdom there has ever been and he has got nothing in his hands about himself and he never will.**
 
----
-
-## And at about the ninth hour of the evening he was on a step at the foot of the top stair with the tarpaulin over the cradle and the four bolts made fast and the sack rolled against the wheel, and a woman ten feet off his left shoulder, and he wrote the last entry of the hundred and twenty-first and filled the first, second and third columns and left the fourth as it was.
-
-> *The hundred and twenty-first. **A bench, three hours, and a complete account of a thing that cannot be used.**
+> *The hundred and twenty-first, at about the ninth hour of the evening. **A bench, three hours, and a complete account of a thing that cannot be used.**
 >
 > *I sat down. **I have stood in that room four times in five days and I have never sat on the bench and I worked out in about four seconds that I had not sat on it because a bench is where a man waits to be served and I am not here to be served, and there is no box in this kingdom on which a person has to say why they are on a bench.** About forty people a week go through that door and about nine of them were in there this morning. **I have been a reader in this building five times and this is the first time I have been a person in it.**
 >

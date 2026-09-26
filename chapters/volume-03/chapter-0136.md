@@ -2,11 +2,7 @@
 
 It was the fourth hour of the hundred and twenty-second day and Tomas Vale was on a street on the middle terrace with nothing in his hands, and he had been carrying eleven lines since the hundred and tenth, and he had been trying since the fourth hour of that day to find out what a thing in a head is for.
 
-**There are four instruments in this kingdom and a man may have any of them, and he had been offered the first three in five weeks and had refused two and lost the other, and this is what is left.**
-
----
-
-## A thing in metal cannot be edited. A thing on paper is read for forty years and can be produced by a stranger. A thing said at ten feet in the open cannot be produced by anybody and dies with the people who heard it. And a thing in a head cannot be got off him and cannot be given to anybody and dies with him.
+**There are four instruments in this kingdom and a man may have any of them, and he had been offered the first three in five weeks and had refused two and lost the other, and this is what is left: metal that cannot be edited, paper that is read for forty years and can be produced by a stranger, a thing said at ten feet in the open that dies with the people who heard it, and a thing in a head that cannot be got off him, cannot be given to anybody, and dies with him.**
 
 He went through them in that order in a street, on foot, with nothing in his hands.
 
@@ -20,15 +16,9 @@ He stopped in the street.
 
 “**And my mother's name is in it. That is the whole objection and it is not about me and it is about her, and a column has no family in it and a name does not, and I have written that down three times and I am not going to improve it in a month.**”
 
----
-
-## And so he went and looked at a bell, and there is a yard on this terrace with a gate and a frame over the gate and a bell on it, and he stood in the gateway for about half an hour and read the crown of it, and nobody stopped him.
+At about the fifth hour he went and looked at a bell. There is a yard on this terrace with a gate and a frame over the gate and a bell on it, and he went and stood in the gateway.
 
 **Nobody stopped him. He has been in this city twenty-seven days and he has been let into every room he has walked into and no clerk has asked him for a thing and no man at a counter has walked him up four flights and not one person in this city has ever once asked him what he is doing. He stood in a gateway for about half an hour with his hand on the outside of a bell and about nine people went past and none of them asked him a single question, and he has spent five weeks learning that the reason is that there is nothing here to be asked about, and it turns out that the same arrangement that lets a man be in a building lets him stand at a gate.**
-
----
-
-## And here is the whole of what a bellmaker can read off a bell in about four minutes without touching it, and it is the first time in four counties and a city that his trade has been the instrument of anything but his own life.
 
 The bell was about as big as a jug and it hung mouth down and it was not sounding and it was not broken, and there was a moulding round the shoulder of it and letters in the moulding and a mark and a day.
 
@@ -39,10 +29,6 @@ He read the crown.
 “**A caster's mark and a day. That is all of it. It is a plain bell with nothing in it — no wax, no dressed groove, only the mark of the man who poured it and the day he poured it — and it is the plainest instrument in this kingdom and it says the maker's name and the day and not one word about anything.**”
 
 “**And it is not sounding and it is not broken and it is waiting. That is what a bell that is not sounding and not broken is. There are about nine hundred of these in this city and not one of them is a keeper's bell and not one of them is a plain bell somebody decided to hit, and about nine hundred of them are the hour.**”
-
----
-
-## And the man who had the yard said one sentence while Tomas Vale was standing in the gate of it, and then went back to what he was doing, and it was not a clerk's sentence and it was not a question.
 
 “**That has been on that frame since the frame was new.**”
 
@@ -56,9 +42,7 @@ He read the crown.
 
 **And Tomas Vale went through it.**
 
----
-
-## And here is the shape of the thing he is not going to do, and it is the shape of everything he has ever made, and he worked it out standing at a step at the foot of a lane with a barrow above him.
+At about the sixth hour he worked out the shape of the thing he is not going to do, and it is the shape of everything he has ever made, and he worked it out standing at a step at the foot of a lane with a barrow above him.
 
 *A warning names what it does not know, and it names the maker's own fault, and it tells nobody what to decide. That is the shape. It has been the shape four times in his life and it is the shape the whole of this trade is.*
 
@@ -74,29 +58,25 @@ He wrote it out and read it back and then he wrote out what it would mean and he
 >
 > ***If there were three of me.***
 
----
-
-## And the finding of the hundred and twenty-second is the trade and not a feeling, and he had it on a step at about the seventh hour and he wrote it out flat because a man has to write down the things he works out or he will do them in a month and call them new.
-
 > *Everything I make is a thing a man cannot edit. That is the whole of why I make them and it has been the whole of why since I was in a yard at nine years old, and not one hour in a hundred and twenty-two days has gone by when I have not been able to look at a thing I have struck and know it is going to be exactly what I said it was on the day I said it.
 >
 > *And I have got a piece of paper in a fold in a bundle on a rail that a man cannot edit in either. **It is eleven lines long and it is the truest thing I have ever read and it is in a fair hand in a room anybody may walk into, and the office that wrote it could have crossed out the duty and kept the outcome and nobody would ever have known that I had read it, and I could not have proved it in a market, and there is nothing I can strike.**
 >
 > *So the third thing is the one I have no instrument for. **A thing in metal, a thing on paper, a thing in the air at ten feet, a thing in a head. I have two of them that are mine and one of the two is the court's, and the one that is mine is in a head.** A head is not a trade. There is no craft in it and there is no clause about it and there is no plate in a printer's room two streets off that cuts one, and the only person in this kingdom who has ever said what it is worth said it on the hundred and thirteenth at ten feet in the ordinary voice and she was talking about a rope and not about me.
 >
+At about the seventh hour he had the finding of the hundred and twenty-second, and it is the trade and not a feeling, and he wrote it out flat because a man has to write down the things he works out or he will do them in a month and call them new.
+
 > ***And here is the part I have had for two days and have not once been able to put down: it is the only thing nobody can take off me and it is the only thing I cannot use. That is not a punishment. A maker's whole life is work that cannot be edited, and I have spent five weeks refusing the instrument that carries it, and I have finally made one, and it is the only thing I have ever made that I cannot hand to anybody and cannot show to anybody and cannot put up over a gate, and it is the only one of the four that nothing in this kingdom can get hold of, including the Office, and the price of it is that it is worth exactly nothing to anybody else, and that is the trade, and I would not know what else to call it if it did not have a name in it.***
 >
 > *And the record does not say one word about what became of her and I am not going to write that down either, and I have not written it down once in twelve days and I am not going to now, and the reason is four inches long and it is that a man who writes three things down in a book has made a list. **I have got a duty she accepted and no sentence at all and the difference between the two is a four-inch box at the end of a form, and there is nothing whatever I can do with the duty and I have stopped thinking that there should be.***
 
----
+At about the ninth hour of the evening he was on a step with the sack unrolled.
 
-## And he did not ring anything, and at about the ninth hour of the evening he was on a step with the sack unrolled and his hand flat on the crown of a plain carrier, and he put it back in the sack and rolled it, and it is not struck, and he has not struck it in forty-five days.
-
-**He put his hand on it a second time today. He put it on it at about the eighth hour on the hundred and sixth and put it back, and he wrote that down at the time, and this is the second time and it is not the same reason and it is the same act, and a man who does the same act twice for different reasons is still a man who has done it twice.**
+**He put his hand on it a second time today. He put it on it at about the eighth hour on the hundred and sixth and put it back, and he wrote that down at the time, and this is the second time and it is not the same reason and it is the same act, and a man who does the same act twice for different reasons is still a man who has done it twice. It is not struck, and he has not struck it in forty-five days.**
 
 He wrote the last entry of the hundred and twenty-second and filled the first, second and third columns and left the fourth as it was.
 
-> *The hundred and twenty-second. **What a man does with a proof he may not file is that he looks at a bell in a gateway, and then he does not ring it, and then he writes down the whole of the arithmetic so that nobody can say afterwards that it was courage.**
+> *The hundred and twenty-second, at about the ninth hour of the evening. **What a man does with a proof he may not file is that he looks at a bell in a gateway, and then he does not ring it, and then he writes down the whole of the arithmetic so that nobody can say afterwards that it was courage.**
 >
 > *Second column, and the four. **Metal: I have one bell in a sack and one in a cradle with nothing in it that can strike and one in a sealed yard in a county I have left, and the receipt forbids any person from putting anything into that one, and no bell I have made is unbarred anywhere in this kingdom.** Paper: read for forty years, produced against me by a stranger, twice this month, one of the two at fourpence and my own hand. Ten feet: about nine hundred would hear eleven lines and about nine of them would carry it into four towns and every one of them right the first time and more wrong after that, **and my mother's name is in it and that is the whole objection and it is not about me.** A head: cannot be got off me, cannot be given to anybody, dies with me, worth nothing to anybody including me.
 >

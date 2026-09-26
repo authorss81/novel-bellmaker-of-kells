@@ -4,11 +4,9 @@ It was the fourth hour of the hundred and nineteenth day and Tomas Vale went up 
 
 **It has not moved. It is not dusty in a way that would tell him anything and it has not been taken down and it has not been added to, and about two hundred people a day walk past that wall and not one of them stops.**
 
----
-
-## And the thing on the next board along had been there two days, and it had a name at the top of it, and the name was not his.
-
 Two nails in it, about four inches apart at the top corners, and one of them not straight.
+
+At about the fifth hour he was still on the top terrace and he read the next board along.
 
 **It is a district's paper about a person in a market. Four fields. One of them is a day.**
 
@@ -20,9 +18,7 @@ He read it standing up in about a minute and a half, and the second field is the
 
 He did not take it off the board. That is the fourth time and it is the same decision.
 
----
-
-## And then he came down off the top terrace and went along to the river courts and he did not read the top row of a public board in a public room, and there is no form in this kingdom that says he may or may not.
+At about the fifth hour he came down off the top terrace and went along to the river courts, up four steps through a door propped with a bucket, and there is no form in this kingdom that says whether he may read the top row of a public board in a public room or whether he may not.
 
 The long room had about forty people in it in the ordinary way and the board on the far wall was in three columns and the third was a column of hours.
 
@@ -48,10 +44,6 @@ Salkeld put the pen behind his ear and then took it out again and put it back, w
 
 “**No.**”
 
----
-
-## And the reason is four inches long and it is not care and it is not a rule and it is a thing he worked out standing at a rail with his hand on it.
-
 > *She published a standing instruction in her own name on a public board on the hundred and fourteenth and said she will not be found and will not answer and will not be sent for, and that a person who wants a thing from her may go and ask a board. **Not me. A board.**
 >
 > *And a board is not a question and a board does not answer. It is the only surface in this kingdom that a person owes nobody a why on, and that is exactly why she put it there, and it is exactly why I have not been able to read one line of it as being for me since the day she wrote it.
@@ -62,21 +54,15 @@ Salkeld put the pen behind his ear and then took it out again and put it back, w
 
 He stood nine feet off that rail for about a quarter of an hour and did not read the top row and Salkeld went back to his pen and about nine people came in and out of the door and not one of them looked at the man standing nine feet off not reading.
 
+**The reason is four inches long and it is not care and it is not a rule, and he worked it out standing at that rail with his hand on it.**
+
 **And nobody in that room asked the woman who swore it why, because there is no box on that form for a reason, and a person swearing to a thing about herself does not owe anybody a why, and that is the cheapest thing that has ever happened in this city and it cost her fourpence and it moved nothing.**
-
----
-
-## And he is not going to be thanked for it, and he is not going to thank her, and he is not going to find out what she said, and the not-finding-out is the whole of what he gets.
 
 **There is a person in this city of about nine thousand who is a stranger to him and who has done a thing this week, on her own account, in the open, in a room with a clerk in it, that is about the arrangement of a man who is not the clerk of it. And she did it and told nobody and asked for nothing and he cannot meet her and cannot write to her and cannot thank her and cannot be seen to know.**
 
 > *A person can do a thing for you on your account and refuse to be thanked and refuse to be met, **and the refusal is not a wound. It is the shape of the person.** I have been carrying her for six years as a thing I lost and I have written that down in this book twice and it is the wrong sentence, and I have known it was the wrong sentence since the hundred and fourteenth and I have not been able to correct it because correcting it would be a thing I did about myself.
 >
 > *And a thing she did in a public room about a person is not about that person. **It is about a column and a duty and whatever it is she has been doing that she has never told me, and I am not going to be the man who works it out of a row on a wall and calls it finding out.**
-
----
-
-## And here is the thing he cannot get round, and it is nine days and a bench, and it is the two men in this business who both know the true thing and neither of them can say it.
 
 Hob Kersey is in a room with a form in it. He cannot say what put him there.
 
@@ -90,9 +76,7 @@ Hob Kersey is in a room with a form in it. He cannot say what put him there.
 
 **And that is the most expensive thing I have found out in a hundred and nineteen days, and it is not a thing anybody can be thanked for or told or written down, and I have got exactly one instrument in this kingdom that cannot be taken off me, and it is a head, and I cannot give it to him, and he is on a bench because of it.**
 
----
-
-## And he did not go to her, and he did not write, and he did not stand outside a building on her account, for the third time, on the third and worst of three reasons he wrote out flat on the ninety-first.
+At about the seventh hour he wrote the three reasons out flat in his own book, and they are the reasons he wrote out flat on the ninety-first, and the third of them is the one he is using.
 
 > *There are three reasons I have not gone and not written, and the first two are good and the third is the one I am using.*
 >
@@ -104,13 +88,9 @@ Hob Kersey is in a room with a form in it. He cannot say what put him there.
 >
 > *So I am not going. And I did not come back up. I was at the top of the stair at the fourth hour with the barrow at the bottom of it and there is a wall four streets and four flights above my head with a woman's name at the foot of one sheet and a district's paper with somebody else's name on another, **and I have been down here all day, and I am not going to be the man who stands under his own rule and watches it get soft.**
 
----
-
-## And at about the ninth hour of the evening he was on a step at the foot of that same stair with the tarpaulin over the cradle and the four bolts made fast, and the sack rolled against the wheel, and the frame had not been in a building since the thirty-third, and a woman ten feet off his left shoulder said nothing at all and was not asked.
-
 He wrote the last entry of the hundred and nineteenth, and filled the first and second columns and left the third and the fourth as they were.
 
-> *The hundred and nineteenth. **She chose once, on her own account, and I am not thanked for it, and I cannot thank her, and I did not read it, and I am not going to find out what she said.**
+> *The hundred and nineteenth, at about the ninth hour of the evening. **She chose once, on her own account, and I am not thanked for it, and I cannot thank her, and I did not read it, and I am not going to find out what she said.**
 >
 > *Second column, and what I know, which is four sentences and no more. **A woman swore a true thing about herself in a public room in this city on the hundred and eighteenth, at a counter, in her own name, for fourpence, and a clerk wrote it down in a column with an hour against it, and nobody asked her why, because there is no box on that form for a reason.** She did it because it would otherwise be published for her. **That is the whole of what I have and I am not going to improve it and I am not going to go and look.**
 >
