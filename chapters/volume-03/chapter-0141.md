@@ -80,7 +80,7 @@ At about the eighth hour he unrolled the sack.
 
 **That is the fourth time. The first was on the hundred and sixth and the second was on the hundred and twenty-second and the third was on the hundred and twenty-fifth, and it is the same act four times now and a different reason each time, and a man who has put his hand on the same crown four times in a hundred and twenty-seven days is a man who has run out of reasons, and this is the last of them.**
 
-**I put a post in a bank today with a bracket on it and nothing to go in the bracket, and I built the only thing I have wanted to build in ten weeks, and there is no bell in this city that will take a claim from me, and a man who has built a mount and has nothing to hang on it is a man who has finished doing that. So that is the fourth one and it is the last one and I know it is the last one while I am doing it, and I am not going to write down in this book what the last one was about, because I have not got to that, and because a man who writes down why he has stopped doing a thing is a man who has started it again.**
+**I put a post in a bank today with a bracket on it and nothing to go in the bracket, and I built the only thing I have wanted to build in ten weeks, and there is no bell in this city that will take a claim from me, and a man who has built a mount and has nothing to hang on it is a man who has finished doing that. So that is the fourth one and it is the last one and I know it is the last one while I am doing it, and I am not going to write down in my own book what the last one was about, because I have not got to that, and because a man who writes down why he has stopped doing a thing is a man who has started it again.**
 
 He rolled it up and made it fast.
 

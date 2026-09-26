@@ -72,7 +72,7 @@ He shut the shutter and Tomas Vale went away from the counter about a foot highe
 
 The letter came at about the seventh hour, into a room over a shop on the middle terrace that he had paid for by the hour, and it had come by a road post and it was from Kells and it was from Oren Pike.
 
-**One letter from Kells in a hundred and thirty-five days, and I have been in this city thirty-five days, and nobody from Kells has come up this road and nobody is going to.**
+**One letter from Kells in a hundred and thirty-five days, and I have been in this city forty days, and nobody from Kells has come up this road and nobody is going to.**
 
 He opened it and it was four sides and the first two were about a thing that had gone wrong in a yard in a county he has left, and the third side was this:
 
