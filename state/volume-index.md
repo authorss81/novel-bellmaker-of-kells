@@ -37,7 +37,8 @@ Read these five. Everything else in `state/` is history and should be opened onl
 | 0012 | 03 | `workspace/volume-03/batch-0002/` | 111–120 | 97–106 | `state/batch-0012-summary.md` | spent |
 | 0013 | 03 | `workspace/volume-03/batch-0003/` | 121–130 | 107–116 | `state/batch-0013-summary.md` | spent |
 | 0014 | 03 | `workspace/volume-03/batch-0004/` | 131–140 | 117–126 | `state/batch-0014-summary.md` | spent |
-| 0015 | 03 | `workspace/volume-03/batch-0005/` | 141–150 | 127–136 | — | **next** |
+| 0015 | 03 | `workspace/volume-03/batch-0005/` | 141–150 | 127–136 | `state/batch-0015-summary.md` | **spent — the volume is close** |
+| — | 04 | **no phase directory, no outline, no cards** | 151– | 137– | — | **Volume 04 has no plan yet and that is the first real gap in the planning layer since Volume 03's** |
 
 **The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five; Volume 03 has five.
 
