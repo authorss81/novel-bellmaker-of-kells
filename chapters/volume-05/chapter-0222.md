@@ -1,0 +1,83 @@
+# Chapter 0222 — Four Planks and a Handrail Over a Drain, and the Terms Working With Nobody Deciding Anything
+
+It was the second hour of the two hundred and eighth day and Roy Dabney was soaking oak in a trough behind his shop, and he soaks it overnight and sets it on end to drain at the second hour, and a cooper who is not at his trough at the second hour is a cooper who has been somewhere else, and he has not been anywhere else in about nine years.
+
+There were nine staves standing on end in the water in a row, the way he has always stood them, the big ones at the left-hand end and the small ones at the right, and he counts them by touching the top of each one as he comes past and does not say the numbers.
+
+The shop was at the fourth mile on the top road, and the row of about nine doors it stood among went down to the water off a lane, and at the head of the lane, where the lane crossed the drain, there had been four planks and a handrail since before he took the shop, and on the night before there had been two planks and a handrail that was not on the side of the drain any more.
+
+---
+
+At about the third hour Tomas Vale came up the top road with the barrow and stopped about nine foot off the trough, and looked down the lane at what was there, and did not ask, and the man at the trough counted three more staves before he said anything.
+
+"**Drove**," he said.
+
+"Yes."
+
+"**There are about nine feet of black ground in that drain and there are beast prints in it from the heel to the water and a print of one that came down sideways, and I have walked down here every day for about nine years and I have never once seen a beast go over those planks in daylight, and I have seen it four times at about the second hour with a light on the low side of this water.**" He put his hand flat on the top of the last stave. "That is a drove, and it is not nine beasts, it is about forty, and it came off the low road in the dark and went up the top road and wanted the straight line."
+
+"Whose beasts."
+
+"**That I do not know and that is the part that has me standing in my own trough at the second hour.**"
+
+---
+
+At about the fourth hour the two of them were down in the lane and the light was coming up off the water, and Tamsin Rook went over what was left of it with a load on her arm and came back the other way, and nobody asked her anything and nobody said anything to her that was not about the going, and Roy Dabney watched her go round twice and said nothing about the second time.
+
+"That is about two miles of bank for a load of nothing," Tomas Vale said.
+
+"That is two miles and a good quarter of an hour for a load of nothing, and she has gone round twice in a quarter of an hour and she did not say a word about it, and I am not going to be the man who works out what a thing costs a person by watching her do it." He put a boot on the broken end of the second plank. "**That is oak. Four planks and a handrail, and the handrail was ash because ash is the only thing in nine miles worth a handrail. It went in about a year ago by four men of this row at about the second hour after a week of rain, and none of them is a man who could tell you about it, and I know which four they were, and I am not going to say, and here is why I am not going to say.**"
+
+"Because they would be the men who can be blamed."
+
+"**Because they would be the men who can be blamed and there is no book.**" He took his boot off the plank. "You have been on this water about three weeks and I am going to tell you a thing about this row and then I am going to get back to my oak. **A thing nobody can be blamed for gets done. A thing somebody can be blamed for goes in a book. That is the whole of the arrangement in nine miles of water and it is not written anywhere, and every man on this reach has it in his mouth and about half of them have never heard themselves say it.** Those four men mended that footway in the wet with no book, and nobody could be blamed for it, so it got done, and it stood a year under about nine hundred cart loads, and now it is in the drain and no man in nine miles can be sent for."
+
+---
+
+At about the seventh hour a woman came up the lane from the row of doors with a pail and saw the two of them standing over the drain, and stopped, and then came the long way without a word, and Roy Dabney watched her go round and put his hands in his pockets.
+
+Two of the doors in that row came open while the three of them were in the lane, and both times the man that came out looked at the drain and then at the two miles of bank and then went back in, and neither of them asked the other whether there was another way, because there was only the one other way and both of them knew where it was. It is about nine doors and about nine households and every one of them will do that about four times a day until somebody puts a footway back, and about four in five of them will not be the one who says anything about it, and the fifth will say something to the wrong person, and that is a fact about lanes and not about anybody.
+
+"That is the second today," he said. "That will be the ninth this week. **I am not going to tell you the cost. I am going to tell you the cost, and I am going to be exact about it, because you are a man who writes things down and I would rather be exact than be described.**"
+
+"Go on."
+
+"**I buy my oak off a man four acres over on the other side of that drain and it comes on a barrow. Thirty-odd barrow-loads a year, a stave at a time, and a stave is wet and it is nine foot and it is the one thing in my trade that will not go round and cannot be left.** Before, I could put a barrow on those four planks and stand on the other side and shout. Now I go round, and I go round with a wet nine-foot stave on my shoulder, and about two miles of bank is not two miles of road, and I have been doing it four times today and I am going to do it again before the light." He looked at the broken handrail in the drain. "**That is not a week's work. That is a week's work. Thirty loads a year and I lose about a day and a half of it every time I make a round, and the round is now a day, and I do not lose a day, I lose the day and I lose the round.** And nobody on nine miles of water is going to be told that a cooper at the fourth mile is a day behind, and I am not going to tell it to anybody, and that is not modesty. **If I say that out loud it becomes a thing somebody will mend. And a thing somebody will mend is a thing in a book, and a thing in a book is a thing somebody can be sent for.**"
+
+---
+
+At about the eleventh hour it had gone dark and he had got the oak in and the shop shut, and he had a handful of splinters out of the broken plank ends in his hand and was not doing anything with them, and he had been holding them for the better part of an hour.
+
+"There is a thing I have not said and I am going to say it and then I am going to put the splinters down," he said. "**The oak is a year away.** That is what a cooper is. A man who makes pails has his wood in the ground for a year and he can put it in wet and it is not his for about nine months, and I have about nine feet of it standing in a trough in the cold behind me that I cannot bend, and I cannot get at the far bank, and I cannot bend it, and the far bank is where the next of it is. So the next nine months of my trade are sitting in a field four acres over a drain with a miller's cart on it that does not stop for anybody. **I have not said that to anybody and I am not going to, because the moment I say it out loud it is a thing about me, and a thing about me is a thing somebody can be kind about, and kind is a thing on nine miles of water that costs the other one.** I am telling you and you are a stranger with a barrow and you will be gone by the middle of the week."
+
+"You have a barrow," he said, "and I have a trade, and between us we have not got a road. I am going to say the last of it and then I am going to shut the shop."
+
+"Say it."
+
+"**A drove wants a line. A line on a sheet is not a line on a bank, and a sheet is the one anybody believes.** There is a man on this water with a book of where his beasts go, and it is not a district's book and there is no form in this kingdom that could ask to see it, and it is in a house about a mile up, and I am not telling you whose, and I have known for about nine years what is in it and where the short cut is, and I have never once said it to him and I am not going to today. **And a short cut over a footway is not a road. It is a place a thing stops and gets over.** That is all of it. Nothing on nine miles of water decided anything. A man with a book drew a line where there was a way, and about forty beasts came up it in the dark, and a handrail went into a drain, and four men did not get a book, and now I am a day behind on oak with nothing in the world to be angry at and nobody I could be angry *at*, and that is the shape of the whole thing and I have had nine years to look at it." He put the splinters down. "**You can write that down. I am not going to say it twice and I am not going to say it to him.**"
+
+---
+
+At about the ninth hour of the evening there was a barrow on flat ground above the lower end with the four bolts made fast, and about two miles up the top road a cooper was putting nine staves up on end in a row in the order he has always put them up in, and about nine doors on a lane were doing without a footway, and a woman had carried a pail the long way round for the third time that day and would do it again in the morning, and nobody on nine miles of water would ever be told any of it.
+
+Tomas Vale had no sentence. He had a thing that gets done and a thing that goes in a book and a line on a sheet that is not a line on a bank, and three of those were true trades' sentences and one of them was somebody else's, and he had heard all four in four different mouths in about ten days and had not once seen anybody decide anything.
+
+He wrote it down in four lines and ruled a bar between the first two and the last two, and then he read the bar back and did not cross it out, and he wrote under it that he had put it there because a bar is the only mark the book has for *do not put these next to each other*, and that he had been in the habit of thinking a bar meant *these are one and I have proved it*, and that it did not, and that a gravedigger had told him on the day before that the only finding on nine miles of water was that there was no hole, and that he was not going to put a hole in his own book while a man was still in one.
+
+He did not thank the cooper. He noticed that he had wanted to, twice, and that there is no form in this kingdom on which a thing like that is entered, and that a man who is standing in a drain at the dark with splinters in his hand does not get thanked by a man with a barrow and neither of them would know what to do with it.
+
+
+
+> *Day two of the ten. The two hundred and eighth, at about the ninth hour of the evening, on flat ground above the lower end of the reach. A trough with nine staves standing in it, a shop at the fourth mile, four planks over a drain of which two are in it, an ash handrail, about nine doors and a lane, beast prints, a detour of about two miles, a barrow, four bolts, a leaf in a book.*
+>
+> *Second column, the four terms, and nobody decided any of them. **A drove wants a line, and a line on a sheet is not a line on a bank and the sheet is the one that gets believed; a short cut over a footway is not a road, it is a place a thing stops and gets over; a man's yes belongs to the man and not to the beast, and about forty beasts were fed on ground beside a footway belonging to a man who was not asked; and a thing nobody can be blamed for gets done while a thing somebody can be blamed for goes in a book, and there is no book.** Four men mended it in the wet a year ago and none of them can be sent for, and that is the reason he gave. **A handrail went into a drain in the dark and about forty beasts were not there in the morning, and the man with the drove book is a mile up and I am not going to find out whose.**
+>
+> *Second column, the cost, and he would not let me call it a cost until he had been exact. **Nine foot of wet oak on the shoulder and two miles of bank, thirty-odd loads a year, and he loses the day and he loses the round.** A woman with a pail went the long way three times and I counted and I am not going to write down what it cost her, because he told me not to and because I do not know. She crossed what was left of it with a load on her arm and came back twice more inside a quarter of an hour, and **nobody asked her anything, and nobody said anything to her that was not about the going, and I stood nine foot off her and watched and said nothing.**
+>
+> *Third column, the bar, and this is the finding of the day. **A thing that gets done and a thing that goes in a book is one of the terms and I have been carrying it a week without knowing which trade it came out of. A man with a besom gave me three sentences and would not join them; a gravedigger gave me a shape yesterday and would not give it a name; a cooper put this one in his own words today and would not say it twice and would not say it to the man whose book it is.** Three trades and three grammars, and I have ruled a bar between two pairs of them, and the bar is not a proof. **A bar in that book means do not put these next to each other, and I have been reading the other half of the mark wrong for a week, and a man in a hole on this water has been on the same correction for twelve years.** About nine doors on a lane, and every one of them will do about four goes a day until a footway goes back, and about four in five of them will not say anything about it and the fifth will say it to the wrong person, and that is a fact about lanes and not about anybody.
+>
+> *Third column, the six things I cannot fix, and they are the same six. **Nine houses of a front row wet and two hundred and twenty-nine people dry; about forty people in a yard who were never told anything; a barge of nine tons of dressed stone upright in seven foot of water; a dressed sill half in and about nine days; a rate to be set in a fortnight by nine men who will not agree; and about four people on nine miles of water who do not know a district's clerk came up here and put one line in a drawer.** They do not change in a week. The schedule went into my hands on the hundred and thirty-fourth day and it is seventy-four days in my pocket, and the eleven lines are out of the same day, and the name is a woman's name in the same pocket and is seventy-four days, and I have not used it for anything.
+>
+> *The five clauses stand and I am not going through them. Four bolts made fast at the fourth hour on the hard standing by the butt of a trough and again at the seventh. **The frame has not been in a building since the thirty-third, a hundred and seventy-five days, and there is a shop roof three foot off that barrow with a man at his own trade in it, and I did not put a cradle in it, and the reason is not the second clause: a man who is a day behind on oak does not want a stranger's barrow brought up to his trough while he is standing in it.** The carrier in the sack, **a hundred and thirty-one days out of the seventy-seventh and not rung once, and I did not touch it.** My own bell is in a sealed yard in Kells and the bar is on the bell and not on the licence, and it does not travel. **A handbell is in her bag and it is hers and it is not rung, and nobody has asked her for a reason at any hour of this day, including me.** Nothing was struck, nothing was tied, nothing went into metal, I reached for nothing, and nothing came.
+>
+> *The register is thirteen. **No paper has been asked for, produced, given or taken by me on any of the ten days of this week, and no name has been entered on any paper by me, and a drove book in a house a mile up is not a document, because there is no form in this kingdom on which a man can produce a drove book.** A trough, nine staves, two planks in a drain and a barrow-load of oak: none of them is a paper. **Nobody was thanked today and I wanted to twice.** Seventy-two days on this road with her and I did not ask her what it was for. Which office is it. **A footway that cannot be mended because mending it is a thing somebody can be blamed for, and there is no book to be blamed in.**
