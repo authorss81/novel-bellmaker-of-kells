@@ -36,11 +36,12 @@ Read these five. Everything else in `state/` is history and should be opened onl
 | 0011 | 03 | **no phase directory — see the note below** | 101–110 | 87–96 | `state/batch-0011-summary.md` | spent |
 | 0012 | 03 | `workspace/volume-03/batch-0002/` | 111–120 | 97–106 | `state/batch-0012-summary.md` | spent |
 | 0013 | 03 | `workspace/volume-03/batch-0003/` | 121–130 | 107–116 | `state/batch-0013-summary.md` | spent |
-| 0014 | 03 | `workspace/volume-03/batch-0004/` | 131–140 | 117–126 | — | **next** |
+| 0014 | 03 | `workspace/volume-03/batch-0004/` | 131–140 | 117–126 | `state/batch-0014-summary.md` | spent |
+| 0015 | 03 | `workspace/volume-03/batch-0005/` | 141–150 | 127–136 | — | **next** |
 
 **The rule: global batch number = (volume − 1) × 5 + batch-within-volume.** Volume 01 has five batches and one audit; Volume 02 has five; Volume 03 has five.
 
-**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100. Volume 03, *The Quiet Office*, is open and Batch 0003 is complete at Chapter 130, which is *What A District Does With A True Sentence* and which carries the volume's reserved midpoint reversal at Chapter 0125.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. **Chapter 100 falls on Day 86, Chapter 110 on Day 96, Chapter 120 on Day 106, and Chapter 130 on Day 116. The volume closes on Chapter 150 on Day 136, and there are TWO more batches after Batch 0003.**
+**Volume 01, *The Bell Before the Crime*, is complete at Chapter 50. Volume 02, *The Unpaid Names*, is complete at Chapter 100. Volume 03, *The Quiet Office*, is open and Batch 0004 is complete at Chapter 140, which is *The Three Of Us, Written Down By Nobody*. The reserved midpoint reversal is at Chapter 0125 and the volume's remaining batch is Batch 0005, Chapters 141–150, Days 127–136, which is the public truth bell and the warrant and the close.** Day 0 is the morning the carrier arrived at the Vale Bellhouse. **Chapter 100 falls on Day 86, Chapter 110 on Day 96, Chapter 120 on Day 106, Chapter 130 on Day 116, and Chapter 140 on Day 126. The volume closes on Chapter 150 on Day 136, and there is ONE more batch after Batch 0004, which is the climax and the resolution.**
 
 ## One volume arc per line
 
